@@ -6,52 +6,50 @@ url: https://www.youtube.com/watch?v=kJHhslhBjyE
 ---
 # The Mind of Man (Part 17)
 
-Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+We are examining the mind of man, and specifically today, the consciousness part of the mind. We will zoom in on this aspect, exploring what scripture says about it, using biblical texts to explain it clearly.
 
-Welcome to another episode of the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose. We are looking at the mind of man and today we are looking at the consciousness part of the mind. We want to zoom in on that part we have been talking about and really see what the scripture says about it. We want to see texts of scripture around it and explain it strongly to us. 
-
-We started out by calling it the reckoning part of our mind, the presenting part of our mind. What else can we call it? It is the affirming part of our mind, and it is not the knowing part. It is what we know that we get to reckon and to affirm. We are zooming in with the word consciousness because we want to look at a particular word, "conscience," that best describes that reality.
+We began by referring to this part of our mind as the reckoning or presenting part. It is also the affirming part, distinct from the knowing part. What we know is what we then reckon and affirm. We use the word "consciousness" to lead into a particular word, "conscience," which aptly describes this reality.
 
 ## The Mind and the Path of Spiritual Growth
 
-Recall that we're looking at God's purpose. We have seen that God's purpose is sonship. We want to fulfill that purpose that God has for our life and live every single day for His will and His glory. We have seen the roadmap of that purpose and that the only way we can fulfill it is by growth. This growth happens in our mind, not in our spirit. 
+Our overarching theme is God's purpose: sonship. To fulfill this purpose and live daily according to God's will and glory, we must grow. This growth occurs in our mind, not in our spirit.
 
-Our spirit is our nature. It is fixed, permanent, unchanged, and unchanging. It is in a complete, perfect, and divine state, just as Christ is and as God is. We are one spirit with the Lord; God is in us and we are in God. That is the nature that we have. Because the spirit cannot grow or be developed, growth must happen on our mind. 
+Our spirit represents our nature—fixed, permanent, unchanged, and unchanging. It is in a complete, perfect, and divine state, just as Christ and God are. We are one spirit with the Lord; God is in us, and we are in God. This is our true nature. Since the spirit cannot grow or develop, growth must take place in our mind.
 
-How exactly does our mind operate? What are the aspects of our mind? We could almost think of them as compartments, but our mind is one mind. There are simply these different aspects there. You might think about them in a compartmentalized way, but it is one mind as the scripture presents it, despite all these things going on there.
+How exactly does our mind operate? What are its various aspects? While we might conceptualize them as compartments, the mind is ultimately one entity. The scripture presents it as a singular mind, despite the different processes occurring within it.
 
 ## The Dynamics of the Inward and Outward Man
 
-One of the texts we used to explain the dynamics of man is 2 Corinthians 4:16, which talks about the inward man and outward man. We could also reference 1 Thessalonians 5:23, but 2 Corinthians 4:16 is a simpler way of explaining it. We said the inward man is our spirit with our mind, and the outward man is our body with our brain. 
+To explain the dynamics of human existence, we frequently refer to 2 Corinthians 4:16, which distinguishes between the inward and outward man. While 1 Thessalonians 5:23 could also be cited, 2 Corinthians 4:16 offers a simpler explanation. We define the inward man as our spirit combined with our mind, and the outward man as our body combined with our brain.
 
-The outward man is perishing. This explains how we are living out the reality of our spirit through our bodies. If the outward man is perishing, people can experience deterioration in their brain, which can place a limitation on the activity of their mind. However, we take it as a matter of revelation that the spirit with the mind is unaffected, even if there is a limitation placed on the person's body.
+The outward man is perishable. This explains how we live out the reality of our spirit through our bodies. Deterioration in the brain, for example, can limit the activity of a person's mind. However, from a revelation standpoint, the spirit with the mind remains unaffected, even if there are limitations placed upon the person's body.
 
-In 2 Corinthians, Paul describes the body and the brain as our tent, our cloth, or a building. He is essentially saying that the real man is the inward man. In Luke 16, when the Lord was speaking, He brought this dual reality of man to the fore. He said that Lazarus and the rich man both had their inward and outward man until they died physically. 
+In 2 Corinthians, Paul metaphorically describes the body and brain as a tent, a cloth, or a building. He implies that the true individual is the inward man. In Luke 16, the Lord illustrates this dual reality of man. He describes Lazarus and the rich man as having both inward and outward aspects until their physical death.
 
 ## Reasoning, Memory, and the Power of Conviction
 
-When they died, they left behind their outward man on the earth and went into a deal with their inward man. We saw that their inward man had an operational mind. In fact, the realities of that mind remained the same and did not change. They still had the same memory, tendencies, behavior, and consciousness. 
+Upon death, they left their outward man on earth and continued their existence with their inward man. Critically, their inward man possessed an operational mind, and the characteristics of that mind—memory, tendencies, behavior, and consciousness—remained unchanged.
 
-We saw the rich man reasoning about his condition and seeking a solution. However, Abraham called him to his memory. So we are seeing that there's the reasoning aspect of the mind and the memory aspect of the mind. Abraham told him to remember that in his lifetime he had certain things. Another place we see this is Luke 24:45, where the Lord opened their understanding that they may comprehend the scriptures. 
+The rich man, for instance, reasoned about his condition and sought a solution, but Abraham called him to remember his past life. This demonstrates the reasoning and memory aspects of the mind. Abraham told him to "remember that in your lifetime you received your good things." Another example is found in Luke 24:45, where the Lord "opened their understanding that they might comprehend the Scriptures."
 
-By His explanation, He was removing the blinders of their understanding so they could put together the scriptures. This was happening in their reasoning. He expected them to make a decision and an agreement based on the evidence He was presenting. This brings us to the third aspect of our mind, which is our will, and the fourth aspect, which is our conviction. 
+Through His explanation, Jesus removed the intellectual blinders, enabling them to connect and understand the scriptures. This process occurred within their reasoning. He expected them to make a decision and agree based on the evidence He presented. This leads us to the third aspect of our mind: our will, and the fourth aspect: our conviction.
 
-Conviction is simply what we agree with. There are things we agree with even if we have forgotten the exact reasoning behind why we agree with them. We might have to take a pause to recall the reasoning behind our agreement. That's the nature and the power of conviction. Even if your conduct doesn't match your conviction, you can still insist on the conviction because you have tested the reasoning and it satisfied you.
+Conviction is simply what we agree with. We can hold convictions even if we have forgotten the precise reasoning behind them, sometimes requiring a pause to recall that reasoning. This highlights the nature and power of conviction. Even if one's conduct does not align with a conviction, the conviction itself can persist, having been established through tested and satisfying reasoning.
 
 ## The Relationship Between Mind and Conscience
 
-Sometimes people say if someone doesn't act in accordance with what they agree with, they don't really agree with it. It is not always the case. People can hold a conviction while the strength of their consciousness differs, so their actions do not match. This is exactly what Romans 6 was about, where people agreed with the reality of redemption but were acting contrary to it. 
+It is sometimes argued that if someone does not act in accordance with what they agree with, they don't truly agree with it. However, this is not always the case. Individuals can maintain a conviction even when the strength of their consciousness differs, leading to actions that do not match. This dynamic is central to Romans 6, where people affirmed the reality of redemption but acted contrary to it.
 
-I want us to look at this fifth aspect of the mind, which is the reckoning reality. I am convinced about something, which can also be called faith, but I am not reckoning that reality. This reckoning is what you are conscious of and what you are renewing your mind to. I want us to look at the word "conscience" in Titus chapter one to see the interaction between the word mind and the word conscience.
+We now turn to the fifth aspect of the mind: the reckoning reality. This refers to being convinced about something (which can also be called faith) but not yet actively reckoning, or being conscious of, that reality. This reckoning is what we are conscious of and what we actively renew our mind towards. To explore this further, let us examine the word "conscience" in Titus chapter one, observing the interaction between "mind" and "conscience."
 
-In Titus 1:15, Paul says to the pure all things are pure, but to those who are defiled and unbelieving, nothing is pure; even their minds and conscience are defiled. Usually, people are careless with these texts. For instance, some assume even things that were sinful are pure. However, when Paul says "all things" here, he is speaking about things in the cosmos sense, like matter. 
+In Titus 1:15, Paul states, "To the pure, all things are pure, but to those who are defiled and unbelieving, nothing is pure; even their minds and conscience are defiled." Often, people interpret these texts carelessly, assuming, for example, that even inherently sinful things become pure. However, when Paul says "all things," he refers to "cosmos" things, like material objects.
 
 ## Understanding Purity and the Conscience
 
-This discussion comes from a background of people reasoning via the law of Moses, where there were depictions of right and wrong via material things. They would explain certain animals to be holy and others to be profane. Material things played a big role in their system of holiness. We see this again in 1 Timothy chapter 4, where Paul speaks of those having their conscience seared with a hot iron. 
+This discussion stems from a background where people reasoned through the Law of Moses, which depicted right and wrong via material things. Certain animals were declared holy, others profane. Material objects played a significant role in their system of holiness. We see this concept again in 1 Timothy chapter 4, where Paul speaks of those "having their conscience seared with a hot iron."
 
-These people were commanding to abstain from foods which God created to be received with thanksgiving. Paul reminds us that every creature of God is good and nothing is to be refused if it is received with thanksgiving. This is also true of Peter's vision in Acts chapter 10. Peter was shown all kinds of animals and told to kill and eat, but he refused because he had never eaten anything common or unclean. 
+These individuals were "commanding to abstain from foods which God created to be received with thanksgiving." Paul reminds us that "every creature of God is good, and nothing is to be refused if it is received with thanksgiving." This is also evident in Peter's vision in Acts chapter 10. Peter was shown all kinds of animals and instructed to "kill and eat," but he refused because he had "never eaten anything common or unclean."
 
-Peter's conscience was in that state because he had heard something from the law that formed his reasoning. From his reasoning, it was in his memory and became his agreement. There is fundamental truth in what the law says about morality, but there is a difference between moral truth and moral expression. Things created by God are not fundamentally evil in themselves. 
+Peter's conscience was conditioned by the Law, which formed his reasoning, embedded itself in his memory, and became his agreement. While there is fundamental truth in what the Law says about morality, there is a distinction between moral truth and its expression. Things created by God are not inherently evil in themselves.
 
-This was a challenge Paul was facing because some who were still upholding the law of Moses were contending against his message. He says that for those who are defiled and unbelieving, their understanding and their conscience are defiled. There are three things that make up conscience. I am going to open up those things that define the conscience in the very next episode. For now, see you on the next one.
+Paul faced a challenge from those who still upheld the Law of Moses and contended against his message. He concludes that for "those who are defiled and unbelieving, their understanding and their conscience are defiled." The conscience is comprised of three elements, which I will elaborate on in the next episode.

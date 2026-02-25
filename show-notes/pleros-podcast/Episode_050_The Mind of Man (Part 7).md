@@ -6,44 +6,36 @@ url: https://www.youtube.com/watch?v=ThmlZHAmB_E
 ---
 # The Mind of Man (Part 7)
 
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+This series focuses on the mind of man. We have explored the roadmap of God's purpose and how personal growth facilitates its fulfillment. This study consistently points to the mind as the primary determinant of whether we achieve God's purpose for our lives.
 
-Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are presently looking at the mind of man and have seen a number of things, including the roadmap of God's purpose and how growth allows us to fulfill it. This study brought us to the conclusion that the mind of man is really what determines whether we fulfill God's purpose.
+Our life is a direct product of our mind. This highlights the critical importance of our mind in our walk with God and in fulfilling His purpose. It is essential to understand the intricacies of the human mind—what processes occur there, what influences it, and how these factors shape the outcomes we experience. Recognizing the mind's role also sheds light on the significance of our spirit.
 
-I have said it this way: our life is directly a product of our mind. That is how critical and important our mind is relative to our walk in and fulfillment of God's purpose. It is essential that we understand the mind of man—what plays out there, what affects what, and what leads to the results that we see in our lives. Appreciating the place of our mind also helps us to see the place of our spirit.
+God's ultimate purpose for us is sonship: to be His children and heirs, walking in fellowship with Him, embodying His nature and character, and pursuing the assignments He has given us. Fulfilling this purpose requires significant growth in our minds. The mind's power and importance cannot be overstated, yet this understanding naturally leads to questions about the specific changes that occur at salvation.
 
-## Defining the Inward and Outward Man
+To grasp the holistic nature of humanity, we turn to 1 Thessalonians 5:23, which states, "May the God of peace sanctify you completely... may your whole spirit, soul, and body be preserved blameless until the coming of the Lord Jesus Christ." While "soul" is often equated with "mind," caution is warranted before making that direct correlation. Nonetheless, this verse establishes that man is comprised of a spirit, possesses a soul (which includes the mind), and inhabits a body.
 
-We already know that God's purpose is sonship; we are God's children and heirs. We have to walk in fellowship with Him and in His nature and character, pursuing the assignments He has given us. It takes growth in our minds to fulfill this purpose for our lives. Our minds are so powerful and important that we cannot overstate their significance, but this raises questions about what exactly happened at salvation.
+## The Inward and Outward Man: A Biblical Distinction
 
-To understand who man is holistically, we look at 1 Thessalonians 5:23. It says, "May the God of peace sanctify you completely... may your whole spirit, soul, and body be preserved blameless until the coming of the Lord Jesus Christ." While people often equate "soul" with "mind," we should not be quick to jump to that conclusion. Regardless of the terminology, we can say man is a spirit, has a mind, and lives in a body.
+Paul offers a slightly different perspective in 2 Corinthians chapter 4, simplifying the description of man into an "inward man" and an "outward man." Verse 16 states, "Therefore we do not lose heart, even though our outward man is perishing, yet our inward man is being renewed day by day." This distinction—inward and outward—encompasses the entire reality of a person.
 
-The approach Paul takes in 2 Corinthians chapter 4 is slightly different. He describes man simply as an "inward man" and an "outward man." Verse 16 says, "Therefore we do not lose heart, even though our outward man is perishing, yet our inward man is being renewed day by day." When you use the terms inward and outward, you are covering the entire reality of a person from that perspective.
+We can view the inward and outward man as parallel aspects of human existence, both integral to the essential framework of humanity. Conceptually, man has a body with a brain, and a spirit with a mind. This aligns with the biblical understanding, and a specific account from the Gospels vividly illustrates this truth.
 
-## The Reality of the Spirit and the Body
+## The Enduring Consciousness of the Inward Man
 
-We can think of the inward man and outward man as parallels. The essential framework of humanity is at play in both instances. You can think of man as one who has a body with a brain, as well as a spirit with a mind. This is the biblical position on the matter, and the Lord gave a particular account that helps us see this clearly.
+In Luke chapter 16, we find the narrative of Lazarus and the rich man. This appears to be an actual event rather than a parable or a fictitious story. The account describes a rich man, sumptuously clothed, and a beggar named Lazarus, covered in sores. Both individuals possessed an inward man and an outward man.
 
-In Luke chapter 16, we see the account of Lazarus and the rich man. This does not seem to be a parable or a fictitious account, but an actual event. There was a certain rich man clothed in purple and a beggar named Lazarus full of sores. These are two people who both possess an inward man and an outward man.
+When the beggar died, it was his outward man—his physical body—that perished. His inward man, however, was carried by angels to Abraham’s bosom. Similarly, when the rich man died and was buried, his body remained in the grave, but another part of him was in torment in Hades. He was fully conscious, able to lift his eyes and perceive Abraham and Lazarus, clearly demonstrating the continued existence and awareness of his inward man.
 
-When the account says the beggar died, it was his outward man—his body—that died. He was then carried by angels to Abraham’s bosom, which refers to his inward man. The rich man also died and was buried, but while his body was in the grave, another part of him was in torment in Hades. He lifted up his eyes and saw Abraham and Lazarus, showing that his inward man was fully conscious.
+Hades is a temporary holding place for the dead before the final judgment, similar to someone held in custody before sentencing. It is distinct from the Lake of Fire, which represents the second death. In this intermediate state, we observe the inward man's continued interaction and awareness even after the physical body has departed.
 
-## The Persistence of the Mind After Death
+## The Inward Man's Mind: Memory, Reason, and Affection
 
-Hades is the place of the dead, a temporary holding place before the final judgment. I sometimes use the example of someone being held in custody or remanded in prison before they are eventually sentenced. It is not yet the Lake of Fire, which is the second death. In this intermediate state, we see the realities of the inward man interacting after the physical body is gone.
+In Luke 16:24, the rich man cries out to Abraham for mercy. His recognition of Lazarus and Abraham clearly indicates that his mind remains active. When instructed to "remember" his lifetime, it affirms that his memory persists even without a physical body. Furthermore, his expressed concern for his five brothers demonstrates the enduring presence of his reasoning capacity and family affections.
 
-In verse 24, the rich man cries out to Abraham for mercy. The fact that he recognized Lazarus and Abraham shows that his mind is still at play. When he is told to "remember" his lifetime, it proves his memory is still present even without his physical body. He even expresses concern for his five brothers, demonstrating that his reasoning and family connections remain intact.
+Acts 2:27 corroborates this reality concerning the death and resurrection of Jesus: "For you will not leave my soul in Hades, nor will you suffer your Holy One to see corruption." Here, "corruption" refers to the physical body, while "soul" denotes the inward man in its entirety. This verse underscores that the inward man is an enduring reality, continuing to exist even without the outward man.
 
-Acts 2:27 further confirms this reality regarding the death and resurrection of Jesus. It says, "For you will not leave my soul in Hades, nor will you suffer your Holy One to see corruption." Corruption is a reality of the physical body, while the soul refers to the inward man in its entirety. This shows that the inward man is an ongoing reality that continues even without the outward man.
+The scriptural accounts unequivocally demonstrate that the inward man possesses a mind capable of memory, recollection of details, and reasoning. Therefore, it is accurate to conceptualize the outward man as a body with a brain, and the inward man as a spirit with a distinct mind. This consistent biblical description confirms that the inward man is not devoid of mental faculties.
 
-## Implications for Spiritual Growth
+For the believer, the inward man is united with Christ. By divine nature, our spirit is inherently like God and like Christ. However, this spirit is accompanied by a mind that may not yet be fully renewed or enlightened concerning the realities of its new nature. This situation can be likened to a human individual who, due to their upbringing, mistakenly believes they are a dog; they operate under this false identity simply because they are unaware of their true human capacity to stand upright.
 
-We can clearly see that the inward man is described as having a mind that can remember, recollect details, and reason. We are not out of place to think of the outward man as a body with a brain and the inward man as a spirit with a mind. This is the consistent description we have from scripture. The inward man is not without a mind.
-
-For the believer, the inward man is fused with Christ. By nature, our spirit is just like God and just like Christ. However, that spirit has a mind which may not yet be renewed or enlightened about the realities of its new nature. It is like a human being who thinks he is a dog because of how he was raised; he functions that way simply because he doesn't know he can stand upright.
-
-We will start to explore these concepts further in the next episode. I hope we have defended the point that you are a spirit with a mind and a body with a brain. This understanding has very serious implications for our growth and our walk in God's purpose. See you on the next one.
-
-***
-
-We trust you were blessed by today's episode. Do stay in faith about what you've heard and walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. While on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at @Plerose_hog. For now, stay blessed and keep walking in His purpose.
+We will delve deeper into these concepts in our next discussion. Our exploration today has aimed to firmly establish the understanding that you are a spirit with a mind, residing in a body with a brain. This fundamental truth holds profound implications for our spiritual growth and our journey in fulfilling God's purpose.

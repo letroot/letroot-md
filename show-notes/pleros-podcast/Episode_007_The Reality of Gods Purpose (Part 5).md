@@ -6,46 +6,44 @@ url: https://www.youtube.com/watch?v=zAQnxQ1EaTg
 ---
 # The Reality of God's Purpose (Part 5)
 
-Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. 
+We have been exploring God's purpose, recognizing that it is not a matter of our personal opinions or desires, but rather a revelation from God himself. It would be strange to impose our preferences on God and call them His purpose, just as it would be inappropriate for someone to dictate our own purpose. This understanding underscores the critical need for revelation concerning God's purpose.
 
-Brothers and sisters, welcome to another episode of the Pleros podcast, your daily dose of God's word transforming you to fulfill God's purpose. I think we have been dwelling a bit on that last part of the equation, which is God's purpose of recent, because you've been following us and you have at this juncture gotten an understanding of what God's purpose is. We've seen that God's purpose is not a matter of our personal opinions or desires; it's rather a matter of his own revelation. 
+## Objective vs. Subjective Revelation
 
-## The Need for Objective Revelation
+We must differentiate between objective revelation, which comes directly from God through the Bible, and subjective revelation, which stems from personal experiences, inner voices, or an inward witness.
 
-If you talk about someone's purpose, whether it's your own purpose, it would be strange if someone imposes their own preference on you as your own purpose. It's kind of the same way if we are found imposing on God what we prefer as his own purpose. And that's why we said on the subject matter of God's purpose, we must recognize the need for revelation, but separate the objective revelation we get from the direct revelation of God, which is the Bible, from the subjective revelation we get from experiences, voices, or an inward witness.
+The Bible serves as the direct and objective revelation of God's Word. We hold the Scriptures as authoritative because the truth of the gospel, fulfilled in the person of Jesus, validates them. For believers in Christ, the Bible is the ultimate document for truth and revelation.
 
-We must separate the objective revelation we get from the direct revelation of God's word, which is the Bible. We have examined the reason why we hold the scriptures as direct revelation as believers in Christ Jesus. We saw that there is the truth of the gospel, and that truth is fulfilled in the person of Jesus. The person of Jesus validates the scriptures and therefore, for us, the Bible is the authoritative document for truth and revelation. 
+Objective revelation, as found in God's Word, forms the foundation. Subjective revelation, which guides our personal walk and service, must be built upon this objective foundation. Misinterpreting God's objective purpose, as revealed in the Scriptures, will inevitably lead to a flawed understanding of any subjective revelation we receive.
 
-One is foundational and the other is built on that foundation. The objective revelation of God's purpose found in his word is foundational. The subjective revelation you could receive about what the Lord will have you do is built on the objective one. If you get it wrong relative to what is objectively God's purpose written in black and white in his word, you are likely not going to interpret your subjective revelation properly.
+## The Core of God's Purpose: Sonship
 
-## Sonship: The Good Pleasure of His Will
+God's purpose, as revealed in Ephesians 1:9, is the "mystery of his will," what He wants according to His good pleasure. Ephesians 1:5 further clarifies this, stating that God "predestined us to sonship or adoption as children by Jesus Christ to himself, according to the good pleasure of his will."
 
-Now, not to belabor that matter, what have we seen God's purpose to be? You recall we have seen Ephesians 1:9, where we are told that God has made known the mystery of his will, which is what he wants according to his good pleasure. We have also seen Ephesians 1:5, which says that what God wants and God likes is sonship. He predestined us to sonship or adoption as children by Jesus Christ to himself, according to the good pleasure of his will. 
+Therefore, sonship is precisely the good pleasure of God's will. Romans chapter 9 corroborates this, indicating that sonship is the reality God first reflected in the Israelites, revealing it as His core purpose.
 
-Whatever he predestined us to has to be the good pleasure of his will. In the light of what he likes and what he wants, he predestined us to sonship. Oh, that must be precisely what the good pleasure of his will is. We have other texts to attest to that, such as Romans chapter 9, which says the first thing Paul told us God reflected in the Israelites is the reality of sonship, which is his purpose.
+Romans chapter 8, verse 15, explains the essence of sonship. Paul writes that "we have not received the spirit of bondage again to fear." This signifies that upon salvation, we are not subjected to the slavery or bondage experienced under the reign of sin and death. Our interaction with God is transformed; it is no longer the way things used to be.
 
-We have explained what sonship is from Romans chapter 8 and verse 15. Paul says we have not received the spirit of bondage again to fear. This means that when we become saved, we are not put under bondage or slavery as was the case when we were under the reign of sin and death. The manner of interaction, the modus operandi that is at play when we are saved, is not the way things used to be.
+## Embracing the Spirit of Adoption
 
-## From Bondage to the Spirit of Adoption
+We are no longer compelled or suppressed to function under sin, death, and darkness. Instead, we are granted the privilege to live in the freedom of His life, empowered by God's very nature. While we may be called servants or even "slaves of righteousness," this service is born of willingness, reflecting the positive actions we are now natured to perform. God actively works in us "both to will and to do of his good pleasure."
 
-We were not forced and beaten down to function under sin, death, and darkness. In this case, we are given the privilege to walk in the freedom of his life by God's nature. I must be careful to say that while we are servants or even slaves of righteousness, these things are a matter of willingness because they are the positive things that we are natured to do. God is working in us both to will and to do of his good pleasure.
+This stands in stark contrast to being under the flesh, where individuals are trapped by behaviors and habits they wish to abandon but cannot. We are not in such a predicament. We have received "not the spirit of bondage again to fear, but the spirit of adoption or sonship whereby we cry, 'Abba, Father.'" We possess the spirit of sonship.
 
-This is much different from when you are under the flesh, where someone is bound by certain conducts and habits that the person no longer wants to engage with but is still trapped in. We are not in that kind of a situation. We have not received the spirit of bondage again to fear, but the spirit of adoption or sonship whereby we cry, "Abba, Father." Glory to Jesus, you have the spirit of sonship.
-
-Verse 16 explains that when we put the spirit of sonship to work, the spirit himself bears witness with our spirit that we are the children of God. That word "children" means you have God's very nature. These two spirits, when put to test, have the same testimony. We are children of God, and that is the first reality of sonship.
+Verse 16 clarifies that as the spirit of sonship operates, "the Spirit himself bears witness with our spirit that we are the children of God." The word "children" here implies possessing God's very nature. These two spirits, when examined, bear the same testimony: we are children of God. This is the primary reality of sonship.
 
 ## Understanding Our Position as Heirs
 
-But then there's another reality of sonship: if children, then we are heirs—heirs of God and joint-heirs with Christ. In Galatians 4, we see that a child, even though he is indeed already the master of all things, differs nothing from a slave while he is an infant. If you have an infant who is unable to yet speak or process complex reasoning, you cannot expect the child to direct the activities of your house or your business.
+Beyond being children, another reality of sonship is that "if children, then we are heirs—heirs of God and joint-heirs with Christ." Galatians 4 illustrates this by explaining that a child, though inherently the master of all things, is no different from a slave while an infant. An infant, unable to speak or reason complexly, cannot be expected to manage a household or business.
 
-The reality of being an heir of God defines sonship. The concept of sonship is the idea that the child would be given responsibility over what the father owns. That is why, in talking about sonship with Israel, God said, "Israel is my son, my firstborn." The firstborn privilege, which is the privilege of being an heir, is committed to all of them, not just some of them. 
+The essence of sonship, therefore, involves the child eventually being entrusted with responsibility over the father's possessions. This is why God declared of Israel, "Israel is my son, my firstborn." The firstborn privilege, that of being an heir, was committed to all of them, not just a select few.
 
-When you say, "I am a son of God," you are not speaking to the effect of gender. You are simply saying, "I am an heir of God." In this case, you are God's child who is also his heir. The reality of God's purpose is that he wants us as his children to fellowship with him. That is the very essence of this relationship—primarily about that beautiful fellowship where we cry, "Abba, Father."
+When we declare, "I am a son of God," it is not a gender-specific statement. It means, "I am an heir of God." We are God's children who are also His heirs. God's purpose is for us, His children, to fellowship with Him. This beautiful fellowship, where we cry, "Abba, Father," is the very essence of our relationship with Him.
 
-## The Two Classes of Inheritance
+## The Classes of Our Inheritance
 
-But then we must ask: what are we then to do as heirs of God? Being an heir means God has allotted something to us—things he has given us to do and fulfill. The word is *kleronomos*. *Kleros* means a lot or a portion of property, and the root *nomos* means assigning or instructing. As an heir, you are one who has been assigned a lot, and our question is: what lot exactly have we been assigned?
+As heirs of God, we must ask: what exactly are we called to do? Being an heir means God has allotted something to us – specific tasks and responsibilities to fulfill. The Greek word *kleronomos* signifies an heir; *kleros* refers to a lot or portion of property, and the root *nomos* denotes assigning or instructing. Thus, an heir is one who has been assigned a lot. Our question then becomes: what specific lot have we been assigned?
 
-There are two classes of inheritance that we have. If you think about existence, there are just two classes of things that exist: the self-existent, which is God, and created existence, which is the cosmos. What God can give to anyone that he owns, other than himself, is the world he has created. Humanity is meant to inherit this world and bring it under the reign of life.
+Our inheritance falls into two main classes. Existence itself can be broadly divided into two categories: the self-existent (God) and created existence (the cosmos). Apart from Himself, what God can bestow upon anyone He owns is the world He created. Humanity is intended to inherit this world and bring it under the reign of life.
 
-Romans chapter 4 speaks of Abraham being the heir of the whole world. In Colossians 3:22-24, Paul tells servants to work heartily as to the Lord, knowing that from the Lord you will receive the reward of the inheritance. Our first assignment is what we can call a natural inheritance. We’re going to pick it up from here next session as we see what this natural inheritance is all about. Catch you on the next one.
+Romans chapter 4 declares Abraham to be the "heir of the whole world." Similarly, Colossians 3:22-24 instructs servants to "work heartily, as to the Lord... knowing that from the Lord you will receive the reward of the inheritance." Our initial assignment is what we can term a natural inheritance.

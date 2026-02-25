@@ -6,46 +6,46 @@ url: https://www.youtube.com/watch?v=jhOf8h9QFHY
 ---
 # The Pursuit of God's Purpose (Part 6)
 
-Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
-
-Your daily dose of God's word transforming you, renewing your mind to fulfill God's purpose for your life. I trust you'll be learning. We've seen some important things and I'm just going to rush through them. We have seen that the gospel holds the place of truth in our lives, in fact in existence, such that those who reject it are still affected by its truth.
+We have previously established several foundational truths. Firstly, the gospel occupies the central place of truth in our lives and in all existence; even those who reject it are still profoundly affected by its reality.
 
 ## The Foundation of Sonship and Purpose
 
-The second thing we have seen is that the gospel answers all the different questions of truth. But at the heart of that, or at the end of it, is the question of why. Why is there anything at all? Why do we exist, or why is there created or contingent existence? And we've seen that the answer is God's purpose, which is sonship.
+Secondly, the gospel provides answers to all fundamental questions of truth. Ultimately, it addresses the deepest question: "Why?" Why does anything exist at all? Why is there created or contingent existence? The answer, as we have seen, lies in God's purpose: sonship.
 
-We have explained sonship to mean being God's child and His heirs. If speaking about one person plural, God's intention was a family; it is to be God's children and to be His heirs. As His children, we are to fellowship with Him and walk in His nature and character. Then, as His heirs, we are to carry out the assignment that He gives to us.
+Sonship, as we have explained, means being God's child and His heir. God's intention is to form a family of children and heirs. As His children, we are called to fellowship with Him and to embody His nature and character. As His heirs, we are entrusted with carrying out the specific assignments He gives us.
 
-We have seen that there are two assignments that we have: natural assignment and spiritual assignment. Those are the basic things we have gotten out of the way. But it's not enough that we just know about God's purpose. Ordinarily, what should follow from that is asking, "How do I fulfill it? What am I supposed to do about it?"
+We have identified two primary assignments: a natural assignment and a spiritual assignment. While understanding God's purpose is crucial, merely knowing it is insufficient. The natural progression from this understanding is to ask: "How do I fulfill this purpose? What am I actually supposed to do?"
+
+The pursuit of God's purpose is not left to our mere conjecture. While thoughtful consideration might lead us to similar conclusions, God's providence and divine orchestration guide us in navigating this path. His revelation, particularly His written Word—the Scriptures—directly addresses how we are to pursue His purpose.
+
+A central text in this regard is 1 Corinthians 7:17, which states, "Just as God has apportioned to us and as God has called us, that is how we should walk." This refers to the specific conditions in which an individual receives the gospel or comes to understand God's purpose. These are the very conditions God foreknew for that individual to begin their journey in His purpose.
+
+Your new life in Christ does not begin by attempting to rectify your existing conditions. While repentance and abandoning sin are essential, fixing external circumstances or conditions is a different matter. Instead, the instruction is to commence your walk from the state in which you were called.
+
+Verse 20 of 1 Corinthians 7 further emphasizes this: "Let each one remain in the same calling in which he was called." This directive concerns your initial circumstances, including marital status. If a person was already married, even to an unbeliever, God is fully aware of that condition when they are called.
 
 ## Walking in the State of Your Calling
 
-The pursuit of God's purpose is not something that is just left to us to think out on our own. Even though if we think through it, we could probably arrive at the same conclusion, God's providence and orchestration address how we navigate it. His revelation, His written word, and the scriptures directly address how we navigate the pursuit of His purpose.
+The instruction is for each person to remain with God in the state in which they were called. It is important to note that exceptions exist, particularly concerning natural assignments, where progress or change might be possible. However, if one seeks to alter fundamental aspects of their identity purely for the sake of faith, it may suggest a carnal approach rather than a spiritual one.
 
-A central text in that regard is 1 Corinthians 7:17, where he said, "Just as God has parted to us and as God has called us, that's how we should walk." It's talking about the conditions in which a man receives the gospel or realizes God's purpose. These are the conditions God already foreknew for him to begin his walk in his purpose.
+Your external status, in such contexts, holds less significance than your personal desires in Christ. You are to begin your walk with God from the state in which you were called, encompassing the conditions of your natural assignment.
 
-Your walk in the new life in Christ is not such as to begin with you trying to fix one thing or another about your conditions. Now, it is about fixing or repenting and abandoning sins, which is a different thing. We're talking about fixing circumstances or conditions. That's not how we are told; it rather starts with you walking from the state in which you are called.
+A second principle, alongside starting where you are, is to proactively seize opportunities for greater freedom when they arise. If such an opportunity presents itself, it should be utilized.
 
-Verse 20 of that 1 Corinthians 7 says, "Let each one remain in the same calling in which he was called." So you start out from there. It's again talking about the conditions. He had started out talking about marital conditions. If the person was already married, probably even married to an unbelieving person, it says God is well aware.
+The third counsel is found in verse 31, which advises those who use this world to do so without misusing it. This instruction applies to individuals who possess a certain privilege, extending beyond the constraints of circumstances or limitations of opportunity, allowing them to freely choose their path.
 
 ## Natural Assignments and the Liberty of Choice
 
-Brethren, let each one remain with God in that state in which he was called. Now you recall that he would give exceptions in some instances, particularly in a natural assignment. When you can make progress, that's an exception. But if it's about things like your identity, if you are changing them for the faith, you are probably walking in the flesh.
+Concerning natural assignments, it is crucial to recognize the liberty of choice we possess—the freedom to choose and act according to our preferences. While every aspect of life is open to the leading of the Spirit, divine guidance in our natural assignments often complements our inherent desires and preferences. This aligns with the teaching of God's Word.
 
-Your status in such regard doesn't count, except in matters of personal desire. You should begin your walk with God from the state in which you are called, which includes the state of your natural assignment. The second rule from starting from where you are is to take advantage of opportunities if you can be made free.
+It would be an error to solely seek precise instructions from the Holy Spirit regarding every action while disregarding the clear light provided by God's written Word. Instead, we begin with our current circumstances, the opportunities available to us, and our own desires. As we proceed in this manner, we should then seek confirmation from the Holy Spirit that our chosen direction is aligned with God's will.
 
-Where you do have such an opportunity, use it. The third counsel is found in verse 31, where he says those who use this world as not misusing it. This speaks to those who have a level of privilege beyond constraints of circumstances or limitations of opportunity to freely choose what they want to do.
+This principle also extends to marital relationships. When living and walking by faith, all things will work together for the good of God's purpose in your life. Even in the absence of a specific divine directive concerning a relationship, we operate by the rule of God's Word, which grants us the freedom to make our own choice.
 
-When it comes to natural assignment, we must recognize that liberty of choice to choose and to act as we want to. Everything in life is open to the leading of the Spirit, but the leading of the Spirit in our natural assignment is complementary to our desires and our preferences. That is the position of God's word about it.
+The concept of exercising personal choice in marriage is evident in Scripture, such as in Numbers 36 and 1 Corinthians 7:39, where it states that a woman "may marry whomsoever she wills, only in the Lord." This liberty of will concerning marital decisions mirrors the freedom we have in our natural assignments.
 
 ## Spiritual Assignments and the Divine Initiative
 
-The wrong protocol would be to ask God's Spirit what exactly you must do while ignoring the light you have in God's word. You start out with where you are, the opportunities you have, and your own desires. Then, as you do that, you should confirm by God's Spirit that the direction you are going is right.
+Our spiritual assignment begins with the same principle as the natural: start where you are. The very circumstances in which you find yourself are the appropriate starting point for pursuing your spiritual calling. Mark 16:15 instructs us, "Go into all the world and preach the gospel to every creature."
 
-This is true of marital relationships as well. If you are living and walking by faith, things will work together for the good of God's purpose for your life. Even where you don't have a specific direction about a relationship, you go by the rule of the word of God, which is you making your choice.
-
-This idea of you making your choice in marriage is found in scripture, such as in Numbers chapter 36 and 1 Corinthians 7:39. It says she may marry whomsoever she wills, only in the Lord. This liberty of her will when it comes to marital decisions is also found when it comes to natural assignments.
-
-When it comes to our spiritual assignment, it begins on the same rule as the natural, which is to start where you are. Those very circumstances in which you are found is where you ought to begin your pursuit of your spiritual assignment. Mark 16:15 says, "Go into all the world and preach the gospel to every creature."
-
-The word of God is clear enough for us to begin and take our initiative with. We sometimes lay burdens on ourselves that God does not intend to lay on us. In Acts chapter 16, Paul attempted to take the next step in light of the instruction of the word. He wasn't sitting around waiting; he was ready to go. But then the exception came to him, being forbidden by the Holy Ghost to preach in Asia. That is how we should approach the matter: start from where you are, and exceptions may come to you.
+God's Word provides sufficient clarity for us to initiate action and take the first steps. We sometimes impose burdens upon ourselves that God never intended. For example, in Acts chapter 16, Paul actively sought to take the next step in fulfilling the Great Commission. He did not passively wait but actively pursued the commission. It was then, and only then, that an exception arose: he was forbidden by the Holy Spirit to preach in Asia. This illustrates the proper approach: begin where you are, and divine exceptions or specific directions may follow.
