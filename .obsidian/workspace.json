@@ -20,23 +20,8 @@
               "icon": "lucide-file",
               "title": "we-had-to-talk-about-this-elon-interview"
             }
-          },
-          {
-            "id": "f87ade2290fcaa9e",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "show-notes/pleros-podcast/Episode_066_Faith Stand (Part 5).md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Episode_066_Faith Stand (Part 5)"
-            }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -198,34 +183,35 @@
       "bases:Create new base": false
     }
   },
-  "active": "f87ade2290fcaa9e",
+  "active": "a177c1d55ca075a1",
   "lastOpenFiles": [
-    "show-notes/pleros-podcast/Episode_059_The Mind of Man (Part 16).md",
-    "show-notes/pleros-podcast/Episode_063_Faith Stand (Part 2).md",
+    "show-notes/pleros-podcast/docs/ai_scratchpad.md",
+    "show-notes/pleros-podcast/docs",
     "show-notes/pleros-podcast/Episode_066_Faith Stand (Part 5).md",
-    "show-notes/my-first-million/alex-hormozis-best-frameworks-for-business-and-beyond.md",
-    "show-notes/pleros-podcast/Episode_065_Faith Stand (Part 4).md",
-    "show-notes/pleros-podcast/Episode_064_Faith Stand (Part 3).md",
-    "show-notes/pleros-podcast/Episode_062_Faith Stand (Part 1).md",
-    "show-notes/pleros-podcast/Episode_061_The Mind of Man (Part 18).md",
-    "show-notes/pleros-podcast/Episode_060_The Mind of Man (Part 17).md",
-    "show-notes/pleros-podcast/Episode_058_The Mind of Man (Part 15).md",
-    "show-notes/pleros-podcast/Episode_057_The Mind of Man (Part 14).md",
-    "show-notes/pleros-podcast/Episode_056_The Mind of Man (Part 13).md",
-    "show-notes/pleros-podcast/Episode_026_The Pursuit of Gods Purpose (Part 12).md",
-    "show-notes/pleros-podcast/Episode_055_The Mind of Man (Part 12).md",
-    "show-notes/pleros-podcast/Episode_025_The Pursuit of Gods Purpose (Part 11).md",
-    "show-notes/pleros-podcast/Episode_054_The Mind of Man (Part 11).md",
-    "show-notes/pleros-podcast/Episode_053_The Mind of Man (Part 10).md",
-    "show-notes/pleros-podcast/Episode_024_The Pursuit of Gods Purpose (Part 10).md",
-    "show-notes/pleros-podcast/Episode_052_The Mind of Man (Part 9).md",
-    "show-notes/pleros-podcast/Episode_023_The Pursuit of Gods Purpose (Part 9).md",
-    "show-notes/pleros-podcast/Episode_051_The Mind of Man (Part 8).md",
-    "show-notes/pleros-podcast/Episode_022_The Pursuit of Gods Purpose (Part 8).md",
-    "show-notes/pleros-podcast/Episode_050_The Mind of Man (Part 7).md",
-    "show-notes/pleros-podcast/Episode_021_The Pursuit of Gods Purpose (Part 7).md",
-    "show-notes/pleros-podcast/Episode_049_The Mind of Man (Part 6).md",
-    "show-notes/pleros-podcast/Episode_020_The Pursuit of Gods Purpose (Part 6).md",
+    "show-notes/pleros-podcast/episode-066-faith-stand-part-5.md",
+    "show-notes/pleros-podcast/episode-065-faith-stand-part-4.md",
+    "show-notes/pleros-podcast/episode-064-faith-stand-part-3.md",
+    "show-notes/pleros-podcast/episode-063-faith-stand-part-2.md",
+    "show-notes/pleros-podcast/episode-062-faith-stand-part-1.md",
+    "show-notes/pleros-podcast/episode-061-the-mind-of-man-part-18.md",
+    "show-notes/pleros-podcast/episode-060-the-mind-of-man-part-17.md",
+    "show-notes/pleros-podcast/episode-059-the-mind-of-man-part-16.md",
+    "show-notes/pleros-podcast/episode-058-the-mind-of-man-part-15.md",
+    "show-notes/pleros-podcast/episode-057-the-mind-of-man-part-14.md",
+    "show-notes/pleros-podcast/episode-056-the-mind-of-man-part-13.md",
+    "show-notes/pleros-podcast/episode-055-the-mind-of-man-part-12.md",
+    "show-notes/pleros-podcast/episode-054-the-mind-of-man-part-11.md",
+    "show-notes/pleros-podcast/episode-053-the-mind-of-man-part-10.md",
+    "show-notes/pleros-podcast/episode-052-the-mind-of-man-part-9.md",
+    "show-notes/pleros-podcast/episode-051-the-mind-of-man-part-8.md",
+    "show-notes/pleros-podcast/episode-050-the-mind-of-man-part-7.md",
+    "show-notes/pleros-podcast/episode-049-the-mind-of-man-part-6.md",
+    "show-notes/pleros-podcast/episode-048-the-mind-of-man-part-5.md",
+    "show-notes/pleros-podcast/episode-047-the-mind-of-man-part-4.md",
+    "show-notes/pleros-podcast/episode-046-gospel-answer-series-2.md",
+    "show-notes/pleros-podcast/episode-045-gospel-answers-series-4.md",
+    "show-notes/pleros-podcast/episode-044-gospel-answer-series-3.md",
+    "show-notes/pleros-podcast/episode-043-gospel-answers-series-1.md",
     "show-notes/pleros-podcast",
     "show-notes/school-of-hard-knocks",
     "show-notes/my-first-million/3 mindset shifts from billionaires (you won't find in books",
@@ -234,7 +220,6 @@
     "show-notes/the-tim-ferriss-show",
     "show-notes/opencode",
     "show-notes/my-first-million",
-    "show-notes",
-    "working-space"
+    "show-notes"
   ]
 }
