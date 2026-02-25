@@ -4,10 +4,6 @@ date: 2026-02-25
 episode: "The Mind of Man (Part 5)"
 url: https://www.youtube.com/watch?v=XDzEpEKF25c
 ---
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray that you are established in all the truths of God's word taught today.
-
-Welcome back to the Pleros podcast; this is your daily dose of God's word transforming you to fulfill God's purpose. We've been looking at the mind of man recently, and we must remind ourselves that God's purpose is sonship. I trust that you are walking daily in fellowship with our Father and pursuing the natural and spiritual assignments He has given to us.
-
 ## Pursuing Maximum Productivity in God's Purpose
 
 At the core of the roadmap for our purpose is the need for maximum productivity. You need to be maximally productive and give your all, spending all the time required for each assignment. Don't just let the time pass you by or be found merely marking presence; you must do the real thing.

@@ -6,9 +6,7 @@ url: https://www.youtube.com/watch?v=pfLV-EG0QrU
 ---
 # The Mind of Man (Part 4)
 
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
-
-Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. Presently, we're looking at the mind of man, which is such an important teaching. We have been able to introduce the subject matter to a very good degree, seeing what God's purpose is regarding sonship and our assignments as heirs.
+Presently, we're looking at the mind of man, which is such an important teaching. We have been able to introduce the subject matter to a very good degree, seeing what God's purpose is regarding sonship and our assignments as heirs.
 
 We have proceeded from that to see the roadmap for the pursuit of God's purpose. This unfolds through a daily life of devotion where our natural and spiritual assignments are revealed. However, having the knowledge of what God's purpose is and even seeing the roadmap will not cut it. We need to actually fulfill it and bear the burden, which is where we see the need for growth.
 

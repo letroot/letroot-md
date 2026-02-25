@@ -4,9 +4,7 @@ date: 2026-02-25
 episode: "The Place of the Gospel in your Life (Part 2)"
 url: https://www.youtube.com/watch?v=2gXfHVAYG2A
 ---
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
-
-All right, brothers and sisters, welcome to episode two of the Pleros podcast. We're continuing from where we stopped, looking at the place of the gospel in our lives. We are talking about the different ways people view the gospel, and how sometimes people have a less than appropriate view of it. Some just see it as a one-time event saving them from hell, sin, and death, while others see it merely as a tool to solve problems when they arise.
+We're continuing from where we stopped, looking at the place of the gospel in our lives. We are talking about the different ways people view the gospel, and how sometimes people have a less than appropriate view of it. Some just see it as a one-time event saving them from hell, sin, and death, while others see it merely as a tool to solve problems when they arise.
 
 We have already seen from the last episode that the place of the gospel in our life is the place of truth. According to Ephesians 1:13, the gospel is the word of truth; you trusted after you heard that word of truth, the gospel of your salvation. If the place of the gospel in our lives is that of truth, then it means it is always right. This is the first thing we should recognize: even where we have assumed a particular way about something, if the gospel indeed is truth, then it is right.
 
@@ -32,4 +30,4 @@ The natural world around us bears witness and leads to the conclusion of the rea
 
 There are two things people see in the world that lead to the conclusion of God: its finite nature and its contingency. Because the world is finite and had a beginning, it must have a cause that is equal to or greater than itself. When you see an effect like a phone or a book, you automatically recognize it required a cause. Since the natural world is not infinite, we must reason that an entity with equal or greater power brought it forth.
 
-Furthermore, the world is contingent, meaning it is not a "necessary" existence and could have not existed at all. Because we witness a world that contains intelligence, character, and morality, the cause must also possess these traits in equal or greater measure. We are therefore talking about a personal being with supreme intelligence and character. The first thing the gospel shows us is the reality of God, and the evidence of the world gives us no reason to doubt it. Catch you on the next one as we see the other claims.
+Furthermore, the world is contingent, meaning it is not a "necessary" existence and could have not existed at all. Because we witness a world that contains intelligence, character, and morality, the cause must also possess these traits in equal or greater measure. We are therefore talking about a personal being with supreme intelligence and character. The first thing the gospel shows us is the reality of God, and the evidence of the world gives us no reason to doubt it.

@@ -6,9 +6,7 @@ url: https://www.youtube.com/watch?v=tVyuPNzKC7E
 ---
 # The Mind of Man (Part 6)
 
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. 
-
-All right, welcome to another episode of the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We'll be looking at the mind of man, and we are doing that on the foundation of our study on God's purpose. We have seen that God's purpose is sonship—to be God's child and to be God's heirs. This means we are called to a life of fellowship with God where we walk in His nature and character, as well as a life of pursuit of His assignments given to us. That's what we do with our lives daily.
+We'll be looking at the mind of man on the foundation of our study on God's purpose. We have seen that God's purpose is sonship—to be God's child and to be God's heirs. This means we are called to a life of fellowship with God where we walk in His nature and character, as well as a life of pursuit of His assignments given to us. That's what we do with our lives daily.
 
 ## The Roadmap of God's Purpose and Growth
 
@@ -40,4 +38,4 @@ In 2 Corinthians 5:16, it says our judgment should be based more on the inward m
 
 Stop being overwhelmed with the thought of being female or male or a certain nationality. Some people are so trained in their minds to think of themselves from the outward man that they don't think, "I am a new creation." They think about the power of their culture or their background instead. I am not saying ignore who you are outwardly, as you need to act accordingly in a scriptural sense. However, we must think from the perspective of the inward man more than the outward man. 
 
-We should be able to think properly about gender, race, and class in the light of the new creation. If you have made the progress of seeing that you are at the core the inward man, then you have made real progress. We are a body with a brain and also a spirit with a mind. This connection between the body with its brain and the spirit with its mind is something I want to build on in the next episode. We will look at the account of the rich man and Lazarus to better appreciate the place of the inward man. See you on that one. Amen.
+We should be able to think properly about gender, race, and class in the light of the new creation. If you have made the progress of seeing that you are at the core the inward man, then you have made real progress. We are a body with a brain and also a spirit with a mind. This connection between the body with its brain and the spirit with its mind is something I want to build on in the next episode. We will look at the account of the rich man and Lazarus to better appreciate the place of the inward man.

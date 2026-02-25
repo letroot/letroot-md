@@ -6,8 +6,6 @@ url: https://www.youtube.com/watch?v=cOZq7Uv91r4
 ---
 # The Mind of Man (Part 1)
 
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
-
 Welcome back to the podcast. We are here to give you your daily dose of God's word that transforms you to fulfill God's purpose. Today we are taking on another subject matter that is in the same line of our study. I will try to do a recap and introduction to what we will be looking at today, which is the mind of man.
 
 ## Recapping God's Purpose: Sonship and Fellowship

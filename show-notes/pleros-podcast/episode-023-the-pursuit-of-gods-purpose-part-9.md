@@ -8,8 +8,6 @@ url: https://www.youtube.com/watch?v=TgWo8lYqSXQ
 
 ## The Foundation of Sonship and Purpose
 
-Welcome to the Pleros podcast, your daily dose of God's word transforming you to fulfill His purpose. Within each episode, we try to lay one block upon the other to give you a full view of God's intent and how you ought to walk in it. The Bible is written to renew your mind and transform you, and we are currently studying the pursuit of God's purpose itself. 
-
 Based on Ephesians 1:9, we have seen that God's purpose is rooted in sonship. Romans 8:15-17 clarifies that this means He wants children and heirs, desiring us to be in fellowship with Him. As children, we possess His very life and nature, allowing us to relate to Him with a certainty and familiarity that removes any doubt about our value. He reproduces His very seed in us so that we can walk in His nature and character.
 
 ## Navigating Our Natural Assignment
@@ -22,7 +20,7 @@ This natural assignment can be summed up in five key principles. First, you star
 
 ## The Distinction of the Spiritual Assignment
 
-We now proceed to our spiritual assignment, which is something we should fully recognize as a specific lot given to us. There is a real difference between the natural and spiritual assignments in many ways. While the natural assignment allows for more personal disposition, the spiritual assignment has its own rules and its own direction for how it unfolds. 
+We now proceed to our spiritual assignment, which is something we should fully recognize as a specific lot given to us. There is a real difference between the natural and spiritual assignments in many ways. While the natural assignment allows for more personal disposition, the spiritual assignment has its own rules and its own direction for how it unfolds.
 
 You could have a belief system that allows you to have a closed mind toward your natural work, but you cannot escape the role of the Spirit. However, it is different when we get to our spiritual assignment. This is not an "as you desire" type of situation. It has its own intentional path that God has for us, which we can see reflected in the sense of inheritance mentioned in the book of Acts.
 

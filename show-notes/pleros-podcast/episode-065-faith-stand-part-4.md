@@ -6,17 +6,13 @@ url: https://www.youtube.com/watch?v=WCYcQsQAm8o
 ---
 # Faith Stand (Part 4)
 
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
-
-Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. Now we have been studying on the faith stand, and I believe it's something that is going to bless you tremendously. I trust it already has, and hopefully you can recall some of the things we have already said. 
-
-We have seen what His purpose for our life is, the road map of walking in that purpose, and the vital need for growth. We have seen that growth happens in the mind, specifically touching our work and our conduct. We need to think through issues and meditate on them to ensure our convictions are right. We concluded that we walk or "do" the word as a result of faith.
+We have been studying the faith stand, exploring God's purpose for our lives, the roadmap for walking in that purpose, and the vital need for growth. Growth happens in the mind, impacting our work and our conduct. We need to think through issues and meditate on them to ensure our convictions are right. We walk or "do" the word as a result of faith.
 
 ## The Implanted Word: Seed vs. Process
 
-In James chapter 1, verse 21, we are told to receive the implanted word. The word of God is like a seed that needs to grow, which highlights a distinction between salvation and spiritual growth. In salvation, you receive the seed of God's word and you are saved instantly. However, when it comes to your walk, hearing a truth is just the beginning of a growth process.
+In James 1:21, we are told to receive the implanted word. The word of God is like a seed that needs to grow, highlighting a distinction between salvation and spiritual growth. In salvation, you receive the seed of God's word and you are saved instantly. However, when it comes to your walk, hearing a truth is just the beginning of a growth process.
 
-Whether it is a truth about healing, being loved in Christ, or being dead to sin, it is planted on your heart as a seed. Your experience of that truth requires growth, which is unlike the instant nature of the new birth. While the spirit is received at the instance of salvation, the implanted word acts as a seed that grows to change your life and save your soul. 
+Whether it is a truth about healing, being loved in Christ, or being dead to sin, it is planted on your heart as a seed. Your experience of that truth requires growth, unlike the instant nature of the new birth. While the spirit is received at the instance of salvation, the implanted word acts as a seed that grows to change your life and save your soul.
 
 When we talk about the soul here, we are often referring to the mind. It is the mind that the word of God affects to change your life. In James 1:22, we are exhorted to be doers of the word and not hearers only, deceiving ourselves. This deception means "reckoning aside yourself," where you hear God's word and agree with it but maintain a different reckoning in practice.
 
@@ -42,4 +38,4 @@ What makes for growth is the faith stand—the act of reckoning and presenting y
 
 Romans 10:9 states that if you confess with your mouth and believe in your heart that God raised Jesus from the dead, you will be saved. With the heart—meaning the mind—one believes, and with the mouth, confession is made. When the truth is preached and you understand it, you affirm it personally. That affirmation, in whatever form it takes, is what saves you.
 
-This principle of faith—involving both the heart and the mouth—is the same principle at work in our growth. Jesus taught in Mark 11 that faith is of the heart and the mouth. We will wrap up here, but in future sessions, we will look at how the faith stand works to transform us. We will explore why presenting ourselves is our "reasonable worship" and how it differs from initial salvific faith.
+This principle of faith—involving both the heart and the mouth—is the same principle at work in our growth. Jesus taught in Mark 11 that faith is of the heart and the mouth.

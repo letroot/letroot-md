@@ -6,9 +6,7 @@ url: https://www.youtube.com/watch?v=QnSUcIkYtSw
 ---
 # Introduction and the Foundation of Purpose
 
-Welcome to the Pleros podcast, a daily dose of God's word transforming you to fulfill God's purpose. We have previously explored the place of the gospel as the place of truth and the reality of God's purpose. Now, we are settling into a new subject: the pursuit of God's purpose. Now that we know why we are here and what God made us for, we must ask ourselves what we are supposed to do next.
-
-The answer is not found in general natural wisdom; instead, we can trust God's word to give us objective direction. In the last episode, I emphasized the void of meaning and purpose with which we are existentially designed. We must ensure that God truly fills that void, rather than allowing it to be filled by the pressures of life or the cares of the world.
+Now that we know why we are here and what God made us for, we must ask ourselves what we are supposed to do next. The answer is not found in general natural wisdom; instead, we can trust God's word to give us objective direction. In the last episode, I emphasized the void of meaning and purpose with which we are existentially designed. We must ensure that God truly fills that void, rather than allowing it to be filled by the pressures of life or the cares of the world.
 
 ## Guarding the Heart Against Natural Ambition
 

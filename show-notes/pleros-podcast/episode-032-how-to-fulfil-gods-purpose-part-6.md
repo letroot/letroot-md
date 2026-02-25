@@ -4,12 +4,6 @@ date: 2026-02-25
 episode: "How to Fulfil God's Purpose (Part 6)"
 url: https://www.youtube.com/watch?v=NUL2AN3zrYI
 ---
-# How to Fulfil God's Purpose (Part 6)
-
-Welcome to the Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray that you are established in all the truths of God's word taught today. Let's get right into it. 
-
-Welcome back again to the Pleros podcast. It's your daily dose of God's word transforming you to fulfill God's purpose for your life. We have established that God's purpose for your life is sonship, as seen in Ephesians 1:9 and Ephesians 1:5. We have also seen what sonship means particularly from Romans 8:15-17. 
-
 ## Understanding Our Inheritance as Sons
 
 Romans 8:15-17 makes it clear that we have received the spirit of sonship, which is often called adoption. While "adoption" refers to the position we occupy, we are natural children of God. That is why the Spirit gives witness or evidence that we are children of God and heirs of God. When you are a son of God, it is not a matter of gender. 
@@ -46,6 +40,4 @@ You have not "so learned Christ" if you are lacking these things or acting like 
 
 The main thing on your mind that needs to change is what you think about yourself. Verse 22 says to "put off concerning your former conversation the old man," which grows corrupt according to deceitful lusts. You must be renewed in the spirit of your mind and "put on the new man." This is the core truth meant to be on our mind: the truth about who we are. 
 
-The new man is created after God in righteousness and holiness of truth. You are no longer that old man alienated from the life of God; you are a new man having the very righteousness and holiness of God. When you understand this identity, you can walk in the reality of who you truly are. We are reaching a high point on this issue of how we fulfill God's purpose, and it all centers on the state of your mind. 
-
-We are going to continue in the next episode on that. Thank you for listening.
+The new man is created after God in righteousness and holiness of truth. You are no longer that old man alienated from the life of God; you are a new man having the very righteousness and holiness of God. When you understand this identity, you can walk in the reality of who you truly are. We are reaching a high point on this issue of how we fulfill God's purpose, and it all centers on the state of your mind.
