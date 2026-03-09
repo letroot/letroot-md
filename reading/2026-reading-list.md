@@ -39,6 +39,11 @@
 15. *10X Rule* by Grant Cardone
 16. *Zero to One* by Peter Thiel (Implied from context of similar books)
 17. *The Algebra of Wealth* by Scott Galloway
+18. *Veeck—As in Wreck: The Autobiography of Bill Veeck* by Bill Veeck & Ed Linn
+19. *The Hustler’s Handbook* by Bill Veeck & Ed Linn
+20. *Thirty Tons a Day* by Bill Veeck & Ed Linn
+21. *The Art of Money Getting* by P. T. Barnum
+22. *There’s a Customer Born Every Minute* by Joe Vitale
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
