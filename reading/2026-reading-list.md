@@ -44,6 +44,12 @@
 20. *Thirty Tons a Day* by Bill Veeck & Ed Linn
 21. *The Art of Money Getting* by P. T. Barnum
 22. *There’s a Customer Born Every Minute* by Joe Vitale
+23. *The Personal MBA* by Josh Kaufman
+24. *The E-Myth Revisited* by Michael E. Gerber
+25. *Financial Intelligence for Entrepreneurs* by Karen Berman & Joe Knight
+26. *Good Strategy/Bad Strategy* by Richard Rumelt
+27. *Starting a Business All-in-One For Dummies*
+28. *The Lean Startup* by Eric Ries
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
