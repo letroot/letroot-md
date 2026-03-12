@@ -75,6 +75,7 @@
 12. *The Holy Grail of Investing* by Tony Robbins
 
 ## Personal Development / Mindset
+13. *Beyond Belief: The Science-Backed Way to Stop Limiting Yourself and Achieve Breakthrough Results* by Nir Eyal
 1. *Atomic Habits* by James Clear
 2. *The Mountain is You* by Brianna Wiest
 3. *Almanack of Naval Ravikant* by Eric Jorgenson
