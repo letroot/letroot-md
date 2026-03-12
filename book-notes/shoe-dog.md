@@ -46,3 +46,7 @@ As an entrepreneur, this is a major target to aim for. You have to constantly as
 - How do we talk and present ourselves to them (packaging, advertising, etc.)?
 
 Getting this emotional resonance right is a massive competitive advantage.
+
+## Notable Quotes
+
+> “It seems wrong to call it ‘business.’ It seems wrong to throw all those hectic days and sleepless nights, all those magnificent triumphs and desperate struggles, under that bland, generic banner: business. What we were doing felt like so much more. Each new day brought fifty new problems, fifty tough decisions that needed to be made, right now, and we were always acutely aware that one rash move, one wrong decision could be the end. The margin for error was forever getting narrower, while the stakes were forever creeping higher—and none of us wavered in the belief that ‘stakes’ didn’t mean ‘money.’ For some, I realize, business is the all-out pursuit of profits, period, full stop, but for us business was no more about making money than being human is about making blood. Yes, the human body needs blood. It needs to manufacture red and white cells and platelets and redistribute them evenly, smoothly, to all the right places, on time, or else. But that day-to-day business of the human body isn’t our mission as human beings. It’s a basic process that enables our higher aims, and life always strives to transcend the basic processes[…]”
