@@ -26,3 +26,9 @@ Another critical takeaway is the absolute importance of talent, especially in th
 The collective impact of the early team cannot be overstated. Without key figures like Woodell, Bowerman, Strasser, and Hayes, Nike simply wouldn't have become the powerhouse it did. 
 
 Getting talent right is paramount. You need people who are hungry, dependable, competent, and possess high energy and high integrity. They must be ready to go the long haul with you, and as a founder, you have to be able to sell them on a vision. Ultimately, talent ranks as the number one most important element of business success.
+
+## Financial Intelligence and Engineering
+
+A recurring theme in the book is how important it is to understand finances and financial engineering. Despite their rapid growth, Nike was constantly on the brink of bankruptcy and running out of money. This highlights the absolute necessity of solid financial intelligence.
+
+As an entrepreneur, you have to take this seriously. This means sitting down and studying how finances actually work—including concepts like stock, equity, profit and loss, accounting, and assets. You cannot afford to be ignorant in this area.
