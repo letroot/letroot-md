@@ -32,3 +32,17 @@ Getting talent right is paramount. You need people who are hungry, dependable, c
 A recurring theme in the book is how important it is to understand finances and financial engineering. Despite their rapid growth, Nike was constantly on the brink of bankruptcy and running out of money. This highlights the absolute necessity of solid financial intelligence.
 
 As an entrepreneur, you have to take this seriously. This means sitting down and studying how finances actually work—including concepts like stock, equity, profit and loss, accounting, and assets. You cannot afford to be ignorant in this area.
+
+## Building an Emotional Connection
+
+Another profound takeaway from *Shoe Dog* is the necessity of having a product and a brand that people genuinely love. A defining moment was at a sporting goods show where salespeople were willing to try the new (and at the time, lower quality) Nikes simply because they trusted the "Blue Ribbon guys" and knew they were honest. 
+
+Building an emotional connection with customers is critical for massive success (similar to brands like Apple, Coca-Cola, or Google). Nike succeeded by casting themselves as a brand that is in your corner, pushing you to do hard things and dare to go past your limits. That specific messaging created a profound resonance.
+
+As an entrepreneur, this is a major target to aim for. You have to constantly ask:
+- Do people love the brand?
+- How do we make them feel?
+- Do they think about us after they've left?
+- How do we talk and present ourselves to them (packaging, advertising, etc.)?
+
+Getting this emotional resonance right is a massive competitive advantage.
