@@ -18,3 +18,11 @@ Great entrepreneurs don't need a guarantee that something *will* work; they only
 This requires a shift from a passive mindset ("this has no chance of working") to an active one. It’s not about leaving things to chance; it's about seeing the slight possibility that people might want what you're building. 
 
 You only need a "mustard seed" of belief. From there, you take full responsibility for growing that seed into a mighty tree. The real work of an entrepreneur is figuring out how to nurture, fertilize, and build that initial spark into something real.
+
+## The Absolute Importance of Talent
+
+Another critical takeaway is the absolute importance of talent, especially in the early stages of expansion. A prime example is Johnson, the first employee of Blue Ribbon Sports (which later became Nike). It was his initiative to advertise and market aggressively that laid the groundwork for their growth. 
+
+The collective impact of the early team cannot be overstated. Without key figures like Woodell, Bowerman, Strasser, and Hayes, Nike simply wouldn't have become the powerhouse it did. 
+
+Getting talent right is paramount. You need people who are hungry, dependable, competent, and possess high energy and high integrity. They must be ready to go the long haul with you, and as a founder, you have to be able to sell them on a vision. Ultimately, talent ranks as the number one most important element of business success.
