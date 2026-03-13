@@ -88,6 +88,9 @@
 10. *The Intellectual Life* by A.G. Sertillanges
 11. *On Settling* by Robert Goodin
 12. *38 letters of Rockefeller to his son* by John D. Rockefeller
+13. *Beyond Belief* by Nir Eyal
+14. *Hooked - How to Build Habit Forming Products* by Nir Eyal
+15. *Indistractable* by Nir Eyal
 
 ## Science / Health
 1. *Body by Science* by Doug McGuff
