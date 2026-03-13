@@ -36,6 +36,16 @@ Inspired loosely by Amazon's 14 leadership principles (and playfully choosing 11
 10. **Uphold the *Highest* Standards** - Not just "high" standards, because everyone defines "high" differently.
 11. **Always Plus the Experience** - Constantly asking how to add that extra 1% to make it magical.
 
+
+## Rigorous Monitoring of Metrics
+Rather than obsessing over traditional financial KPIs, Cole rigorously monitors the metrics that directly impact the customer experience. He views revenue simply as a "scorecard" that shows if they are doing the right things. 
+
+Key experience metrics he tracks include:
+*   **Wait times for merchandise:** His goal is to get everyone through the merch line in under 10 minutes. When stadium logistics made this difficult, they invested in massive "outdoor mall" tents to improve throughput.
+*   **Time to feed fans:** At their home stadium in Savannah, every fan can get their all-you-can-eat food within 5 minutes (down from an hour in their early days).
+*   **Entertainment density:** Tracking the speed of the game, the number of trick plays, and "ball four sprints" per game.
+*   *Note:* In contrast to his obsession with these fan metrics, Cole says he only holds one financial meeting a year to review the budget and decide where to reinvest.
+
 ## Coach's Corner
 As a technical SaaS founder, it's easy to get bogged down in product features and code while neglecting the end-user experience. Jesse Cole's approach is a masterclass in [[User Experience (UX)]] and [[Marketing]]. Consider how you can become a "friction fighter" in your own SaaS—where are the annoying "ticket fees" or "wait times" in your onboarding? Furthermore, his daily habit of generating 10 new ideas ("winning the morning") is a powerful mental model. Building a great SaaS isn't just about writing code; it's about building a "world" your users want to be a part of, much like Banana Ball. Don't be afraid to do the "exact opposite" of your competitors to stand out.
 
