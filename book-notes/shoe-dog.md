@@ -4,7 +4,6 @@ author: "Phil Knight"
 date: "2026-03-12"
 tags: ["book-notes", "entrepreneurship", "mindset"]
 ---
-
 # Shoe Dog by Phil Knight
 
 ## Tenacity and the Entrepreneurial Mindset
