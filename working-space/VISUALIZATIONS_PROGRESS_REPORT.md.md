@@ -1,4 +1,3 @@
-																											# Visualizations Progress Report
 
 ## Overview
 

@@ -91,6 +91,8 @@
 13. *Beyond Belief* by Nir Eyal
 14. *Hooked - How to Build Habit Forming Products* by Nir Eyal
 15. *Indistractable* by Nir Eyal
+16. *Choose Yourself* by James Altucher
+17. *The Miracle Morning* by Hal Elrod
 
 ## Science / Health
 1. *Body by Science* by Doug McGuff
