@@ -47,7 +47,9 @@ Key experience metrics he tracks include:
 *   *Note:* In contrast to his obsession with these fan metrics, Cole says he only holds one financial meeting a year to review the budget and decide where to reinvest.
 
 ## Coach's Corner
-As a technical SaaS founder, it's easy to get bogged down in product features and code while neglecting the end-user experience. Jesse Cole's approach is a masterclass in [[User Experience (UX)]] and [[Marketing]]. Consider how you can become a "friction fighter" in your own SaaS—where are the annoying "ticket fees" or "wait times" in your onboarding? Furthermore, his daily habit of generating 10 new ideas ("winning the morning") is a powerful mental model. Building a great SaaS isn't just about writing code; it's about building a "world" your users want to be a part of, much like Banana Ball. Don't be afraid to do the "exact opposite" of your competitors to stand out.
+As a young man building a business, it's easy to get tunnel vision—obsessing over the technical details of your SaaS or the day-to-day grind, while losing sight of the bigger picture. Jesse Cole's approach is a masterclass in treating your business, your marketing, and your life as an interconnected "experience." Whether it's your product or how you present your brand, consider how you can become a "friction fighter." Where are you making it too hard for people to buy from you, support you, or understand your vision? 
+
+Furthermore, his daily habit of generating 10 new ideas is a powerful mental model for overall productivity and personal growth. Building a great SaaS—and a great life—isn't just about executing tasks; it's about building a "world" that others want to be a part of. Don't be afraid to do the "exact opposite" of your peers to stand out and build real momentum.
 
 ## The 6-Step Morning Routine (SAVERS)
 A concept often associated with "winning the morning" and personal development is the 6-step SAVERS routine from *The Miracle Morning* by Hal Elrod:
