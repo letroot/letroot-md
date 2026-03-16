@@ -47,9 +47,15 @@ Key experience metrics he tracks include:
 *   *Note:* In contrast to his obsession with these fan metrics, Cole says he only holds one financial meeting a year to review the budget and decide where to reinvest.
 
 ## Coach's Corner
-As a young man building a business, it's easy to get tunnel vision—obsessing over the technical details of your SaaS or the day-to-day grind, while losing sight of the bigger picture. Jesse Cole's approach is a masterclass in treating your business, your marketing, and your life as an interconnected "experience." Whether it's your product or how you present your brand, consider how you can become a "friction fighter." Where are you making it too hard for people to buy from you, support you, or understand your vision? 
+As a young man building a business, it's easy to get tunnel vision—obsessing over the technical details of your SaaS or the day-to-day grind, while losing sight of the bigger picture. Jesse Cole's story is a masterclass in treating your business, your marketing, and your life as an interconnected "experience."
 
-Furthermore, his daily habit of generating 10 new ideas is a powerful mental model for overall productivity and personal growth. Building a great SaaS—and a great life—isn't just about executing tasks; it's about building a "world" that others want to be a part of. Don't be afraid to do the "exact opposite" of your peers to stand out and build real momentum.
+**On Marketing & Removing Friction:**
+Whether it's your product or how you present your brand, consider how you can become a "friction fighter" in everything you do. Where are you making it too hard for people to buy from you, support you, or understand your vision? Stop marketing like everyone else. If your peers are doing standard cold outreach or blending into the noise, what's the "exact opposite" you can do to stand out? Cole built a billion-dollar brand by making the product unforgettable before he worried about monetizing every interaction. Focus on grabbing attention first—build a "world" around your product that others actively want to be part of.
+
+**On Productivity & Winning the Morning:**
+You can't build that world if your own mind is chaotic or reactive. This is where mastering your morning becomes your ultimate leverage for productivity. Implement the 6-step SAVERS routine (Silence, Affirmations, Visualization, Exercise, Reading, Scribing) to set the tone for your day. Before the world demands your attention, you have to claim it for yourself. 
+
+Pair that discipline with Cole's daily habit of generating 10 new ideas ("Idea Muscle"). If you spend your morning scribing 10 ideas a day—about marketing angles, product features, or life improvements—that's 3,650 ideas a year. You only need a few of them to hit big to change the trajectory of your business and your life. Building a great SaaS—and a great life—isn't just about executing tasks; it's about continuous, disciplined creativity.
 
 ## The 6-Step Morning Routine (SAVERS)
 A concept often associated with "winning the morning" and personal development is the 6-step SAVERS routine from *The Miracle Morning* by Hal Elrod:
