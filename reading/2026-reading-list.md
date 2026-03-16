@@ -50,6 +50,7 @@
 26. *Good Strategy/Bad Strategy* by Richard Rumelt
 27. *Starting a Business All-in-One For Dummies*
 28. *The Lean Startup* by Eric Ries
+29. *Traction*
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
@@ -93,6 +94,8 @@
 15. *Indistractable* by Nir Eyal
 16. *Choose Yourself* by James Altucher
 17. *The Miracle Morning* by Hal Elrod
+18. *Driven*
+19. *Success Affirmations*
 
 ## Science / Health
 1. *Body by Science* by Doug McGuff
