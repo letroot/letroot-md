@@ -47,7 +47,7 @@ Oh, my body is kept in health. Toxins are flushed out. All my organs are caused 
 ## 8. Revelation Gifts & Spiritual Discernment
 I receive the working of God's Spirit in me that causes me to be highly effective and accurate in the revelation gifts of the Spirit. I walk in the word of knowledge, the word of wisdom, and the discerning of spirits with absolute clarity. 
 
-My spiritual eyes and ears are open and finely tuned to the frequency of the Holy Ghost. I perceive the thoughts, intents, and root causes of situations instantly. I am not ignorant of the devices of the enemy, nor am I blind to the orchestrations of God.
+My spiritual eyes and ears are open and finely tuned to the frequency of the Holy Ghost. I am in tune to pick up details in sights, sounds, and knowings of the past, present, and future. I perceive the thoughts, intents, and root causes of situations instantly. I am not ignorant of the devices of the enemy, nor am I blind to the orchestrations of God.
 
 Through the revelation of the Spirit, I minister with precision, bringing divine solutions, exposing hidden things, and speaking exactly what the Father is saying in every moment. I am a sharp and effective instrument of God's revelation today and always.
 
