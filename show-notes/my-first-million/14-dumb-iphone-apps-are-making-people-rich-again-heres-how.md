@@ -24,7 +24,7 @@ type: interview
 
 ## Coach's Corner
 **On Identifying the "Lollapalooza Effect":**
-You need to recognize when multiple tailwinds converge to reopen a "dead" market. The return of the [[iOS]] gold mine isn't just about apps; it's the intersection of [[AI]] (lowering COGS) and [[TikTok]] (lowering CAC). When you see a "dumb" app like a push-up blocker doing $30k/month, don't mock it—analyze the distribution. As a [[SaaS]] builder, your goal is to find these asymmetric opportunities where the cost of failure is a single viral video, but the upside is a $70M/year business like [[Cali]].
+You need to recognize when multiple tailwinds converge to reopen a "dead" market. The return of the [[iOS]] gold mine isn't just about apps; it's the intersection of [[AI]] (lowering COGS) and [[TikTok]] (lowering CAC). When you see a "dumb" app like a push-up blocker doing $30k/month, don't mock it—analyze the distribution. As a [[SaaS]] builder, your goal is to find these asymmetric opportunities where the cost of failure is a single viral video, but the upside is a $70M/year business like [[CalAI]].
 
 **On Systematizing Freedom:**
 If your business requires you to be on a "fighter or flight" cortisol high every Monday morning, you haven't built a business; you've built a high-stress job. Transitioning from a [[Solopreneur]] to a business owner requires an operating system like [[EOS]]. Start with the [[L10 Meeting]] and [[Rocks]]. By limiting yourself to two major goals every six weeks, you remove the "urgency culture" and focus on [[Leverage]]. Remember: systems manage the headache of growth, they don't necessarily create it. Find the "vein of oil" first through brute force, then build the rig to pump it efficiently.
