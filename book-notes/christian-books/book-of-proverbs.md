@@ -9,7 +9,11 @@ tags:
 ---
 # The Book of Proverbs
 
-
+> **AI Instructions Noted:**
+> - Add transcribed notes to the Book of Proverbs markdown file.
+> - Create a heading for Chapter 5 and start the notes from there.
+> - Format and clean up the transcripts into readable paragraphs.
+> - Share the resulting notes to the "Lessons from Proverbs" Telegram group.
 
 ## Notes
 
