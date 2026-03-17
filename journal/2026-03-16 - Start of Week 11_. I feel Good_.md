@@ -1,15 +1,15 @@
 ---
 uuid: 89C4B9A0494147298B587DEA5DD42A27
 journal: Journal
-title: Start of Week 11\. I feel Good\.
+title: # Start of Week 11\. I feel Good\.
 created: 2026-03-16T08:32:48+01:00
-modified: 2026-03-16T09:09:20+01:00
+modified: 2026-03-16T11:57:39+01:00
 starred: false
 tags:
   -
 ---
 
-Start of Week 11. I feel Good.
+# Start of Week 11. I feel Good.
 Started the Miracle Morning routine \(see the Savannah Banana episode in my-first-million where Jesse Cole plugs the book\).
 
 It goes thus: 
