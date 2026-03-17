@@ -27,7 +27,18 @@ This is very pointed because it doesn't just apply to the specific sin of adulte
 
 The core lesson is that pleasure should not override reason. If something feels really good now, always think about the consequence. That is wisdom: considering what an action implies and how it will affect the future. Being future-minded in decision-making is a sign of adulthood. You have to take responsibility for your life and your actions, consistently asking whether you are doing things that yield the best possible results in life, regardless of how you or others feel about it in the moment.
 
+### Chapter 7: The Relentlessness of Temptation
+
+Proverbs Chapter 7 vividly illustrates the relentless nature of temptation. Reflecting on verse 13, where the adulterous woman catches and kisses the young man, saying she has peace offerings and has paid her vows, it becomes clear that the temptation for sin is often aggressive. It comes at you hard, presenting an almost physical assault on your emotions and creating a strong urge to do the wrong thing.
+
+In the face of such relentless temptation, you must always maintain your forward-looking reason and rationality. The critical question to constantly ask yourself is: "Is this the right thing to do?" This question must anchor you. You have to consider how your actions will affect your future, your wife, your children, and your family. 
+
+You must wear that question at every point in time so that your flesh does not get the better of you. True wisdom is thinking about the next day, the next week, the next month, and the next year, consistently filtering your decisions through the lens of whether it is the right thing to do.
+
 ## Notable Quotes
+- "The temptation for sin is often aggressive... an almost physical assault on your emotions."
+- "You must always maintain your forward-looking reason, rationality: Is this the right thing to do?"
+- "Think about the next day, the next week, the next month, the next year. Is this the right thing to do?"
 - "Pleasure should not override reason."
 - "If something feels really good now, always think about the consequence. That is wisdom."
 - "Being future-minded in decision-making is a sign of adulthood. You have to take responsibility for your life and your actions."
