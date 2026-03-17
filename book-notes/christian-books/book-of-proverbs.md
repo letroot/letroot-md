@@ -35,7 +35,18 @@ In the face of such relentless temptation, you must always maintain your forward
 
 You must wear that question at every point in time so that your flesh does not get the better of you. True wisdom is thinking about the next day, the next week, the next month, and the next year, consistently filtering your decisions through the lens of whether it is the right thing to do.
 
+### Chapters 8 & 6: Wisdom as the Blueprint of the World
+
+Proverbs Chapter 8 reveals that Wisdom is the very foundation of how the world works. In verses 22-23, Wisdom declares, "The Lord possessed me in the beginning of his way, before his works of old. I was set up from everlasting, from the beginning, or ever the earth was." This demonstrates that the world was fashioned after a specific way of being—a set of existential laws.
+
+Just as building a house out of wood establishes inherent rules for that structure (e.g., fire will burn it down, moisture will affect it, it won't be magnetic), God has patterned the world after His wisdom. If you attempt to navigate the world without following its foundational truth, you will not truly walk in life. 
+
+This idea connects powerfully to Chapter 6, verse 23: "For the commandment is a lamp; and the law is light; and reproofs of instruction are the way of life." When you learn how God has ordered the world to work, and you follow the counsel of His wisdom and truth, you find life and light. This applies to every area: finances, relationships, business, and ministry. Ultimately, our greatest need is the understanding of the truth. If you go after that, you will walk in life.
+
 ## Notable Quotes
+- "Wisdom is saying, 'I am how the world works... I am what the world was fashioned after.'"
+- "There is a way God has set up the world to work. If you don't walk by the truth... you will not walk in life."
+- "What I need the most is understanding of the truth. Go after that, and you will walk in life."
 - "The temptation for sin is often aggressive... an almost physical assault on your emotions."
 - "You must always maintain your forward-looking reason, rationality: Is this the right thing to do?"
 - "Think about the next day, the next week, the next month, the next year. Is this the right thing to do?"
