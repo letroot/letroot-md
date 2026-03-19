@@ -142,7 +142,55 @@ Diligence would yield wealth. Fix your diligence. Diligence is doing what is req
 
 ### Chapter 13
 
-*(Notes for Chapter 13 were empty/cut off. Ready for the next part whenever you are!)*
+**Verse 1**
+> *"A wise son heeds his father’s instruction, But a scoffer does not listen to rebuke." (Proverbs 13:1, NKJV)*
+
+Be a fiend for truth. Anywhere you hear the truth being taught or preached, go there and learn. Love rebuke. Love to be told what is right.
+
+**Verse 4**
+> *"The soul of a lazy man desires, and has nothing; But the soul of the diligent shall be made rich." (Proverbs 13:4, NKJV)*
+
+**Verse 5**
+> *"A righteous man hates lying, But a wicked man is loathsome and comes to shame." (Proverbs 13:5, NKJV)*
+
+Hate lying.
+
+**Verse 8**
+> *"The ransom of a man’s life is his riches, But the poor does not hear rebuke." (Proverbs 13:8, NKJV)*
+
+To have money is of God o!
+
+**Verse 24**
+> *"He who spares his rod hates his son, But he who loves him disciplines him promptly." (Proverbs 13:24, NKJV)*
+
+To not correct people is to hate them.
+
+### Chapter 14
+
+**Verse 3**
+> *"In the mouth of a fool is a rod of pride, But the lips of the wise will preserve them." (Proverbs 14:3, NKJV)*
+
+Your words will show your pride or humility. Always check it.
+
+**Verses 20-21**
+> *"The poor man is hated even by his own neighbor, But the rich has many friends. He who despises his neighbor sins; But he who has mercy on the poor, happy is he." (Proverbs 14:20-21, NKJV)*
+
+You lose friends to your poverty, they would hide from you. That's what's played out with you.
+
+**Verse 23**
+> *"In all labor there is profit, But idle chatter leads only to poverty." (Proverbs 14:23, NKJV)*
+
+Be the guy who works hardest.
+
+**Verse 25**
+> *"A true witness delivers souls, But a deceitful witness speaks lies." (Proverbs 14:25, NKJV)*
+
+A true witness delivers souls --> telling people the truth would save their lives. Tell your wife the truth.
+
+**Verse 29**
+> *"He who is slow to wrath has great understanding, But he who is impulsive exalts folly." (Proverbs 14:29, NKJV)*
+
+Work on impulsiveness, it would cost you everything.
 
 
 ## Notable Quotes
@@ -166,3 +214,8 @@ Diligence would yield wealth. Fix your diligence. Diligence is doing what is req
 - "You have to write the vision and make it plain and work with that everyday."
 - "To be ineffective at your natural assignment is to be WICKED."
 - "Diligence is doing what is required with the requisite effort to gain the desired outcome."
+- "Be a fiend for truth. Anywhere you hear the truth being taught or preached, go there and learn."
+- "To not correct people is to hate them."
+- "Work on impulsiveness, it would cost you everything."
+- "Telling people the truth would save their lives. Tell your wife the truth."
+- "You lose friends to your poverty, they would hide from you. That's what's played out with you."
