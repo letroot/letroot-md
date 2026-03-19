@@ -54,7 +54,10 @@ Furthermore, Chapter 9 emphasizes the critical need for personal responsibility.
 This is a profound call to take responsibility for your own life. You are responsible for your life; you first owe it to yourself to walk in life and to be right with God, because ultimately, God will judge you alone. If you do not prioritize being right in everything first, before trying to please or prioritize others, you will inevitably compromise down the line. You must first ensure you are walking in truth.
 
 
-### Chapter 10
+### Chapter 10: The Righteousness of Diligence and Integrity
+
+**Summary & Takeaways:**
+Chapter 10 draws a stark line between diligence and laziness. Laziness is not just a character flaw; it is fundamentally unrighteous because it leads to poverty and limits your ability to walk in God's purpose and create value. True wisdom demands a ravenous appetite for learning—mastering everything from spiritual doctrine to practical business skills. Conversely, integrity acts as a security system for your conscience, while hidden hatred and deceit will inevitably expose a person. You must be radicalized for productivity: embrace labor, set clear goals, and secure the wealth that defends your calling.
 
 > *"He who has a slack hand becomes poor, But the hand of the diligent makes rich." (Proverbs 10:4, NKJV)*
 
@@ -88,7 +91,10 @@ The labor of the righteous leads to life. You have to love labor. Work at the th
 
 Don't hold back telling people what you are displeased with them about (e.g., your wife). It makes you a liar when you put up a front of affection and your heart is stewing in contrary emotions.
 
-### Chapter 11
+### Chapter 11: Integrity as a North Star and the Discipline of Character
+
+**Summary & Takeaways:**
+This chapter establishes integrity as the ultimate guide for decision-making. Doing what is right, regardless of the cost, provides safety and direction, whereas yielding to unbridled lust guarantees a downfall. Wisdom here is profoundly practical: it involves controlling your disposition toward others (despising no one), seeking out a multitude of counselors for safety, and avoiding the trap of becoming a surety for someone else. Ultimately, failing to execute your natural assignment effectively isn't just a weakness—it's viewed as wickedness.
 
 > *"The integrity of the upright will guide them, But the perversity of the unfaithful will destroy them." (Proverbs 11:3, NKJV)*
 
@@ -116,18 +122,23 @@ One who hates being a surety is secure. Profound.
 
 To be ineffective at your natural assignment is to be WICKED. Omo.
 
-### Chapter 12
+### Chapter 12: The Law of Labor and the Value of Diligence
+
+**Summary & Takeaways:**
+Chapter 12 reveals that action and labor are woven into the very fabric of how God ordered the world. Consistent effort inevitably yields a result. Therefore, you must always be engaged in work directed toward your goals. Diligence isn't just busyness; it is the strategic application of effort based on wisdom to gain a desired outcome. It is this specific kind of diligence that produces wealth and elevates a person to a position of leadership and rule.
 
 > *"He who tills his land will be satisfied with bread, But he who follows frivolity is devoid of understanding." (Proverbs 12:11, NKJV)*
 
 When you labor, no matter how little or much, you will have yield. That's how God has ordered the world. Something will give if you keep at it. Don't ever not be found doing something toward your goals.
 
-**Verses 24 & 27**
 > *"The hand of the diligent will rule, But the lazy man will be put to forced labor... The lazy man does not roast what he took in hunting, But diligence is man’s precious possession." (Proverbs 12:24, 27, NKJV)*
 
 Diligence would yield wealth. Fix your diligence. Diligence is doing what is required with the requisite effort to gain the desired outcome. Diligence is preceded by knowledge/wisdom—knowing what the right thing to do is.
 
-### Chapter 13
+### Chapter 13: A Fiend for Truth and the Love in Correction
+
+**Summary & Takeaways:**
+The core theme here is an aggressive pursuit of truth. You must be a "fiend for truth," actively seeking it wherever it is taught and deeply embracing rebuke as a necessary correction course. In fact, withholding correction from someone is equated with hating them. The chapter also reinforces the spiritual legitimacy of wealth—having money is of God—while warning that lying and laziness will only culminate in shame.
 
 > *"A wise son heeds his father’s instruction, But a scoffer does not listen to rebuke." (Proverbs 13:1, NKJV)*
 
@@ -147,7 +158,10 @@ To have money is of God o!
 
 To not correct people is to hate them.
 
-### Chapter 14
+### Chapter 14: The Weight of Words, Hard Work, and Self-Control
+
+**Summary & Takeaways:**
+Chapter 14 emphasizes the raw, practical consequences of our conduct. The words you speak are direct indicators of either pride or humility, and telling the truth has the literal power to save lives (including your own relationships, like your marriage). It underscores that hard work is the sole path to profit, while idle chatter breeds poverty. Finally, it highlights the heavy toll of impulsiveness and anger—lacking emotional self-control can cost you absolutely everything, while patience reflects great understanding.
 
 > *"In the mouth of a fool is a rod of pride, But the lips of the wise will preserve them." (Proverbs 14:3, NKJV)*
 
