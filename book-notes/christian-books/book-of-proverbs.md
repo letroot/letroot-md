@@ -53,6 +53,98 @@ Furthermore, Chapter 9 emphasizes the critical need for personal responsibility.
 
 This is a profound call to take responsibility for your own life. You are responsible for your life; you first owe it to yourself to walk in life and to be right with God, because ultimately, God will judge you alone. If you do not prioritize being right in everything first, before trying to please or prioritize others, you will inevitably compromise down the line. You must first ensure you are walking in truth.
 
+
+### Chapter 10
+
+**Verse 4**
+> *"He who has a slack hand becomes poor, But the hand of the diligent makes rich." (Proverbs 10:4, NKJV)*
+
+You are broke because you're too lazy and slack to create value and market that value to others. It is unrighteous to be broke. If anything is holding back your productivity—even the things of God—you have to act decisively. God does not expect me to live on debt and the goodwill of friends.
+
+"A slack hand" (*remı̂yâh*) also translates to deceit, lying. You are walking in falsehood when you say you have no way to earn money. It's always not true.
+
+**Verse 9**
+> *"He who walks with integrity walks securely, But he who perverts his ways will become known." (Proverbs 10:9, NKJV)*
+
+When you have done things outside of integrity—stealing money, lying—you're always in fear of it catching up to you. Rather, in integrity, you have security. Your conscience is secure.
+
+"He who perverts his ways will become known" means you will be found out. If not by men, then by God.
+
+**Verse 14**
+> *"Wise people store up knowledge, But the mouth of the foolish is near destruction." (Proverbs 10:14, NKJV)*
+
+Wise people store up knowledge—this is so rich with implication. To be wise is to value what you are taught in such a way as to be learned and vast in it. This applies to doctrine. Have you stored up the knowledge of the CDO in its breadth? Business knowledge in its breadth? Corrections and prophecies in their breadth?
+
+God designed this world with a knowledge. A wisdom. A way of doing things. A way of things being. You must give yourself so much to learning about what underpins the world—the wisdom of truth so that you can walk in life.
+
+Get business books. Get ministry and Christian books. Master your Bible. Print the CDO and an accompanying workbook and work through the entire CDO so that you have all its explanations. You have to love and devote yourself to learning.
+
+**Verse 15**
+> *"The rich man’s wealth is his strong city; The destruction of the poor is their poverty." (Proverbs 10:15, NKJV)*
+
+Have money. It is a security, a defense. You must be rich. "The destruction of the poor is their poverty"—Wow! Destruction of health, loss of time, disorder, shame, etc. Your lack of money is costing your walk in God's Purpose. You have to become radicalized, Daniel! Go for earnings, go for more. Have savings, invest.
+
+**Verse 16**
+> *"The labor of the righteous leads to life, The wages of the wicked to sin." (Proverbs 10:16, NKJV)*
+
+The labor of the righteous leads to life. You have to love labor. Work at the things that God has set before you. You've begun setting goals; something you've lived 30 years without ever doing in a serious way. You have to write the vision and make it plain and work with that everyday.
+
+**Verse 18**
+> *"Whoever hides hatred has lying lips, And whoever spreads slander is a fool." (Proverbs 10:18, NKJV)*
+
+Don't hold back telling people what you are displeased with them about (e.g., your wife). It makes you a liar when you put up a front of affection and your heart is stewing in contrary emotions.
+
+### Chapter 11
+
+**Verse 3**
+> *"The integrity of the upright will guide them, But the perversity of the unfaithful will destroy them." (Proverbs 11:3, NKJV)*
+
+Be guided by integrity. Make your decisions with integrity as your North Star.
+
+**Verses 5-6**
+> *"The righteousness of the blameless will direct his way aright, But the wicked will fall by his own wickedness. The righteousness of the upright will deliver them, But the unfaithful will be caught by their lust." (Proverbs 11:5-6, NKJV)*
+
+Righteousness of the blameless will direct his way aright. I will do the right thing no matter the cost. I would not steal others' goods. I would not participate in that which is of falsehood and guile. 
+
+The unfaithful will be caught by their lust. They don't bridle their desires.
+
+**Verse 12**
+> *"He who is devoid of wisdom despises his neighbor, But a man of understanding holds his peace." (Proverbs 11:12, NKJV)*
+
+Don't be the person who holds a negative disposition or countenance toward anyone. Despise no one.
+
+**Verse 14**
+> *"Where there is no counsel, the people fall; But in the multitude of counselors there is safety." (Proverbs 11:14, NKJV)*
+
+In the multitude of counselors, there is safety.
+
+**Verse 15**
+> *"He who is surety for a stranger will suffer, But one who hates being surety is secure." (Proverbs 11:15, NKJV)*
+
+One who hates being a surety is secure. Profound.
+
+**Verse 18**
+> *"The wicked man does deceptive work, But he who sows righteousness will have a sure reward." (Proverbs 11:18, NKJV)*
+
+To be ineffective at your natural assignment is to be WICKED. Omo.
+
+### Chapter 12
+
+**Verse 11**
+> *"He who tills his land will be satisfied with bread, But he who follows frivolity is devoid of understanding." (Proverbs 12:11, NKJV)*
+
+When you labor, no matter how little or much, you will have yield. That's how God has ordered the world. Something will give if you keep at it. Don't ever not be found doing something toward your goals.
+
+**Verses 24 & 27**
+> *"The hand of the diligent will rule, But the lazy man will be put to forced labor... The lazy man does not roast what he took in hunting, But diligence is man’s precious possession." (Proverbs 12:24, 27, NKJV)*
+
+Diligence would yield wealth. Fix your diligence. Diligence is doing what is required with the requisite effort to gain the desired outcome. Diligence is preceded by knowledge/wisdom—knowing what the right thing to do is.
+
+### Chapter 13
+
+*(Notes for Chapter 13 were empty/cut off. Ready for the next part whenever you are!)*
+
+
 ## Notable Quotes
 - "Immorality is a knowledge problem... the person is walking without the knowledge of the truth on his heart."
 - "My expressions are first very, very much founded on an understanding... of how God wants things to be."
@@ -67,3 +159,10 @@ This is a profound call to take responsibility for your own life. You are respon
 - "Pleasure should not override reason."
 - "If something feels really good now, always think about the consequence. That is wisdom."
 - "Being future-minded in decision-making is a sign of adulthood. You have to take responsibility for your life and your actions."
+- "You are broke because you're too lazy and slack to create value and market that value to others. It is unrighteous to be broke."
+- "Your lack of money is costing your walk in God's Purpose. You have to become radicalized... Go for earnings, go for more."
+- "To be wise is to value what you are taught in such a way as to be learned and vast in it."
+- "God designed this world with a knowledge. A wisdom. A way of doing things."
+- "You have to write the vision and make it plain and work with that everyday."
+- "To be ineffective at your natural assignment is to be WICKED."
+- "Diligence is doing what is required with the requisite effort to gain the desired outcome."
