@@ -56,21 +56,18 @@ This is a profound call to take responsibility for your own life. You are respon
 
 ### Chapter 10
 
-**Verse 4**
 > *"He who has a slack hand becomes poor, But the hand of the diligent makes rich." (Proverbs 10:4, NKJV)*
 
 You are broke because you're too lazy and slack to create value and market that value to others. It is unrighteous to be broke. If anything is holding back your productivity—even the things of God—you have to act decisively. God does not expect me to live on debt and the goodwill of friends.
 
 "A slack hand" (*remı̂yâh*) also translates to deceit, lying. You are walking in falsehood when you say you have no way to earn money. It's always not true.
 
-**Verse 9**
 > *"He who walks with integrity walks securely, But he who perverts his ways will become known." (Proverbs 10:9, NKJV)*
 
 When you have done things outside of integrity—stealing money, lying—you're always in fear of it catching up to you. Rather, in integrity, you have security. Your conscience is secure.
 
 "He who perverts his ways will become known" means you will be found out. If not by men, then by God.
 
-**Verse 14**
 > *"Wise people store up knowledge, But the mouth of the foolish is near destruction." (Proverbs 10:14, NKJV)*
 
 Wise people store up knowledge—this is so rich with implication. To be wise is to value what you are taught in such a way as to be learned and vast in it. This applies to doctrine. Have you stored up the knowledge of the CDO in its breadth? Business knowledge in its breadth? Corrections and prophecies in their breadth?
@@ -79,58 +76,48 @@ God designed this world with a knowledge. A wisdom. A way of doing things. A way
 
 Get business books. Get ministry and Christian books. Master your Bible. Print the CDO and an accompanying workbook and work through the entire CDO so that you have all its explanations. You have to love and devote yourself to learning.
 
-**Verse 15**
 > *"The rich man’s wealth is his strong city; The destruction of the poor is their poverty." (Proverbs 10:15, NKJV)*
 
 Have money. It is a security, a defense. You must be rich. "The destruction of the poor is their poverty"—Wow! Destruction of health, loss of time, disorder, shame, etc. Your lack of money is costing your walk in God's Purpose. You have to become radicalized, Daniel! Go for earnings, go for more. Have savings, invest.
 
-**Verse 16**
 > *"The labor of the righteous leads to life, The wages of the wicked to sin." (Proverbs 10:16, NKJV)*
 
 The labor of the righteous leads to life. You have to love labor. Work at the things that God has set before you. You've begun setting goals; something you've lived 30 years without ever doing in a serious way. You have to write the vision and make it plain and work with that everyday.
 
-**Verse 18**
 > *"Whoever hides hatred has lying lips, And whoever spreads slander is a fool." (Proverbs 10:18, NKJV)*
 
 Don't hold back telling people what you are displeased with them about (e.g., your wife). It makes you a liar when you put up a front of affection and your heart is stewing in contrary emotions.
 
 ### Chapter 11
 
-**Verse 3**
 > *"The integrity of the upright will guide them, But the perversity of the unfaithful will destroy them." (Proverbs 11:3, NKJV)*
 
 Be guided by integrity. Make your decisions with integrity as your North Star.
 
-**Verses 5-6**
 > *"The righteousness of the blameless will direct his way aright, But the wicked will fall by his own wickedness. The righteousness of the upright will deliver them, But the unfaithful will be caught by their lust." (Proverbs 11:5-6, NKJV)*
 
 Righteousness of the blameless will direct his way aright. I will do the right thing no matter the cost. I would not steal others' goods. I would not participate in that which is of falsehood and guile. 
 
 The unfaithful will be caught by their lust. They don't bridle their desires.
 
-**Verse 12**
 > *"He who is devoid of wisdom despises his neighbor, But a man of understanding holds his peace." (Proverbs 11:12, NKJV)*
 
 Don't be the person who holds a negative disposition or countenance toward anyone. Despise no one.
 
-**Verse 14**
 > *"Where there is no counsel, the people fall; But in the multitude of counselors there is safety." (Proverbs 11:14, NKJV)*
 
 In the multitude of counselors, there is safety.
 
-**Verse 15**
 > *"He who is surety for a stranger will suffer, But one who hates being surety is secure." (Proverbs 11:15, NKJV)*
 
 One who hates being a surety is secure. Profound.
 
-**Verse 18**
 > *"The wicked man does deceptive work, But he who sows righteousness will have a sure reward." (Proverbs 11:18, NKJV)*
 
 To be ineffective at your natural assignment is to be WICKED. Omo.
 
 ### Chapter 12
 
-**Verse 11**
 > *"He who tills his land will be satisfied with bread, But he who follows frivolity is devoid of understanding." (Proverbs 12:11, NKJV)*
 
 When you labor, no matter how little or much, you will have yield. That's how God has ordered the world. Something will give if you keep at it. Don't ever not be found doing something toward your goals.
@@ -142,52 +129,42 @@ Diligence would yield wealth. Fix your diligence. Diligence is doing what is req
 
 ### Chapter 13
 
-**Verse 1**
 > *"A wise son heeds his father’s instruction, But a scoffer does not listen to rebuke." (Proverbs 13:1, NKJV)*
 
 Be a fiend for truth. Anywhere you hear the truth being taught or preached, go there and learn. Love rebuke. Love to be told what is right.
 
-**Verse 4**
 > *"The soul of a lazy man desires, and has nothing; But the soul of the diligent shall be made rich." (Proverbs 13:4, NKJV)*
 
-**Verse 5**
 > *"A righteous man hates lying, But a wicked man is loathsome and comes to shame." (Proverbs 13:5, NKJV)*
 
 Hate lying.
 
-**Verse 8**
 > *"The ransom of a man’s life is his riches, But the poor does not hear rebuke." (Proverbs 13:8, NKJV)*
 
 To have money is of God o!
 
-**Verse 24**
 > *"He who spares his rod hates his son, But he who loves him disciplines him promptly." (Proverbs 13:24, NKJV)*
 
 To not correct people is to hate them.
 
 ### Chapter 14
 
-**Verse 3**
 > *"In the mouth of a fool is a rod of pride, But the lips of the wise will preserve them." (Proverbs 14:3, NKJV)*
 
 Your words will show your pride or humility. Always check it.
 
-**Verses 20-21**
 > *"The poor man is hated even by his own neighbor, But the rich has many friends. He who despises his neighbor sins; But he who has mercy on the poor, happy is he." (Proverbs 14:20-21, NKJV)*
 
 You lose friends to your poverty, they would hide from you. That's what's played out with you.
 
-**Verse 23**
 > *"In all labor there is profit, But idle chatter leads only to poverty." (Proverbs 14:23, NKJV)*
 
 Be the guy who works hardest.
 
-**Verse 25**
 > *"A true witness delivers souls, But a deceitful witness speaks lies." (Proverbs 14:25, NKJV)*
 
 A true witness delivers souls --> telling people the truth would save their lives. Tell your wife the truth.
 
-**Verse 29**
 > *"He who is slow to wrath has great understanding, But he who is impulsive exalts folly." (Proverbs 14:29, NKJV)*
 
 Work on impulsiveness, it would cost you everything.
