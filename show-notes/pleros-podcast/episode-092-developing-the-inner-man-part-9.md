@@ -1,103 +1,109 @@
+## Introduction and Prayer
+Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. 
 
-## Topic Shift 1
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
+## Developing the Inner Man
+Welcome back to the Peruse podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are reaching the end of our teaching on developing the inner man. We have seen the reality of the Eden man already. And we have seen that it ought to be adorned, ought to be strengthened, ought to be renewed. 
 
-Let's get right into it. &gt;&gt; Welcome back to the Peruse podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are reaching the end of our teaching on developing the inner man.
+We ought to put on and put off. We have seen that it's like sewing seeds on our hearts that makes a tree that brings forth fruits. We have seen that it's like depositing on our heart and bringing out of those deposits. We saw that from the Lord Jesus in Matthew 12:33 downwards. 
 
-We have seen the reality of the Eden man already. And we have seen that it ought to be adorned, ought to be strengthened, ought to be renewed. We ought to put on and put off. We have seen that it's like sewing seeds on our hearts that makes a tree that brings forth fruits.
+## The Concept of the Tree and Seed
+And then we took that tree concept all the way back to Genesis 1 and saw it is how God has always explained how man functions. Okay. So God has always explained how man functions using this tree, this seed, tree and fruit concept. All right. 
 
-We have seen that it's like depositing on our heart and bringing out of those deposits. We saw that from the Lord Jesus in Matthew 12:33 downwards. And then we took that tree concept all the way back to Genesis 1 and saw it is how God has always explained how man functions. Okay.
+Now having seen that fact we noted in Genesis 2 it was explained that there was a tree of life tree of knowledge of good and evil definitely not physical trees rather showing things that were sown on the heart of man and that's why proverbs 3:18 will call the tree of life wisdom and we know wisdom is rooted in truth from proverbs 23:23 by the truth and do not sell wisdom instruction and understanding God sw the seed of the truth of existence on man's heart and of course man Having free will there was automatically you know contrary beliefs that he was also considering which accounts for what is called the tree of knowledge of good and evil and we are shown that one brings about death. 
 
-So God has always explained how man functions using this tree, this seed, tree and fruit concept. All right. Now having seen that fact we noted in Genesis 2 it was explained that there was a tree of life tree of knowledge of good and evil definitely not physical trees rather showing things that were sown on the heart of man and that's why proverbs 3:18 will call the tree of life wisdom and we know wisdom is rooted in truth from proverbs 23:23 by the truth and do not sell wisdom instruction and understanding God sw the seed of the truth of existence on man's heart and of course man Having free will there was automatically you know contrary beliefs that he was also considering which accounts for what is called the tree of knowledge of good and evil and we are shown that one brings about death. He said the day you eat of that tree of knowledge of good and evil you surely die.
+## Life and Death in the Tongue
+He said the day you eat of that tree of knowledge of good and evil you surely die. The other one was called the tree of life it brings about life. How do we eat of the tree of life or the tree of death? Proverbs 18:20 he explained that to us and he said a man will be satisfied with the fruit of his mouth from the produce of his lips or by the produce of his lips he will be filled. 
 
+So it's by speaking what comes from us from our mouth rather that we get filled. So it's sort of like the opposite spiritual eating is what comes out of your mouth while physical eating is what goes into your mouth. Then verse 21 of Proverbs 18 says death and life are in the control of the tongue. those who love it will eat the fruit thereof. 
 
-## Topic Shift 2
-The other one was called the tree of life it brings about life. How do we eat of the tree of life or the tree of death? Proverbs 18:20 he explained that to us and he said a man will be satisfied with the fruit of his mouth from the produce of his lips or by the produce of his lips he will be filled. So it's by speaking what comes from us from our mouth rather that we get filled.
+## Retaining the Tree of Life
+So having looked at that we I I I remember I mentioned about Proverbs 3:18 you know Proverbs 3:18 says um wisdom is a tree of life to those who take over of take hold of her and happy are those who retain her that means what we do relative to the tree of life or the other tree which again let me be clear these two trees are still existing and yes we all have those two trees on our mind that is Whenever you're exposed to things that contrary to the truth of redemption or who you are in Christ, these are seeds of the tree of knowledge of good and evil sown on your heart that you can partake of and you start to not care about certain wrongs or evils. 
 
-So it's sort of like the opposite spiritual eating is what comes out of your mouth while physical eating is what goes into your mouth. Then verse 21 of Proverbs 18 says death and life are in the control of the tongue. those who love it will eat the fruit thereof. So having looked at that we I I I remember I mentioned about Proverbs 3:18 you know Proverbs 3:18 says um wisdom is a tree of life to those who take over of take hold of her and happy are those who retain her that means what we do relative to the tree of life or the other tree which again let me be clear these two trees are still existing and yes we all have those two trees on our mind that is Whenever you're exposed to things that contrary to the truth of redemption or who you are in Christ, these are seeds of the tree of knowledge of good and evil sown on your heart that you can partake of and you start to not care about certain wrongs or evils.
+You start to have wrong belief systems or worldview. You start to have um wrong conducts or actions or attitudes. And now if you believe the gospel, you're safe. So you benefit of the tree of life. But there is still the ongoing reality of blessed are happy are those who retain her. 
 
-You start to have wrong belief systems or worldview. You start to have um wrong conducts or actions or attitudes. And now if you believe the gospel, you're safe. So you benefit of the tree of life.
+## Guarding Your Heart
+You know the tree of life is um wisdom is a tree of life to those who take hold of her and happy are those who retain her. So we still have this ongoing two trees issue which is why in M 12:33 the Lord was making that point either make the tree good and his fruit good or else make the tree bad and his fruit bad. So you got to be careful what happens on your heart. You have to guard your heart with all diligence. Okay. 
 
-But there is still the ongoing reality of blessed are happy are those who retain her. You know the tree of life is um wisdom is a tree of life to those who take hold of her and happy are those who retain her. So we still have this ongoing two trees issue which is why in M 12:33 the Lord was making that point either make the tree good and his fruit good or else make the tree bad and his fruit bad. So you got to be careful what happens on your heart.
+So that means the faith reality that was being explained in those trees are not just about it's not just about salvation rather it's also about our growth our walk in God's purpose for our lives. And we saw all that text to emphasize the role of our mouth in developing us to fulfill God's purpose like Joshua 1:8, Deuteronomy 6, Deuteronomy 30, Psalm 1, etc. 
 
-You have to guard your heart with all diligence. Okay. So that means the faith reality that was being explained in those trees are not just about it's not just about salvation rather it's also about our growth our walk in God's purpose for our lives. And we saw all that text to emphasize the role of our mouth in developing us to fulfill God's purpose like Joshua 1:8, Deuteronomy 6, Deuteronomy 30, Psalm 1, etc.
+## Transformation through Logical Worship
+Ephesians 3 also Paul was clear in Ephesians 3:17 that the way Christ dwells in our hearts the way we arrive at the perfect man is by faith. So faith is how we develop the hidden man and by that faith we mean faith stand. That's why we went back to Romans Romans 12:2 where Paul said be not conformed to this world but be transformed by the renewing of your mind. 
 
+And this renewing of our mind is us presenting ourselves as we are in Christ. Romans 12:1, it's our reasonable service, our logical worship. All right? So, it's our logical worship. When we present ourselves, we are affirming who we are. 
 
-## Topic Shift 3
-Ephesians 3 also Paul was clear in Ephesians 3:17 that the way Christ dwells in our hearts the way we arrive at the perfect man is by faith. So faith is how we develop the hidden man and by that faith we mean faith stand. That's why we went back to Romans Romans 12:2 where Paul said be not conformed to this world but be transformed by the renewing of your mind. And this renewing of our mind is us presenting ourselves as we are in Christ.
+## Persistence in the House of Prayer
+We are unshaken about who we are. We are taking a bold, firm, and strong stance on who we are in Christ. Right? And the key word here is that he calls it our logical worship. And the word there worship is latria. 
 
-Romans 12:1, it's our reasonable service, our logical worship. All right? So, it's our logical worship. When we present ourselves, we are affirming who we are.
+So it's not the ordinary word for worship. It's rather the word latria which um shows a temple activity, temple worship which can refer to prayer. Remember the Lord called the temple the house of prayer in Mark 11 or Matthew 21 or John 2. He called the temple the house of prayer. 
 
-We are unshaken about who we are. We are taking a bold, firm, and strong stance on who we are in Christ. Right? And the key word here is that he calls it our logical worship.
+## Persistence in Prayer
+So he's showing us that this act of presenting oursel happens in the place of prayer. It happens in the place of prayer. And we looked at some text on that. The last time we looked at Luke chapter 11 when the Lord taught us to pray. 
 
-And the word there worship is latria. So it's not the ordinary word for worship. It's rather the word latria which um shows a temple activity, temple worship which can refer to prayer. Remember the Lord called the temple the house of prayer in Mark 11 or Matthew 21 or John 2.
+Part of that prayer includes praying for our love walk where we forgive the sins of others. Also, it includes praying for our walk in righteousness. And it shows that our prayer whether it's for ourselves, whether it's for our needs or whether it's for the kingdom must be persistent. Right? 
 
-He called the temple the house of prayer. So he's showing us that this act of presenting oursel happens in the place of prayer. It happens in the place of prayer. And we looked at some text on that.
+## Faith as a Seed
+You remember the parable, our prayers must be persistent. And so he told that parable about the um the friend who came to ask in the middle of the night you know his friend for something but because of his opportunity and persistence the friend would have to give in. And he just used that to bring the point that it requires persistence on our part to see the fruit and the result of prayer. 
 
+Persistence on our part to see the fruit and result of prayer. And there are many reasons for that. It's not as much, you know, God trying to withhold or hold back. No, that's not the case. I don't want to get into it. 
 
-## Topic Shift 4
-The last time we looked at Luke chapter 11 when the Lord taught us to pray. Part of that prayer includes praying for our love walk where we forgive the sins of others. Also, it includes praying for our walk in righteousness. And it shows that our prayer whether it's for ourselves, whether it's for our needs or whether it's for the kingdom must be persistent.
+## The Potency of Praying in the Spirit
+It's something on spiritual warfare. We're going to look at it in due course, but it's more about the operational way this world works. So, and also is about the concept of faith being a seed as well. So, that staying there until we see the fruit is a very important part of our faith life. 
 
-Right? You remember the parable, our prayers must be persistent. And so he told that parable about the um the friend who came to ask in the middle of the night you know his friend for something but because of his opportunity and persistence the friend would have to give in. And he just used that to bring the point that it requires persistence on our part to see the fruit and the result of prayer.
+Now there's Luke 18:1 where the Lord said he told a parable to the end that men always ought to pray and not to faint and it was again to show the persistence of faith. So this is very important. If prayer is the major way we exercise faith for our transformation. Prayer is the major way we exercise faith for our transformation. 
 
-Persistence on our part to see the fruit and result of prayer. And there are many reasons for that. It's not as much, you know, God trying to withhold or hold back. No, that's not the case.
+## Praying in Tongues
+I want to add one more fact to this which is that praying in the spirit is one of the most potent way we can exercise faith for our transformation. praying in the spirit and by praying in the spirit in this context I will mean I do mean praying in tongues and I know here there might be those with questions and we'll see how far we can go in answering them but I'm going to make some very important points at least try to follow through with a open heart in Ephesians 6 and 18 Paul says praying always with all prayer and supplication in the spirit now of course we could make an argument for praying in the spirit that is not restrictedly praying in tongues 
 
-I don't want to get into it. It's something on spiritual warfare. We're going to look at it in due course, but it's more about the operational way this world works. So, and also is about the concept of faith being a seed as well.
+But there's no doubt that praying in tongues has a better case for being praying in the spirit than any other kind of prayer. Particularly because of 1 Corinthians chapter 14 from verse 14 to 15 where the contrast was made between praying with the spirit and praying with the understanding. Now we might want to you know create a fight over praying with the spirit is not necessarily praying in the spirit. 
 
-So, that staying there until we see the fruit is a very important part of our faith life. Now there's Luke 18:1 where the Lord said he told a parable to the end that men always ought to pray and not to faint and it was again to show the persistence of faith. So this is very important. If prayer is the major way we exercise faith for our transformation.
+## Speaking Mysteries to God
+But again in 1 Corinthians 14:2 when he spoke about praying in tongues he he especially or particularly described it as something that happens in the spirit. So because the phrase in the spirit can mean you are in the spirit that means um it's like saying you are intoxicated with the spirit be not drunk with wine but be filled with the spirit. You are in the spirit you are under the influence of the spirit. 
 
+It is possible one is praying in understanding and we say the person is in the spirit like revelation 1 and 10 John was in the spirit on the last day. If someone enters a state where the person is inspired by the holy ghost and is praying it should be right to say the person is praying in the spirit just based on biblical vocabulary. But praying in tongues is especially or particularly described as praying in the spirit. 
 
-## Topic Shift 5
-Prayer is the major way we exercise faith for our transformation. I want to add one more fact to this which is that praying in the spirit is one of the most potent way we can exercise faith for our transformation. praying in the spirit and by praying in the spirit in this context I will mean I do mean praying in tongues and I know here there might be those with questions and we'll see how far we can go in answering them but I'm going to make some very important points at least try to follow through with a open heart in Ephesians 6 and 18 Paul says praying always with all prayer and supplication in the spirit now of course we could make an argument for praying in the spirit that is not restrictedly praying in tongues But there's no doubt that praying in tongues has a better case for being praying in the spirit than any other kind of prayer. Particularly because of 1 Corinthians chapter 14 from verse 14 to 15 where the contrast was made between praying with the spirit and praying with the understanding.
+## The Purpose of Tongues
+And if we are told to pray our prayers and supplication in the spirit, it would mean that praying for our growth or praying for our transformation which happens in this house of prayer. It's our logical worship which happens in this house of prayer. Presenting ourselves can be done in tongues and tonesues may be an especially effective way of doing it. 
 
-Now we might want to you know create a fight over praying with the spirit is not necessarily praying in the spirit. But again in 1 Corinthians 14:2 when he spoke about praying in tongues he he especially or particularly described it as something that happens in the spirit. So because the phrase in the spirit can mean you are in the spirit that means um it's like saying you are intoxicated with the spirit be not drunk with wine but be filled with the spirit. You are in the spirit you are under the influence of the spirit.
+Now if you have questions on the baptism of the Holy Ghost, I would encourage you to go to the peruse.org oxides particularly the question section and listen to the video on baptism of the holy ghost. Now the video is more designed to get people filled with the spirit but there will also be other teachings I believe on the library. We would upload them very soon on tongues that would probably help you about understanding tongues better because it's impossible for me to know answer those questions here and now. 
 
-It is possible one is praying in understanding and we say the person is in the spirit like revelation 1 and 10 John was in the spirit on the last day. If someone enters a state where the person is inspired by the holy ghost and is praying it should be right to say the person is praying in the spirit just based on biblical vocabulary. But praying in tongues is especially or particularly described as praying in the spirit. And if we are told to pray our prayers and supplication in the spirit, it would mean that praying for our growth or praying for our transformation which happens in this house of prayer.
+## Speaking to God, Not Men
+Now I want you to go to 1 Corinthians chapter 14 and verse 2. In 1 Corinthians 14:2, Paul said, "For he who speaks in a tongue does not speak to men, but to God." So the idea that tongues is primarily meant to serve the purpose of men understanding is definitively knocked out by this text because it says when we speak in a tongue, we do not speak to men but to God. 
 
-It's our logical worship which happens in this house of prayer. Presenting ourselves can be done in tongues and tonesues may be an especially effective way of doing it. Now if you have questions on the baptism of the Holy Ghost, I would encourage you to go to the peruse.org oxides particularly the question section and listen to the video on baptism of the holy ghost. Now the video is more designed to get people filled with the spirit but there will also be other teachings I believe on the library.
+For no one understands. You can see that this is a very definitive way of speaking. Albeit in the spirit, he speaks mysteries. So all of this is definitive. None of it is specially contextual to the audience he's talking to. It's very definitive. 
 
-We would upload them very soon on tongues that would probably help you about understanding tongues better because it's impossible for me to know answer those questions here and now. Now I want you to go to 1 Corinthians chapter 14 and verse 2. In 1 Corinthians 14:2, Paul said, "For he who speaks in a tongue does not speak to men, but to God." So the idea that tongues is primarily meant to serve the purpose of men understanding is definitively knocked out by this text because it says when we speak in a tongue, we do not speak to men but to God. For no one understands.
+## Self-Edification and Knowledge
+He who speaks in a tongue does not speak to men but God. No one understands how he is in the spirit. He speaks mysteries. So he's saying tongues is not man word but God word. And when you're speaking in tones in the spirit you're speaking mysteries. 
 
+He's saying tongues is not man word but God word. And it's a very strong emphasis throughout this particular chapter. And when we want to function towards man, we should bring in the interpretation. So he says when you are praying in tonges, you are praying in the spirit. 
 
-## Topic Shift 6
-You can see that this is a very definitive way of speaking. Albeit in the spirit, he speaks mysteries. So all of this is definitive. None of it is specially contextual to the audience he's talking to.
+## Edifying the Inner Man
+Now to show us something else. If prayer is the place of transformation, is that also true about tongues? When we are praying to God in the spirit, does he transform us? And what does it transform? Let's see 1 Corinthians 14:4. 
 
-It's very definitive. He who speaks in a tongue does not speak to men but God. No one understands how he is in the spirit. He speaks mysteries.
+He who he who speaks in a tongue edifies himself but he who prophesies edifies the church. That's that's something important. He says when pray in tonges we edify ourself but when we prophesy we edify the church. Now in what sense does he mean we edify ourself? 
 
-So he's saying tongues is not man word but God word. And when you're speaking in tones in the spirit you're speaking mysteries. He's saying tongues is not man word but God word. And it's a very strong emphasis throughout this particular chapter.
+## Prophecy vs. Tongues
+You know when we prophesy and we say we edify the church in this case what we give to the church is knowledge. So people know right and that knowledge should inspire faith because he says all may learn and be encouraged. So it should mean that we are edifying the church by enlightening their mind. 
 
-And when we want to function towards man, we should bring in the interpretation. So he says when you are praying in tonges, you are praying in the spirit. Now to show us something else. If prayer is the place of transformation, is that also true about tongues?
+You know we are giving them knowledge via the prophecy something that God is calling their attention to at the moment but also by their own response of faith as a result of that prophecy that teaching not to inspire faith just as the ordinary teaching of God's word should. The leaders of the church are meant to perfect the saints by giving them knowledge and bringing them into faith, getting them to put on who they are. So if that's what prophecy does if we are speaking in tongues, what does that mean? 
 
-When we are praying to God in the spirit, does he transform us? And what does it transform? Let's see 1 Corinthians 14:4. He who he who speaks in a tongue edifies himself but he who prophesies edifies the church.
+## Emboldening the Conscience
+It's most likely referring to the fact that that edification is building us up by faith. And now how we know this to be most probably the case is because of 1 Corinthians chapter 8. So praying in the spirit is one effective way of building up ourselves spiritually. 
 
+The same word edify is used in 1 Corinthians chapter 8 and verse 10 as emboldening our conscience. Oh my. Do you see that? 1 Corinthians 8:10. If anyone sees you who has knowledge eaten in a temple in an idol's temple, will not the conscience of him who is weak be emboldened? 
 
-## Topic Shift 7
-That's that's something important. He says when pray in tonges we edify ourself but when we prophesy we edify the church. Now in what sense does he mean we edify ourself? You know when we prophesy and we say we edify the church in this case what we give to the church is knowledge.
+## Strengthening the Hidden Man
+And that word is notice is the conscience that becomes emboldened. Do you remember conscience is consciousness and it becomes edified to eat those things of idols. Now this negative instance but let's go back to the positive. 
 
-So people know right and that knowledge should inspire faith because he says all may learn and be encouraged. So it should mean that we are edifying the church by enlightening their mind. You know we are giving them knowledge via the prophecy something that God is calling their attention to at the moment but also by their own response of faith as a result of that prophecy that teaching not to inspire faith just as the ordinary teaching of God's word should. The leaders of the church are meant to perfect the saints by giving them knowledge and bringing them into faith, getting them to put on who they are.
+It means our conscience can get edified and this is not knowledge or conviction. This is conscience. This is our consciousness. Our reckoning our inner man or hidden man can get o and it can get weak. It can get strong. It can get emboldening. 
 
-So if that's what prophecy does if we are speaking in tongues, what does that mean? It's most likely referring to the fact that that edification is building us up by faith. And now how we know this to be most probably the case is because of 1 Corinthians chapter 8. So praying in the spirit is one effective way of building up ourselves spiritually.
+## Prioritizing Prayer in the Spirit
+It can get so is it true when 1 Corinthians 14 and:3 says he that speaks and talks edifies himself. That edification there can be like charging up oneself becoming bold and stronger and it can mean someone can become weaker. It is true. 
 
-The same word edify is used in 1 Corinthians chapter 8 and verse 10 as emboldening our conscience. Oh my. Do you see that? 1 Corinthians 8:10.
+It won't just be knowledge. It will also be the response of faith to knowledge particularly because knowledge can be forgotten leading one not to do it according to James. So faith is very key in this edification. So praying in the spirit praying in tongues is an important way of building ourself of developing the haman. 
 
-If anyone sees you who has knowledge eaten in a temple in an idol's temple, will not the conscience of him who is weak be emboldened? And that word is notice is the conscience that becomes emboldened. Do you remember conscience is consciousness and it becomes edified to eat those things of idols. Now this negative instance but let's go back to the positive.
+## Closing and Outro
+We are affirming maybe our love walk, our righteousness, any reality about who we are in Christ when we pray in the spirit just as when we pray in understanding. And today as we will say in the light of what Christ has fulfilled. Today as we will say in the light of what Christ has fulfilled, we are meant to prioritize praying in the spirit or praying in tongues as a most effective way of prayer of edifying ourel of transforming oursel. 
 
+Thank you. Fulfill God's purpose. See you on the next one. >> We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. 
 
-## Topic Shift 8
-It means our conscience can get edified and this is not knowledge or conviction. This is conscience. This is our consciousness. Our reckoning our inner man or hidden man can get o and it can get weak.
-
-It can get strong. It can get emboldening. It can get so is it true when 1 Corinthians 14 and:3 says he that speaks and talks edifies himself. That edification there can be like charging up oneself becoming bold and stronger and it can mean someone can become weaker.
-
-It is true. It won't just be knowledge. It will also be the response of faith to knowledge particularly because knowledge can be forgotten leading one not to do it according to James. So faith is very key in this edification.
-
-So praying in the spirit praying in tongues is an important way of building ourself of developing the haman. We are affirming maybe our love walk, our righteousness, any reality about who we are in Christ when we pray in the spirit just as when we pray in understanding. And today as we will say in the light of what Christ has fulfilled. Today as we will say in the light of what Christ has fulfilled, we are meant to prioritize praying in the spirit or praying in tongues as a most effective way of prayer of edifying ourel of transforming oursel.
-
-Thank you. Fulfill God's purpose. See you on the next one. &gt;&gt; We trust you were blessed by today's episode.
-
-
-## Topic Shift 9
-Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
-
-For now, stay blessed and keep walking in his purpose.
-
-
+You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog. For now, stay blessed and keep walking in his purpose.
