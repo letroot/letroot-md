@@ -1,3 +1,6 @@
+---
+tags: [podcast, pleros-podcast]
+---
 # Faith Stand (Part 7)
 
 ## Introduction: The Purpose of the Gospel

@@ -1,4 +1,5 @@
 ---
+tags: [podcast, pleros-podcast]
 title: Developing the Inner Man (Part 4)
 date: 2026-03-21
 type: podcast

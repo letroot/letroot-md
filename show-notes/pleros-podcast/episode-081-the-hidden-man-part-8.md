@@ -1,3 +1,6 @@
+---
+tags: [podcast, pleros-podcast]
+---
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. >> Welcome back to the Blush podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are looking at the subject matter, the Eden man. You could also say the Eden man of the heart or the Eden man of the mind. And it's a subject matter that is so important to our fulfillment of God's purpose for our life because it's not enough that we know and are found standing in God's purpose. Is important that we grow to be able to fulfill God's purpose. And that growth happens on our mind. But there's a particular aspect of our mind the growth happens on and that is what is called the Eden man.
 
 ## The Distinction of the Hidden Man
