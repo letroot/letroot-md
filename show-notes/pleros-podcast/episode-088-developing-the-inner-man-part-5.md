@@ -1,3 +1,9 @@
+---
+title: Developing the Inner Man (Part 5)
+date: 2026-03-23
+type: podcast
+show: Pleros Podcast
+---
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
 All right, welcome back to the Polaros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are still looking at developing the inner man and we have seen that the hidden man or the inner man is what determines whether we fulfill God's purpose or not. The state of your hidden man or inner man is the final actual determinant of your fulfillment of God's purpose.

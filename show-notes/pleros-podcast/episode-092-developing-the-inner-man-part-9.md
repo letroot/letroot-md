@@ -1,3 +1,9 @@
+---
+title: Developing the Inner Man (Part 9)
+date: 2026-03-27
+type: podcast
+show: Pleros Podcast
+---
 ## Introduction and Prayer
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. 
 
