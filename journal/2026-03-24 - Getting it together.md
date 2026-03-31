@@ -1,15 +1,15 @@
 ---
 uuid: 49B205C8E17E464B99901AB17C02CF40
 journal: Journal
-title: Getting it together
+title: # Getting it together
 created: 2026-03-24T09:55:03+01:00
-modified: 2026-03-24T09:58:31+01:00
+modified: 2026-03-30T10:59:43+01:00
 starred: false
 tags:
   -
 ---
 
-Getting it together
+# Getting it together
 Nah, this is 9:55 am and I have not begun work. Yes. 
 
 I’m taking my time to complete my readings and writing. I’ve had my bath though.
