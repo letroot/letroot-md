@@ -1,0 +1,71 @@
+Kind: captions Language: en Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. &gt;&gt; 
+
+## Fulfilling God's Purpose Through Growth
+
+All right, welcome back to the Peruse podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. On this particular episode, we are continuing on the newness of life and we hope to do more to understand the concept of life and to bring it home to ourselves. 
+
+But looking at this subject matter our understanding has been that from God's purpose we need to understand from knowing what God's purpose is rather we need to understand how to fulfill it and in studying that we find that it takes growth to fulfill God's purpose that growth happens on our mind there's a particular aspect of our mind where the growth happens which is hidden man or inner man and we have seen how that growth or development of the hidden man happens which is by faith stand on the knowledge of God's word. 
+
+The question is what knowledge in God's word are we supposed to have faith stand on for our growth? We can say all of God's word and will be right. But there's a particular truth specific truth that is to be our major focus in terms of growth. 
+
+## The Truth of the New Creation
+
+Now all knowledge in God's word gives us the foundation of growth gives us stability and certainty ensuring that we're not easily tossed to and fro that we're not tossed to and fro at all. Um but then there's a specific truth whenever growth is spoken of in our work that is at the heart of the same and no text does better in making this clear I suppose than Ephesians 4 where Paul talks about Jesus giving the leaders of the church the responsibility to teach the entire council of the word to the saints but in doing that our work will still come from a specific truth. 
+
+So he says they are to bring us to the unity of the faith knowledge of son of God perfect man measure of statfulness of Christ. But by the time you get to verse 17 downwards he tells us you are to walk you are no longer to walk as the rest of the Gentiles do. Then verse 20 downward says you are not to walk like them because 17 to 19 says you are not to walk as they do because of the futility of their mind. Understanding is darkened. Um ignorance in them blindness of their hearts. Also, of course, their spirit is alienated from the life of God, which he also me which he does mention. 
+
+Now, in Ephesians 4:20, he tells us that you have not so learned Christ if indeed you have heard him and have been taught by him as the truth is in Jesus. What is pointing out there to us is that this truth lacking on their mind is a specific one. The reason why they are said to be futile in their mind or they are said to be ignorant etc. because there's a specific truth lacking on their mind. 
+
+And what he tells us that is the truth of the new creation. He says, "Put off concerning your former conversation the old man. Be renewed in the spirit of your mind. Put on the new man." So the truth of the new creation ought to be our focus for our growth to fulfill God's purpose. 
+
+## Walking in the Newness of Life
+
+And we are studying the truth under the subject matter title newness of life. taken particularly from Romans chapter 6 and verse 4. Of course, we have come to Romans 6 severely on this episode particularly to emphasize verse 11 that tells us to reckon ourselves beyond just knowing who we are. So, he's telling us to take account or to have faith stand on who we are, not just to have the knowledge on our mind. 
+
+Now, in Romans 6 and verse4, what Paul states in showing us the newness of life is as follows. Therefore, we were buried with him through baptism into death, that just as Christ was raised from the dead by the glory of the father, even so we should walk in the newness of life. 
+
+So, it tells us that we were we went into the domain of death. We were already on that reign of death, but went further in to the domain of death. We could say particularly to suffer the second death. But v work that Christ has accomplished then we are brought to walk in the newness of life. And that gives us a sense that the life is speaking of is not just relative to internal conditions but also points to external conditions as well. 
+
+## Understanding the Concept of Life
+
+And so we have been studying what life means from the general meaning of the word bringing it into the specific use for believers in Christ. We clarify that newness is a contrast word. So he's contrasting what we have now with what used to be the nature we used to have the conditions we were under the realities that we had and he's saying we are now in a new state new condition which he calls life the word life understandably is Zoe um but is as we have clarified is not seeing the life of God when he uses the word Zoe that's a conclusion we can make when he uses the word Zoe does not mean the life of God but We can then conclude that the specific Zoe in this instance is a Zoho that is the life of God. 
+
+But Zoe or is just the word for life is also from where we have the word zoo um zohology things like that and I said it can't particularly refer to animate kind of life you so but we're talking about the fact that the idea of life was something that was very much present within the sensibilities of the Jews during the time of our Lord Jesus. So there was a concern or the desire for entering into life into eternal life to inherit life. So you see people come to Lord Jesus and ask him what shall I do to inherit eternal life and you can see that for most of them life was more of a futuristic reality. Okay. 
+
+So and there was they were wanting to come into the conditions of a world and you know the teachings of the lord Jesus and then the apostles it becomes clear that the lord Jesus inaugurates that life within this world and it's going to continue to the world to come is also why we are told that we have partaken of the powers of the age to come. Okay. So um it means that the realities that pertain to a world to come is being made available from the world that is. 
+
+And this is so important. It's important for so many things not just for our character also for the supernatural. Because when we understand that the life that is spoken of as present is a life of the world to come, then it means we should expect some things that are unusual to this life that we are in to happen within it because there is another kind of life sort of superimposing itself there. 
+
+## The Embassy Metaphor
+
+I'll use an example in this instance is like an embassy right um so we can say we having a life embassy within the death country. So if you are in Nigeria or whatever which whatever country you are and another country has it embassy in your own country you know it could be another country maybe Ghana maybe France maybe Germany maybe whatever country whatsoever you are seeing a piece of another world present in your own world a piece of another country present in your country of course they unable to export the external conditions of that country there so Um some things will remain the cultures the way of acting will remain many things will be set up just like the country the guest country that is being hosted in your own country you know will be set up there but some things will not still change by virtue of the fact that it's actually an embassy. 
+
+So for example, mortality remains as we function in this new life in this world. But there are certain things of that life including the external conditions of that life that are arranged into the life that we are in. Amen. So there are realities of the of the guest country that we are from that are arranged into this world that we in despite the fact that the realities of this world we still have to do with it. 
+
+I don't know if you understand what I mean. Let's say let's look for let's use the UK. You know the external conditions of UK cannot be replicated in their embassy in Nigeria but almost every other thing their culture everything they'll seek to replicate that right but they still partake of some of the realities that pertain to Nigeria like it's been a tropical country whilst that embassy is here. So there are some things we still have to partake of because we are like an embassy here but of another world. So we still have to partake of mortality as we carry out these ambassadorial duties that we have here. 
+
+But there are certain things we don't have to partake of. And you know that there are certain rights and privileges that pertain to um to the guest country that the host country cannot impede on. You can't go there and if someone runs in there haven't committed a crime, you can't simply go in with your law enforcement authorities to go to go and do anything there. That's like invading another country. So there are certain limitations you have even though they exist in your space. So certain rights and privileges will acrewue in a host nation to a guest because the guest is of another nation. I hope I hope it's clear. 
+
+## Life as an Internal and External Reality
+
+Now that's I'm just trying to paint the picture leading up to our understanding of walking in the newness of life. So that we have become new creations or that we have the newness of life is so central to our appreciation of the Christian faith because ordinarily now we shouldn't even be an embassy. The intention is that this should be the host country. Life should be the domain should be the realm should be the reign. So it should be a life country and not a death country. 
+
+and which I mean maybe it would have had to host death depending on the context. Let's leave that description. Here is a death breeding world that is now hosting you know colonies of life or hosting embassies of life within it. Okay. So what does life entail? Life has external conditions and life has internal re internal conditions as well. Let's quickly run through some texts to just you know to establish it. 
+
+One of the first mention I believe would be Mark 7:14 of life in the New Testament text. Matthew 7 and verse 14 it says but narrow is the gate and cult is the way that leads to life and there are few who find it. So you are seeing life spoken of as a destination that people are trying to get into. You can say that narrow is the gate and difficult is the way that leads into life. Right? Like a place to get to is called life. 
+
+You know, I believe we also see it in Matthew chapter 19. Matthew 19 where someone asked the Lord about what it takes. Yes. Matthew 19:17. And he said to him, why do you call me good? No one is good but one that is God. But if you want to enter into life, keep the commandments. Of which we can argue that the commandment is faith and walking in love, which is to love the Lord your God, faith in him, and then the effects of that will be your walk in love. But let's just leave that. So it says if you want to enter into life, you can still see the same thoughts, the same descriptions being used for life as a destination or a place to enter into. 
+
+## Life as a Destination vs. Present Reality
+
+This is very common with the synoptic account until we get to John and we start to see that the life is not just a destination in the future but a reality that can be imposed in the now. So in John chapter 1 and verse4 he said in him talking about Christ was life and that life is the light of men. So we could also call this life. We could also call this life I'm sorry light. We could also call this life light. 
+
+Now in John chapter 3 and verse 15 and 16, the way life is used here also seems similar to a destination. John 3:15 says, "Whosoever believes in him should not perish but have eternal life at this point. It starts to sound like a possession, but is arguably still kind of sound like a destination at the same time. God so loved the world gave his only begotten son. Whoever believes in him shall not perish but have everlasting life. It looks like is a matter of what happens at the end. Looks like that. 
+
+You see also John 3:36. He who believes in the son has everlasting life. He who does not believe in the son shall not see life. You can see it like a future reality. Because in this same John 3, you see the idea of seeing the kingdom where the kingdom can be like a future reality. Yet the kingdom is also used as a present reality in God's word as well. Okay. So all of these accounts put life as a place more of you entering into an external condition more than it's talking about an internal reality. 
+
+But particularly from like John 5:24, John 6, etc. We start to see life used as an internal reality or condition. John 5:24 says, "Most assurely I say to you, he that hears my word and believes on him that sent me has everlasting life and shall not come into judgment, but has passed from death to life." Notice the idea of pass from death to life. This is like domains, realms or places. Person has passed from death into life. 
+
+John chapter 6 and we're going to wrap up there. Time I'm going to stop today. So John 5:24, he has passed from death to life. But John 5:26, for as the father has life in himself, so has he granted the son to have life in himself. That means this life is not just about external conditions entering from one realm to the other. It's also about eternal realities, nature, condition that pertain to people as well. And we'll start to look at life in this way from the next episode as we study the newness of life. See you there. 
+
+&gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog. For now, stay blessed and keep walking in his purpose.
