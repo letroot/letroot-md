@@ -97,15 +97,10 @@ In this episode of the [[Tim Ferriss Show]], [[Tim Ferriss]] interviews [[David 
 *   **[[Ralph Potts]]**: Author of *Vagabonding*, introducing philosophical operating systems for world travel.
 *   **[[Richard Branson]]**: Founder of Virgin Group; an eccentric marketer who was fundamentally a master of downside risk mitigation. 
 
-## Books and Biographies Mentioned
+## Biographies & Memoirs
 *   *[[Against the Odds: An Autobiography]]* by James Dyson
-*   *[[All the Pretty Horses]]* (The Border Trilogy) by Cormac McCarthy
-*   *[[Blood Meridian]]* by Cormac McCarthy
 *   *[[Brunello Cucinelli: The Dream of Solomeo]]* by Brunello Cucinelli
-*   *[[Deep Tech]]* by Pablo Holman
-*   *[[Extreme Ownership]]* by Jocko Willink
 *   *[[Hard Drive: Bill Gates and the Making of the Microsoft Empire]]* by James Wallace and Jim Erickson
-*   *[[How to Make a Few Billion Dollars]]* by Brad Jacobs
 *   *[[Idea Man: A Memoir by the Cofounder of Microsoft]]* by Paul Allen
 *   *[[Insisting on the Impossible: The Life of Edwin Land]]* by Victor K. McElheny
 *   *[[Invention: A Life]]* by James Dyson
@@ -113,28 +108,35 @@ In this episode of the [[Tim Ferriss Show]], [[Tim Ferriss]] interviews [[David 
 *   *[[Land's Polaroid: A Company and the Man Who Invented It]]* by Peter C. Wensberg
 *   *[[Let My People Go Surfing]]* by Yvon Chouinard
 *   *[[Losing My Virginity]]* by Richard Branson
-*   *[[Musashi]]* by Eiji Yoshikawa
-*   *[[No Country for Old Men]]* by Cormac McCarthy
 *   *[[Overdrive: Bill Gates and the Race to Control Cyberspace]]* by James Wallace
 *   *[[Play Nice But Win]]* by Michael Dell
 *   *[[Red Bull Book]]* (German text regarding Dietrich Mateschitz)
-*   *[[Scientific Advertising]]* by Claude Hopkins
 *   *[[Showboat: The Life of Kobe Bryant]]* by Roland Lazenby
 *   *[[Sol Price: Retail Revolutionary and Social Innovator]]* by Robert Price
 *   *[[Source Code: My Beginnings]]* by Bill Gates
-*   *[[The 4-Hour Workweek]]* by Tim Ferriss
-*   *[[The Lessons of History]]* by Will and Ariel Durant
 *   *[[The Making of an American Capitalist]]* by Roger Lowenstein
 *   *[[The Power Broker]]* by Robert Caro
-*   *[[The Psychology of Money]]* by Morgan Housel
-*   *[[The Road]]* by Cormac McCarthy
-*   *[[The Score Takes Care of Itself]]* by Bill Walsh
 *   *[[The Snowball: Warren Buffett and the Business of Life]]* by Alice Schroeder
 *   *[[The Years of Lyndon Johnson]]* (Series) by Robert Caro
 *   *[[Titan: The Life of John D. Rockefeller, Sr.]]* by Ron Chernow
-*   *[[Vagabonding]]* by Rolf Potts
 *   *[[Who Is Michael Ovitz?]]* by Michael Ovitz
 *   *[[William Zeckendorf Autobiography]]* (Zeckendorf: The autobiography of the man who played a real-life game of Monopoly)
+
+## Other Books (Business, Philosophy, Fiction)
+*   *[[All the Pretty Horses]]* (The Border Trilogy) by Cormac McCarthy
+*   *[[Blood Meridian]]* by Cormac McCarthy
+*   *[[Deep Tech]]* by Pablo Holman
+*   *[[Extreme Ownership]]* by Jocko Willink
+*   *[[How to Make a Few Billion Dollars]]* by Brad Jacobs
+*   *[[Musashi]]* by Eiji Yoshikawa
+*   *[[No Country for Old Men]]* by Cormac McCarthy
+*   *[[Scientific Advertising]]* by Claude Hopkins
+*   *[[The 4-Hour Workweek]]* by Tim Ferriss
+*   *[[The Lessons of History]]* by Will and Ariel Durant
+*   *[[The Psychology of Money]]* by Morgan Housel
+*   *[[The Road]]* by Cormac McCarthy
+*   *[[The Score Takes Care of Itself]]* by Bill Walsh
+*   *[[Vagabonding]]* by Rolf Potts
 
 ## Coach's Corner
 *   **Look to the Roots of Genius:** Do not just study the influencer; study the people who influenced the influencer. Find out who [[Steve Jobs]] studied ([[Edwin Land]]), or who [[Warren Buffett]] and [[Charlie Munger]] studied ([[Henry Singleton]]), to uncover the raw materials of greatness.
