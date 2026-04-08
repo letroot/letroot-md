@@ -42,7 +42,14 @@ Daniel asked Mercy to send her April content list and to create social media acc
 Mercy indicated she needed to leave, and the meeting closed with mutual agreement on the next steps centered on the content calendar and social account setup. Both parties acknowledged urgency and the need to move to a higher execution tempo after immediate commitments are delivered.
 
 ## Action Items
-* [ ] **Mercy:** Send the April content list.
-* [ ] **Mercy:** Create social media accounts (with handles and login details) and share them.
-* [ ] **Daniel:** Review the April content calendar once received.
-* [ ] **Daniel:** Produce consistent brand design templates and a posting cadence.
+* [ ] Mercy will schedule and record the first interview episode for the planned series in April.
+* [ ] Mercy will send her April content list to Daniel.
+* [ ] Daniel will review the content calendar and produce brand design templates and a recommended posting cadence.
+* [ ] Mercy will create social media accounts for the project and send the handles and login details together with the content list.
+
+## Key Questions
+* Are you on YouTube and do you plan longer-form interview content?
+* Do you have a content calendar for April?
+
+## Notepad
+* No notes
