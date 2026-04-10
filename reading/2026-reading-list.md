@@ -6,6 +6,7 @@
 3. *Masters of Doom* by David Kushner
 4. *The Bezos Letters* by Steve Anderson
 5. *Breakneck* by Dan Wang
+6. *The Dream Machine* by M. Mitchell Waldrop
 
 ## History
 1. *The Eagle and the Hart* by (Author TBD/Various)
@@ -42,7 +43,7 @@
 3. *Basic Instincts: Human Nature and the New Economics* by Pete Lunn
 
 ## Business / Entrepreneurship
-1. *Shoe Dog* by Phil Knight
+1. *Shoe Dog* by Phil Knight **(read)**
 2. *Business Adventures* by John Brooks
 3. *The Outsiders* by William N. Thorndike
 4. *Common Stocks and Uncommon Profits* by Philip Fisher
@@ -55,9 +56,9 @@
 11. *Predictable Revenue* by Aaron Ross
 12. *The Motive* by Patrick Lencioni
 13. *Buy Back Your Time* by Dan Martell
-14. *How to Get Rich* by Felix Dennis
+14. *How to Get Rich* by Felix Dennis **(read)**
 15. *10X Rule* by Grant Cardone
-16. *Zero to One* by Peter Thiel (Implied from context of similar books)
+16. *Zero to One* by Peter Thiel **(read)**
 17. *The Algebra of Wealth* by Scott Galloway
 18. *Veeck—As in Wreck: The Autobiography of Bill Veeck* by Bill Veeck & Ed Linn
 19. *The Hustler’s Handbook* by Bill Veeck & Ed Linn
