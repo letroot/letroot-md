@@ -141,6 +141,7 @@
 ## Philosophy
 1. *Militant Modernism* by Owen Hatherley
 2. *Wie gut wir sind, zeigt sich in Krisenzeiten* by Jeanette zu Furstenberg
+3. *A World Appears*
 
 ## Fiction
 1. *A River Runs Through It* by Norman Maclean
@@ -163,7 +164,6 @@
 18. *Flesh* by David Szalay
 19. *Authority* by Andrea Long Chu
 20. *Open Up* by Thomas Morris
-21. *A World Appears*
 
 ## Writing / Communication / Arts
 1. *The Sense of Style* by Steven Pinker
