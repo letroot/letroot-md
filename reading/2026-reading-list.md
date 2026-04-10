@@ -17,9 +17,29 @@
 7. *The Wright Brothers* by David McCullough
 8. *Failure Is Not an Option* by Gene Kranz
 
+## Biographies
+1. *Insisting on the Impossible* by Victor K. McElheny
+2. *Land's Polaroid: A Company and the Man Who Invented It* by Peter C. Wensberg
+3. *Am I Being Too Subtle?* by Sam Zell
+4. *Inventor of the Future: The Visionary Life of Buckminster Fuller* by Alec Nevala-Lee
+5. *Becoming Steve Jobs* by Brent Schlender & Rick Tetzeli
+6. *Make Something Wonderful* by Steve Jobs
+7. *How to Make a Few Billion Dollars* by Brad Jacobs
+8. *Against the Odds (or Invention: A Life of Learning Through Failure)* by James Dyson
+9. *Sol Price: For One and All* by Robert E. Price
+10. *The Dream of Solomeo: My Life and the Idea of Humanistic Capitalism* by Brunello Cucinelli
+11. *The Power Broker* by Robert Caro
+12. *Titan: The Life of John D. Rockefeller, Sr.* by Ron Chernow
+13. *The Book of Elon*
+14. *The Path to Power (1982)* by Robert Caro
+15. *Means of Ascent (1990)* by Robert Caro
+16. *Master of the Senate (2002)* by Robert Caro
+17. *The Passage of Power (2012)* by Robert Caro
+
 ## Economics
 1. *The Origins of Poverty and Wealth* by Rainer Zitelmann
 2. *Our Crumbling Foundation* by Gregor Craigie
+3. *Basic Instincts: Human Nature and the New Economics* by Pete Lunn
 
 ## Business / Entrepreneurship
 1. *Shoe Dog* by Phil Knight
@@ -50,16 +70,24 @@
 26. *Good Strategy/Bad Strategy* by Richard Rumelt
 27. *Starting a Business All-in-One For Dummies*
 28. *The Lean Startup* by Eric Ries
-29. *Traction*
+29. *Systemology* by David Jenyns
+30. *Obvious Adams* by Robert Updegraff
+31. *Extreme Ownership* by Jocko Willink
+32. *No Rules Rules* by Reed Hastings and Erin Meyer
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
 2. *Pre-suasion* by Robert Cialdini
-3. *Getting to yes* by Robert Cialdini (Note: Getting to Yes is primarily negotiation, often attributed to Fisher/Ury, but Cialdini wrote Pre-Suasion)
+3. *Getting to yes* by Robert Cialdini
 4. *$100M Offers* by Alex Hormozi
 5. *On Marketing* by Sam Parr
 6. *Ogilvy On Advertising* by David Ogilvy
 7. *The Adweek Copywriting Handbook* by Joseph Sugarman
+8. *Obviously Awesome* by April Dunford
+9. *Sell Like Crazy* by Sabri Suby
+10. *Traction* by Gabriel Weinberg and Justin Mares
+11. *Great Leads: The Six Easiest Ways to Start Any Sales Message* by Michael Masterson and John Forde
+12. *Building a StoryBrand* by Donald Miller
 
 ## Investing / Finance
 1. *The Intelligent Investor* by Benjamin Graham
@@ -76,7 +104,6 @@
 12. *The Holy Grail of Investing* by Tony Robbins
 
 ## Personal Development / Mindset
-13. *Beyond Belief: The Science-Backed Way to Stop Limiting Yourself and Achieve Breakthrough Results* by Nir Eyal
 1. *Atomic Habits* by James Clear
 2. *The Mountain is You* by Brianna Wiest
 3. *Almanack of Naval Ravikant* by Eric Jorgenson
@@ -89,25 +116,31 @@
 10. *The Intellectual Life* by A.G. Sertillanges
 11. *On Settling* by Robert Goodin
 12. *38 letters of Rockefeller to his son* by John D. Rockefeller
-13. *Beyond Belief* by Nir Eyal
+13. *Beyond Belief: The Science-Backed Way to Stop Limiting Yourself and Achieve Breakthrough Results* by Nir Eyal
 14. *Hooked - How to Build Habit Forming Products* by Nir Eyal
 15. *Indistractable* by Nir Eyal
 16. *Choose Yourself* by James Altucher
 17. *The Miracle Morning* by Hal Elrod
 18. *Driven*
 19. *Success Affirmations*
+20. *How to Change your Mind* by Michael Pollan
+21. *The Way of Excellence*
 
-## Science / Health
+## Science / Health / Psychology
 1. *Body by Science* by Doug McGuff
 2. *The Distracted Mind* by Adam Gazzaley and Larry D. Rosen
 3. *Apprentice to Genius* by Robert Kanigel
 4. *Proto* by Laura Spinney
 5. *Power, Sex, Suicide* by Nick Lane
 6. *Food Intelligence* by Julia Belluz and Kevin Hall
+7. *Cognitive Behavior Therapy* by Judith Beck
+8. *ACT Made Simple* by Russ Harris
+9. *Altered Traits* by Daniel Goleman and Richard Davidson
+10. *The Infinity Machine*
 
 ## Philosophy
-1. *Militant Modernism* by Owen Hatherley (Aesthetics/Political Philosophy)
-2. *Wie gut wir sind, zeigt sich in Krisenzeiten* by Jeanette zu Furstenberg (Political/Social)
+1. *Militant Modernism* by Owen Hatherley
+2. *Wie gut wir sind, zeigt sich in Krisenzeiten* by Jeanette zu Furstenberg
 
 ## Fiction
 1. *A River Runs Through It* by Norman Maclean
@@ -130,20 +163,22 @@
 18. *Flesh* by David Szalay
 19. *Authority* by Andrea Long Chu
 20. *Open Up* by Thomas Morris
+21. *A World Appears*
 
 ## Writing / Communication / Arts
 1. *The Sense of Style* by Steven Pinker
 2. *Impro* by Keith Johnstone
 3. *The Grand Affair: John Singer Sargent in His World* by Paul Fisher
+4. *Nonviolent Communication* by Marshall B. Rosenberg
 
 ## Authors to Explore
-1. *Nassim Taleb* (Specific book not listed, recommend *Antifragile* or *The Black Swan*)
-2. *Robert Caro* (Specific book not listed, recommend *The Power Broker*)
-3. *Norman Maclean* (See Fiction category for *A River Runs Through It*)
+1. *Nassim Taleb*
+2. *Robert Caro*
+3. *Norman Maclean*
 
 ## Curated Reading Lists / Resources to Explore
-1. *Tyler Cowen 2024 best nonfic* (Link provided in chat)
+1. *Tyler Cowen 2024 best nonfic*
 2. *Movies - Tyler Cowen movie list*
 3. *TNY movie list*
 4. *New Yorker Article (The Driver’s Seat)*
-5. *Twitter Thread by Will Manidis* (Link provided in chat)
+5. *Twitter Thread by Will Manidis*
