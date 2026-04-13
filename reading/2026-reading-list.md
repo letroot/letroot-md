@@ -78,6 +78,8 @@
 33. *Principles* by Ray Dalio
 34. *How to Make a Billion in 9 Steps* by Sir Richard Harpin
 35. *High Growth Handbook* by Elad Gil
+36. *High Output Management* by Andrew S. Grove
+37. *The 15 Commitments of Conscious Leadership* by Jim Dethmer, Diana Chapman, and Kaley Klemp
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
