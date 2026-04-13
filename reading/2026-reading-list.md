@@ -122,14 +122,13 @@
 11. *On Settling* by Robert Goodin
 12. *38 letters of Rockefeller to his son* by John D. Rockefeller
 13. *Beyond Belief: The Science-Backed Way to Stop Limiting Yourself and Achieve Breakthrough Results* by Nir Eyal
-14. *Hooked - How to Build Habit Forming Products* by Nir Eyal
-15. *Indistractable* by Nir Eyal
-16. *Choose Yourself* by James Altucher
-17. *The Miracle Morning* by Hal Elrod
-18. *Driven*
-19. *Success Affirmations*
-20. *How to Change your Mind* by Michael Pollan
-21. *The Way of Excellence*
+14. *Indistractable* by Nir Eyal
+15. *Choose Yourself* by James Altucher
+16. *The Miracle Morning* by Hal Elrod
+17. *Driven*
+18. *Success Affirmations*
+19. *How to Change your Mind* by Michael Pollan
+20. *The Way of Excellence*
 
 ## Science / Health / Psychology
 1. *Body by Science* by Doug McGuff
@@ -190,3 +189,6 @@
 3. *TNY movie list*
 4. *New Yorker Article (The Driver’s Seat)*
 5. *Twitter Thread by Will Manidis*
+
+## Product / Strategy
+1. *Hooked - How to Build Habit Forming Products* by Nir Eyal
