@@ -75,6 +75,9 @@
 30. *Obvious Adams* by Robert Updegraff
 31. *Extreme Ownership* by Jocko Willink
 32. *No Rules Rules* by Reed Hastings and Erin Meyer
+33. *Principles* by Ray Dalio
+34. *How to Make a Billion in 9 Steps* by Sir Richard Harpin
+35. *High Growth Handbook* by Elad Gil
 
 ## Marketing / Sales
 1. *Influence* by Robert Cialdini
@@ -89,6 +92,7 @@
 10. *Traction* by Gabriel Weinberg and Justin Mares
 11. *Great Leads: The Six Easiest Ways to Start Any Sales Message* by Michael Masterson and John Forde
 12. *Building a StoryBrand* by Donald Miller
+13. *Made to Stick* by Chip and Dan Heath
 
 ## Investing / Finance
 1. *The Intelligent Investor* by Benjamin Graham
@@ -171,6 +175,9 @@
 2. *Impro* by Keith Johnstone
 3. *The Grand Affair: John Singer Sargent in His World* by Paul Fisher
 4. *Nonviolent Communication* by Marshall B. Rosenberg
+5. *How to Argue & Win Every Time* by Gerry Spence
+6. *How to Write Clearly* by Tom Albrighton
+7. *The Workshop Survival Guide* by Rob Fitzpatrick and Dev Hunt
 
 ## Authors to Explore
 1. *Nassim Taleb*
