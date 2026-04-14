@@ -107,6 +107,38 @@ If you want to be rich you must work for it. But you must believe in it, too. Yo
 
 If you want to be rich you must work for it. But you must believe in it, too. You must believe in yourself, if only to armor yourself against the laughter of the gods in your quest. Your mad quest to be rich.
 
+“Trust your instincts. Do not be a slave to them, but when your instincts are screaming, Go! Go! Go! then it’s time for you to decide whether you really want to be rich or not. You cannot do this in a deliberate, considered manner. You can’t get rich painting by numbers. You can only do it by becoming a predator, by waiting patiently, by remaining alert and constantly sniffing the air and by bringing massive, murderous force to bear upon your prey when you pounce.”
+
+### Make More Baskets: Diversify!
+> “Just remember that this advice is not designed for your start-up phase. During the start-up, you concentrate on that one basket as if your life (and the life of your firstborn) depends upon it. But once you have something that’s working and making some money, start looking around quickly for another opportunity. The more baskets the better.”
+
+### Listen and Learn
+“Listening is the most powerful weapon after self-belief and persistence you can bring into play as an entrepreneur. And yet I’m familiar with numerous senior executives running large companies who might spend two or three weeks in between listening to a “stranger”—or a “minion.””
+
+## Chapter 10 - A Few Words About Luck
+
+### The Invincible Worm of Doubt
+“Preparation is the key. Be prepared. Do the heavy lifting and the homework in advance. Get on with the job, but remain alert enough to spot an opportunity when it arrives. Then hammer it.”
+
+### The Nature of Albert's Misfortune
+“Is luck just “a dividend of sweat”? How many times can one person “dust themselves down, pick themselves up and start all over again” before they lose heart? I have already mentioned Winston Churchill’s “If you’re going through hell, keep going.”
+
+“Then again, Albert is more intelligent than I am. He had a grand education and read all the right books at university. He is not a self-taught scholar, as I am. But there is a downside to all this intelligence and imagination. He thinks a little too much before he acts. He weighs the options too carefully. He is capable of imagining defeat.”
+
+“There are other differences between Albert and me. He is a great believer in partnering and share options and employee profit participation. I shall be devoting an entire chapter to this subject (See Chapter 14: A Piece of the Pie), but I will mention, here, that in Albert’s case, this division of the spoils is undertaken in the minutest detail, long before there are any profits whatever to share. Albert believes they encourage his coworkers. But such arrangements are immensely time-consuming and a distraction from the tunnel vision necessary to become rich in the first place.
+Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilating and mastering detail. But he is a perfectionist and his powers of delegation are stunted. He’s so good at what he does that he is unwilling to accept even slightly second-best. This means, for him, that he must do it himself. And if by chance he doesn’t get it exactly right the first time, then he will do it over and over again until it is right. Until it is perfect.”
+
+## Chapter 11 - The Art of Negotiating
+
+### The Balance of Weakness
+“All negotiations arise from weakness, unless you are one of that strange tribe who finds themselves intoxicated with the process of bargaining and negotiating itself. Sure, haggling can be fun, but it’s only a means to an end as far as this book is concerned.”
+
+“If you “negotiate out of fear” you are not “negotiating.” You are surrendering in all but name. As to the second half of his pronouncement, he is saying that it’s always worth listening to the other side in the search for mutually beneficial agreements. ”
+
+### Management Bargaining vs. Serious Negotiations
+
+### The Elephant and the Flea
+
 ## Notable Quotes
 
 > "No one would remember the Good Samaritan if he'd only had good intentions. He had money as well." — MARGARET THATCHER

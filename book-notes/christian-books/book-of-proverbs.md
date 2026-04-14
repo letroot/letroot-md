@@ -184,6 +184,26 @@ A true witness delivers souls --> telling people the truth would save their live
 Work on impulsiveness, it would cost you everything.
 
 
+### Chapter 30
+>There be four _things which are_ little upon the earth, but they _are_ exceeding wise: The ants _are_ a people not strong, yet they prepare their meat in the summer; The conies _are but_ a feeble folk, yet make they their houses in the rocks; The locusts have no king, yet go they forth all of them by bands; The spider taketh hold with her hands, and is in kings' palaces.
+
+Wisdom makes up for where strength falls short. 
+- **Ants:** planning ahead of time, foresight and compounding with resources, delayed gratification ensure that they don't lack in the winter. The strength of the lion cannot save him when nature fails in the seasons and it has nothing to fall back on. In fact, the lion's psychology, physiology and sociology by definition mean it can't plan and save the way an ant can. 
+You can get very far with the right systems, right way of doing things. Save your money, make it work for you to buy freedom!
+- **Conies:** Not sure how these work but I'll guess that they have bodily tools and methods of burrowing that make the impossible possible. Have good tools and you can wield rocks — you can do really great things.
+- **Locusts:** they have no king but they are able to organise themselves without ego. Get coordination of talent right and you can do big things. Never lead with ego and never allow ego feature in your teams and how they function. Organise everyone around the mission. That's how to lead. Make the goals clear and enforce accountability and inspire responsibility
+- **Spider:** Spider is an opportunist. In the palace certain conditions align all at once: friendly climate, low threat from humans, and the interior architecture that allows it to spin webs traversely. Arrange or seek out optimal conditions for growth and exploit these.
+
+
+
+
+
+
+
+
+
+
+
 ## Notable Quotes
 - "Immorality is a knowledge problem... the person is walking without the knowledge of the truth on his heart."
 - "My expressions are first very, very much founded on an understanding... of how God wants things to be."
