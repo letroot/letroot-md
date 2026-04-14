@@ -2,7 +2,7 @@
 tags: [podcast, waka-droid-documentary, power-crisis, nigeria, infrastructure]
 date: 2026-04-14
 episode: "How One State Solved Nigeria's 50-Year Power Crisis"
-guests: [[Professor Bart Nnaji]], [[Alex Otti]]
+guests: ["[[Professor Bart Nnaji]]", "[[Alex Otti]]"]
 url: 
 type: documentary
 ---

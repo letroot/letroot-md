@@ -2,7 +2,7 @@
 tags: [podcast, waka-droid-documentary, oil-crisis, dangote, infrastructure]
 date: 2026-04-14
 episode: "Why the World's Worst Oil Crisis Made One Nigerian Billionaire Unstoppable"
-guests: [[Aliko Dangote]], [[Bola Tinubu]]
+guests: ["[[Aliko Dangote]]", "[[Bola Tinubu]]"]
 url: 
 type: documentary
 ---
