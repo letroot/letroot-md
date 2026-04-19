@@ -7,35 +7,112 @@ url: https://www.youtube.com/watch?v=kVoy_g-vjFA
 type: solo
 ---
 
-# Healing in the Newness of Life (Part 6)
-
 ## Summary
-In this episode of the Pleros Podcast, Pastor Akim explores the foundational role of [[Healing]] in the believer's [[Newness of Life]]. He argues that healing is not an optional extra but a primary demonstration of [[Redemption]], intimately tied to the preaching of the [[Gospel of the Kingdom]]. By examining the ministries of Jesus and the Apostles, Pastor Akim clarifies that while healing is fully available by redemption, it is not an automatically "affected" physical state; rather, it is a reality that must be "walked in" by [[Faith]] and the power of the [[Holy Spirit]]. The same Spirit that will ultimately effect [[Immortality]] and incorruption is currently resident in the believer to effect healing in their mortal body today.
+In this episode, Pastor Akim continues the series on [[Healing]] within the framework of the [[Newness of Life]]. He argues that healing is an inseparable component of the [[Gospel]], serving as a present-day demonstration of the redemption that will eventually culminate in total immortality. By distinguishing between "available" and "affected" realities, the teaching emphasizes that believers must actively walk in the power of the [[Holy Spirit]] to see physical restoration manifest in their bodies.
 
 ## Key Insights
-- **Healing as a Demonstration of the Kingdom:** Jesus' ministry was defined by a consistent pattern of preaching the Gospel and healing all sickness (Matthew 4:23, 9:35). Healing serves as a present-day sign of the coming [[Kingdom of God]], where mortality and corruption will be completely abolished.
-- **Available vs. Affected:** A crucial distinction is made between the "availability" of healing and it being "affected" in the body. Just as the believer's new nature is legally established but must be manifested through conduct, physical healing is available through redemption but must be activated or affected in the body through growth in faith.
-- **The Holy Spirit's Present Role:** The [[Holy Spirit]] is the agent of both future resurrection and current healing. Citing Romans 8:11, Pastor Akim emphasizes that the same Spirit that raised Jesus is presently available to "quicken" and heal the believer's mortal body.
-- **The Gospel Creates Faith for Healing:** In Acts 14:7-10, Paul's preaching of the Gospel directly resulted in a man having the [[Faith]] to be healed. This shows that the message of redemption inherently contains the provision for physical restoration.
-- **Correction on Popular Healing Texts:** 
-    - **1 Peter 2:24:** Clarified as primarily addressing the spiritual reconciliation (the healing of the death-condition) that allows us to live unto righteousness.
-    - **Matthew 8:16-17:** Presented as evidence that Jesus is the one who deals with the broader problem of death and disease through His redemptive work.
+*   [[Healing]] was a primary and consistent demonstration of the Kingdom of God in the ministry of Jesus and the Apostles.
+*   The same [[Holy Spirit]] who will effect final immortality at the resurrection is the one who effects physical healing in the present day.
+*   Redemption makes healing "available" as a reality of the [[Newness of Life]], but it is not automatically "affected"; it must be walked in through [[Faith]].
+*   Verses like 1 Peter 2:24 and Matthew 8:17 point to Jesus as the source of life who deals with the root problem of death, providing the basis for both spiritual and physical restoration.
+*   The [[Gifts of the Spirit]] are not merely discretionary occurrences but available realities that believers are encouraged to initiate and minister to others.
+
+---
+
+## Content-Based Headings
+
+## Introduction to the Newness of Life
+Welcome to Play Rose Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's Word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's Word taught to be. Let's get right into it.
+
+Alright, welcome back to the Play Rose Podcast. This is your daily dose of God's Word to transform you to fulfill God's purpose for your life. Now, we're still looking at healing in the Nunez of Life and we have come a long way so we would be getting to the more practical side soon. We are examining this subject matter because we can only fulfill God's purpose by greening all the realities God expects us to, which are the realities of the [[Newness of Life]].
+
+## The Spectrum of Redemptive Realities
+And we are trying to look at it from the external realities as it were into the internal one, even though they sort of overlap. So we are looking at what is available in the [[Newness of Life]] to our body, what is available in the [[Newness of Life]] to the cosmos, what is available in the [[Newness of Life]] to our world, our conduct, etc. So we're trying to look at it across the spectrum.
+
+So, presently, because it's more immediately relatable for people and will be needed for all the explanation, as well as it's a very necessary truth we must examine. That's why we are looking at [[Healing]] first. It's so important and it was that important to the Lord Jesus. As I was preaching and teaching the [[Gospel]], there was nothing we told the Lord did more than healed the sick.
+
+## The Inseparability of Preaching and Healing
+And it's one of the most important things we can do to present the truth of healing that people may hear it and also to minister the power of God that heals, that people may receive it. So we could look at the number of texts in that regard that alongside a lot proclaiming the Kingdom of God, which, if we recall, the Kingdom of God in its full effect is a state where there is not even mortality and there is not even corruption. 
+
+So alongside him, proclaiming the Kingdom of God is him, healing the sick. You can see that as Matthew chapter 4, and verse 23, it was a consistent pattern of his ministry, Matthew 4, and verse 23. The Lord said, the Lord went about all Galilee teaching in the Asynagogues, preaching the [[Gospel]] of the Kingdom and healing all kinds of sickness and all kinds of disease among the people.
+
+## Defining the Purpose of Redemption
+So as I was preaching, teaching the Kingdom that this is what God intends. This is how God wanted life to be. This is what His purpose is. This is what has gone. This is redemption that has been wrote. And this is what is now available to you because of redemption that is to be fulfilled, because it was yet to fulfill that. It was affecting that reality of healing to them in view of the consummation of redemption where we would now have immortality and corruption.
+
+So Matthew chapter 9, we reflect the same thing. Now not just Galilee this time around, but everywhere else, Matthew 9 and verse 35. Jesus went about all the cities and villages teaching in the Asynagogues, preaching the [[Gospel]] of the Kingdom and healing all, sorry. Teaching preaching the [[Gospel]] of the Kingdom and healing every sickness and every disease and healing every sickness and every disease.
+
+## Healing as a Demonstration of Life
+So there's no debate whatsoever that healing was an emphatic part of his ministry. In fact, another text I like to show us in making this very point on point that the preaching of the [[Gospel]], the preaching of redemption, the preaching of [[Gospel]], the preaching of the new life we have as healing as one of his most primary demonstration is in Acts chapter 14. 
+
+It's so baked into the teaching of the [[Gospel]] that we're told Paul was preaching the [[Gospel]] and in his preaching the [[Gospel]], preaching redemption, preaching freedom from death was the fate for someone to receive healing. Look at it in Acts chapter 14 and verse 7, and they were preaching the [[Gospel]] there. And in Leastry, sat in man without strength in his feet was sitting a cripple from his mother's womb who had never walked.
+
+## Faith for Physical Reality
+This man heard Paul speaking, Paul observing him intently and saying that he had faith to be healed. Paul was speaking about the [[Gospel]], the fact that what Christ has done has abolished death and has brought life and immortality to light and became obvious that in that sense there is presently available the option, there is presently available, the option of physical healing or there's presently available the reality of physical healing for that man today. This shows us just how ingrained, you know, just how inseparable the preaching of the [[Gospel]] and the reality of healing is in redemption, okay? So we see that fact.
+
+## The Agency of the Holy Spirit
+Now just to recall where I've been studying this, you know, if we say the [[Newness of Life]] of coming to is about the very life God wants us to enter to in the age to come and that life is going to be a state where there is no mortality in our body, no corruption matter because the Lord we fed that at the end. The next question is what is available to our body and to matter today? 
+
+Now we start looking at the case of our body first and we saw that what Lord we fact from a speak of immortality to our bodies is going to do by the spirit and that very same spirit that very power of the age to come is available to us now and is affecting something in us and so we ran through a number of texts where we saw that the spirit is the means by with the Lord carried out healing as it did.
+
+## Healing in the Present Age
+The same spirit that is going to affect immortality is the same spirit that today affects healing. So Romans 8 11 says is the spirit that is going to affect immortality in our bodies at the end. Second Corinthians 5, 4 and 5 tells us is the spirit that is going to cause mortality to be swallowed up of life and then we then see that it is by this same spirit the Lord carried out is healing ministry. Very important. 
+
+If the means of this healing was not just the fact that it was him doing it but the very spirit that risked him and that would resource at the end then we know that if that means the spirit is available to us to do is available in the life that we have then healing is available in the knownness of life. It's part of the reality available to us today. So we should consider healing as part of the life we have in Christ to be walked in very important.
+
+## Available vs. Affected Realities
+There is a way and I hope I hope you are not losing the train of thought here. There's a way we can think about healing as effected in redemption and it should be wrong. The same way mortality is going to be affected at the Lord's coming. It's not yet been affected. Healing was not affected in redemption. It was made available by redemption. It's supposed to be walked in. 
+
+You know, mortality is going to be affected by the Lord Jesus as it's coming. The power of this spirit is going to be walked in our bodies and we're going to be brought into a state of immortality and incorruption. But the same way healing is not already affected in redemption. Now, there are texts people go to to make such a case and those texts were seven and another perverse like first bit at the top of the twenty-first twenty-four by stripes were healed and his intention there was majorly about the condition we were in on that death that made us separated from God and I asked you those of that way of redemption and now we are back to God.
+
+## Correcting Theological Misconceptions
+You know, we are reconciled back to God. Now, when we did that healing of all spiritually, it does reconciled us to God. That healing has in heat, physical healing. Like we're talking about now, right? You understand? Now, in the [[Newness of Life]] there is healing. But that text itself is not talking about physical healing. You're talking about fixing the condition that made us separated from God, that made us apart from God. 
+
+The other one is Matthew 8 and it's understandable because in that very instance the Lord had just healed the sick and then the author intended to give like a form of corroboration that is the one that is going to deal with this problem of death that is in the world is going to be our sickness and disease. So that's the intention of the author there. Taking a text that is talking about the work of someone who redeems, who deals with this problem and then showing it as it's going to be the Lord Jesus who does this work because of the ministry that we see in carrying out.
+
+## The Necessity of Spiritual Growth
+So that was the intention in Matthew and in chapter 8. I'm not going to focus on those texts and spend some more time on doing an exegesis on them, but that's just the essence of what those texts are communicating. So while those two texts Matthew 8, 16, 17 and 1st Peter 2, 24 are not texts intended to say that healing has already been affected in redemption. They are simply text to say that Jesus is the one who is going to effect healing this spiritual condition of death and by so doing bring life and in that life healing like mortality would be available. 
+
+Right. So healing is not an affected reality. It leads to some form of dissonance when we say that like oh someone is healed but the person is like this it's the kind of big sort of like a confusion. Now if we're talking about you having a new character in Christ we know that as your nature but someone might be walking in the flesh and just like someone could walk in the flesh despite having the new nature in the [[Newness of Life]] someone might still be in a six states physically.
+
+## Walking in the Power of the Spirit
+Despite the fact that healing is available in the [[Newness of Life]] the healing is not affected any more than the nature is affected in someone's work. The person has to grow spiritually for that to be affected in ease or a walk seeing with the person has to grow in faith about healing for the person to walk in it or minister it to others. So healing is fully available in the [[Newness of Life]]. Healing is fully available by redemption. 
+
+A new character, a new nature is fully available in the [[Newness of Life]] and by redemption but we have to walk in it. This is a very important distinction. Now we have seen several texts already about healing's availability in the spirits that we have. You know it is by that spirit that Jesus cast out demons and you would seek Magi Chapter 12 and verse 28, Acts chapter 10, verse 28, Luke chapter 4, 14, alongside Luke chapter 5, 17. We also taught power, flood out of him, Luke 6, 19, etc.
+
+## The Gifts of the Spirit and Initiative
+So it is the same power of the spirit. The same spirit that has mortality has healing. Healing is available in the spirit. Healing is available in the [[Newness of Life]] today. Another text we can point to to speak of healing's availability in the spirit or in the [[Newness of Life]] today is 1 Corinthians 12 and verse 9. The text on the [[Gifts of the Spirit]]. Now in 1 Corinthians 12 and 9 it says to another faith by the spirit to another gifts of aliens by the same spirit. 
+
+So it speaks of healing has a reality that is in the spirit. In 1 Corinthians 12 and 28 it says God has appointed this in the church. First apostles are really prophetic teachers. After that miracles then gifts of healings. And in verse 13 it says do all I have gifts of healings. Now there are tons of debates on the [[Gifts of the Spirit]] and how the priests and unfortunately it does not have focus in this particular episode or even on the podcast for now.
+
+## Conclusion and Call to Action
+There might be a time we'll get to that and because it's an area where by the data that we have from God's word the degree of satiety on almost every conclusion is low. It's one of those subject matters where we present the most plausible case for what the author intended to see. But that aside the conclusion we want to make here is healing is available in the spirit that is in us. Healing is available in the spirit as in us. From the Lord Jesus we can see that from the apostles we can see that all the way to the episode as well. We can see healing is available in the spirit in us now. 
+
+Usually people want to go to 1 Corinthians 12 alone and say healing was said to be available as a gift of the spirit which is at the discretion of the spirit and so it is not readily available. We have no choice about the matter. It's a priest just discretionary leave. But that's not the attitude we find the Lord present to us at all in the fogus booth. He gave the power of the spirit and his authority to people to heal the sick and he told them freely I've received freely give you take the initiative. So healing consistently is presented as not a discretionary matter but an available matter to be affected. It is an available reality to be affected. Redemption has not affected healing. Redemption has made healing available. Healing is now available in the [[Newness of Life]] and healing is to be affected in our bodies. A new character in new nature is available in the [[Newness of Life]] and is to be affected in our conduct. Healing is available in the [[Newness of Life]] and is to be affected in our bodies. And we'll try to talk more on that. How do we walk in this healing path that is available to us in the next episode. For now, God bless you for few gospoppos and PIEWED. Amen.
+
+We trust you are blessed by today's episode. Do stay in faith about how you've heard to walk in it. To learn more of God's work, visit plerose.hog. You will find answers to your questions on the [[Gospel]], God, His purpose and how to fulfill it. Whilst on our website, don't forget to join the plerose community channel on water and follow us on all our social media handles at plerose.hog.hog. For now, stay blessed and keep walking in His purpose.
+
+---
 
 ## Coach's Corner
-- **[[Newness of Life]]:** The reality of the believer's life in Christ, characterized by the "life of the age to come." This includes physical healing as part of the spectrum of redemption.
-- **[[Redemption]]:** The comprehensive work of [[Jesus Christ]] that deals with the problem of death. While its final consummation is [[Immortality]], its present benefits include physical healing.
-- **[[Holy Spirit]]:** The resident power within the believer. The Spirit is the means by which healing is affected and is the "earnest" of our future incorruptible state.
-- **[[Faith]]:** The spiritual mechanism by which we bridge the gap between what is legally "available" in redemption and what is physically "affected" in our bodies.
-- **[[Kingdom of God]]:** The ultimate state of divine order. Healing acts as a "power of the age to come" breaking into the present.
+*Young man, if you are building a SaaS, this episode has a profound architectural lesson for you regarding **Availability vs. Execution (Affected Reality).***
+
+In the [[Newness of Life]], Pastor Akim explains that [[Healing]] is "available" but not yet "affected" in the body. It requires a walk of [[Faith]] and spiritual growth to manifest. This is exactly how you must view your product's potential and your market's "readiness."
+
+1.  **The "Available" Market:** Just because a problem exists (e.g., inefficient workflow) and you have the "redemptive" solution (your code), doesn't mean the value is "affected" (realized revenue/growth). The "availability" of a market is just the starting point. You must "walk in it" through sales, customer success, and iterative shipping.
+2.  **The [[Holy Spirit]] as the Engine:** In your SaaS, your "Spirit" is your core value proposition and your team's execution engine. The same vision that drives your 10-year goal (immortality) must be the same power that fixes the bug in front of you today (present healing). Don't wait for the "future consummation" of your exit to start operating with the power of excellence now.
+3.  **Taking the Initiative:** Pastor Akim notes that [[Healing]] isn't just a "discretionary gift" we wait for; we are told to "freely give." In business, don't wait for "luck" or a "discretionary" viral moment. Take the initiative. Build the features, reach out to the leads, and "affect" the reality of your company's success through disciplined action.
+
+Availability is a gift; manifestation is a discipline. Go build.
+
+---
 
 ## Action Items
-- [ ] **Meditate on Romans 8:11:** Study the relationship between the indwelling Spirit and the "quickening" of your physical body.
-- [ ] **Practice the "Walk of Healing":** Approach healing not as a one-time petition for a discretionary gift, but as a consistent walk in an available redemptive reality.
-- [ ] **Align Faith with the Gospel:** Recognize that hearing the Gospel of redemption should naturally stir up expectations for physical healing and restoration.
+*   **Study:** Read Matthew 4:23, Matthew 9:35, and Acts 14:7-10 to see the pattern of [[Gospel]] preaching joined with [[Healing]].
+*   **Reflect:** Identify areas in your life where you have treated [[Healing]] as a "discretionary maybe" instead of an "available reality" of the [[Newness of Life]].
+*   **Practice:** Begin to "walk in" your new nature by speaking God's Word over your physical health and the health of those around you.
+*   **Meditate:** Internalize Romans 8:11—recognize that the same [[Holy Spirit]] in you is the life-giver for your mortal body.
 
 ## Resources
-- **Matthew 4:23 / Matthew 9:35:** Scriptural foundation for Jesus' healing ministry.
-- **Acts 14:7-10:** Demonstration of the Gospel producing faith for healing.
-- **Romans 8:11 / 2 Corinthians 5:4-5:** The Spirit's role in the body.
-- **1 Corinthians 12:9, 28:** Healing as a gift/reality in the Spirit.
-- **1 Peter 2:24 / Matthew 8:16-17:** Exegesis on the scope of redemptive healing.
+*   [Pleros Official Website](https://plerose.org) - Access more teachings on God's purpose.
+*   [[Newness of Life]] Series - Previous episodes for foundational context.
+*   Pleros Community Channel - Join for daily updates and discussions.
