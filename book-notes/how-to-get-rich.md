@@ -139,6 +139,21 @@ Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilati
 
 ### The Elephant and the Flea
 
+- The flea has established to his own satisfaction the elephant’s urgent need.
+- The flea has learned to ignore flattery.
+- The flea has learned that an elephant cannot be your friend in negotiations.
+- The flea has learned he is not a good negotiator.
+- The flea has learned to “empty” himself and make himself believe he does not care.
+- The flea has overcome his lack of skill by setting a price he will not deviate from.
+- The flea has hardened his heart and has walked away when the price was not met.
+- The flea has introduced a rogue element (the trade magazine) into the negotiations.
+- The flea has weighed Greed vs. Need. He believes Need will outweigh Greed.
+
+### A Few Tips on Negotiating
+
+
+
+
 ## Notable Quotes
 
 > "No one would remember the Good Samaritan if he'd only had good intentions. He had money as well." — MARGARET THATCHER
