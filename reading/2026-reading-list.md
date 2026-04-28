@@ -7,6 +7,10 @@
 4. *The Bezos Letters* by Steve Anderson
 5. *Breakneck* by Dan Wang
 6. *The Dream Machine* by M. Mitchell Waldrop
+7. *Computer Lib* by Ted Nelson
+8. *Swimming Across* by Andy Grove
+9. *The Idea Factory* by Jon Gertner
+10. *A Culture of Growth* by Joel Mokyr
 
 ## History
 1. *The Eagle and the Hart* by (Author TBD/Various)
