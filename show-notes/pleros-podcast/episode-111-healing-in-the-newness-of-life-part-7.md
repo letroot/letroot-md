@@ -1,12 +1,12 @@
 ---
-title: "Healing in the Newness of Life (Part 6)"
+title: "Healing in the Newness of Life (Part 7)"
 date: 
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=..."
 type: solo
 ---
 
-# Healing in the Newness of Life (Part 6)
+# Healing in the Newness of Life (Part 7)
 
 ## Introduction to the Newness of Life
 

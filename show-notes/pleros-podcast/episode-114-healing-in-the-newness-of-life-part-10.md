@@ -1,12 +1,12 @@
 ---
-title: "Healing in the Newness of Life (Part 9)"
+title: "Healing in the Newness of Life (Part 10)"
 date: 2026-04-26
 tags: [podcast, pleros, christianity, healing, faith]
 url: "https://www.youtube.com/@ThePlerosPodcast/videos"
 type: solo
 ---
 
-# Healing in the Newness of Life (Part 9)
+# Healing in the Newness of Life (Part 10)
 
 ## Summary
 In this episode, Pastor Akim continues the series on walking in the newness of life, focusing specifically on healing. He establishes that while immortality of the body will be fully realized at Christ's return, healing is available right now through redemption. He emphasizes that healing is not dispensed arbitrarily at God's discretion, but is actively effected by faith, pointing to the ministry of Jesus and the early church as proof that believers must walk in this reality.

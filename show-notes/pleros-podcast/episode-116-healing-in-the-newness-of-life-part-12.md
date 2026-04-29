@@ -1,12 +1,12 @@
 ---
-title: "Healing in the Newness of Life (Part 11)"
+title: "Healing in the Newness of Life (Part 12)"
 date: 2026-04-25
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=p6G5SYnDZuY"
 type: solo
 ---
 
-# Healing in the Newness of Life (Part 11)
+# Healing in the Newness of Life (Part 12)
 
 In this episode of the [[Pleros Podcast]], [[Pastor Akim]] continues the series on [[Healing]] in the [[Newness of Life]]. The core message focuses on the distinction between [[Redemption]] making healing available and [[Faith]] being the mechanism that effects it. The teaching explores various dimensions of faith—including the faith of the recipient, third parties, and the often-overlooked responsibility of the [[Minister's Faith]]. Using the examples of the epileptic boy in [[Mark 9]] and the lame man at the Gate Beautiful in [[Acts 3]], the episode emphasizes that healing is a settled reality in the [[Gospel]] to be received by the design of faith.
 

@@ -1,12 +1,12 @@
 ---
-title: "The Reality of God's Purpose (Part 8)"
+title: "The Reality of God's Purpose (Part 10)"
 date: 2026-02-25
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=2QBH5MPoIEY"
 type: solo
 ---
 
-# The Reality of God's Purpose (Part 8)
+# The Reality of God's Purpose (Part 10)
 
 Our ongoing study explores the reality of God's purpose. Our aim is to clarify why each of us is on earth. For the believer, few truths are more crucial to firmly grasp than the purpose of their existence.
 

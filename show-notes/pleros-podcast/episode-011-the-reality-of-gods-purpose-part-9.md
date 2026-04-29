@@ -1,12 +1,12 @@
 ---
-title: "The Reality of God's Purpose (Part 7)"
+title: "The Reality of God's Purpose (Part 9)"
 date: 2026-02-25
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=JBspO_ooO7Y"
 type: solo
 ---
 
-# The Reality of God's Purpose (Part 7)
+# The Reality of God's Purpose (Part 9)
 
 The subject we have been focusing on is God's purpose. If you have been following, you have learned some things and now understand precisely what God's purpose is. One crucial point we've discussed is that you cannot truly know someone's purpose except through revelation.
 

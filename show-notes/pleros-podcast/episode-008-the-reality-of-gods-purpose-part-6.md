@@ -1,12 +1,12 @@
 ---
-title: "The Reality of God's Purpose (Part 4)"
+title: "The Reality of God's Purpose (Part 6)"
 date: 2026-02-25
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=nRG0vYyifSo"
 type: solo
 ---
 
-# The Reality of God's Purpose (Part 4)
+# The Reality of God's Purpose (Part 6)
 
 We are still unearthing God's purpose for our life. We have seen thus far that God's purpose is sonship. Ephesians 1:9 states that God has made known to us what he desires. Ephesians 1:5 clarifies that what he desires is sonship. Romans 8 explains sonship as being God's child and God's heir. The spirit of sonship, when examined, reveals these two realities.
 
