@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 7)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 7)"
-url: https://www.youtube.com/watch?v=l5CnhKLOWLk
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=l5CnhKLOWLk"
+type: solo
 ---
+
 # The Pursuit of God's Purpose (Part 7)
 
 ## Understanding God’s Purpose as Sonship

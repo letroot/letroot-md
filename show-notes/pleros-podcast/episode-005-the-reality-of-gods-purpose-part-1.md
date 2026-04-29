@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Reality of God's Purpose (Part 1)"
 date: 2026-02-25
-episode: "The Reality of God's Purpose (Part 1)"
-url: https://www.youtube.com/watch?v=dEcREef63Y0
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=dEcREef63Y0"
+type: solo
 ---
+
 # The Reality of God's Purpose (Part 1)
 
 We have been exploring key aspects of the gospel's role in our lives. The gospel asserts itself as the foundational truth for every individual, not through imposition, but by demonstrating its veracity. We have seen this proven in several areas, including the reality of God through observation, the necessity of redemption, and the reality of the new creation.

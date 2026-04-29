@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 8)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 8)"
-url: https://www.youtube.com/watch?v=5cRX-aA6RvE
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=5cRX-aA6RvE"
+type: solo
 ---
+
 # The Pursuit of God's Purpose (Part 8)
 
 We are exploring the pursuit of God's purpose, which we have identified as sonship: being His child and His heir. As His child, we are called to walk in fellowship with Him, reflecting His nature and character. As His heir, we are meant to fulfill our assignments, encompassing both our natural and, critically, our spiritual responsibilities. With this foundation, we now focus on the practical steps for pursuing this purpose.

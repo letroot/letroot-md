@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 1)"
 date: 2026-02-25
-episode: "Faith Stand (Part 1)"
-url: https://www.youtube.com/watch?v=t7sP_1y3rA
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=t7sP_1y3rA"
+type: solo
 ---
+
 # Faith Stand (Part 1)
 
 Our primary focus is God's purpose. We began by examining the place of the gospel in our lives, understanding that the gospel is truth.

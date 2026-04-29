@@ -1,9 +1,9 @@
 ---
-tags: [podcast, pleros-podcast, faith, growth, inner-man, purpose, vision]
+title: "Faith Stand (Part 12)"
 date: 2026-03-05
-episode: "Faith Stand (Part 12)"
-guests: None
-summary: "In this concluding episode of the 'Faith Stand' series, Pastor Akim focuses on the **growth** of faith—moving from weak faith to strong faith. He explains that while our spirit is perfect and full of Christ, our 'faith stand' (consciousness/reckoning) must grow to match our conviction. He uses examples from the Thessalonians (faith growing exceedingly) and Abraham (not considering his body, being strengthened in faith) to show that faith is measurable and can increase. He also touches on setting a vision for maximum productivity in both natural and spiritual assignments. The next series will focus on 'The Inner Man'."
+tags: [podcast, pleros, faith, growth, inner-man, purpose, vision]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # Faith Stand (Part 12)

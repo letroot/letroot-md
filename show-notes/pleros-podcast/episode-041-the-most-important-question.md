@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Most Important Question"
 date: 2026-02-25
-episode: "The Most Important Question"
-url: https://www.youtube.com/watch?v=CBxSbQ6wGng
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=CBxSbQ6wGng"
+type: solo
 ---
+
 # The Most Important Question
 
 In this video, we're going to be answering the most important question that you need answered: why you need to believe the gospel. If you are someone who has been confronted with the gospel before, you might be wondering why you have to believe it. Some might have presented a case to you, and you might have been satisfied or not, but the urgency remains. Why is there this sense of urgency to believe in the gospel right now?

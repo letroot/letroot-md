@@ -1,3 +1,13 @@
+---
+title: "the newness of life (Part 12)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# the newness of life (Part 12)
+
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
 &gt;&gt; Welcome back to Plus Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. All right. And in this particular episode, we'll probably be concluding in this episode the teaching the newness of life. Okay. So I'm just going to give a brief recap and lead us to the conclusion.

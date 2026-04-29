@@ -1,6 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the hidden man (Part 3)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the hidden man (Part 3)
+
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. Right, welcome back to the Polaros podcast. This is your daily dos of God's word transforming you to fulfill God's purpose for your life. We're looking at a subject matter I believe will bless you so much, the hidden man or we could say the hidden man of the heart. And this is bringing us to a core area in our study. Like I said, after this we would be going into different areas where we need to address this hidden man or this inner man. So it's a point where you need to really understand all that God's word has to say about about you.
 
 ## The Four Pillars of God's Purpose

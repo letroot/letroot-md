@@ -1,19 +1,13 @@
-
 ---
-tags:
-  - podcast
-  - pleros
-  - healing
-  - faith
-  - redemption
+title: "Healing in the Newness of Life (Part 11)"
 date: 2026-04-25
-episode: "Healing in the Newness of Life (Part 12)"
-guests: None
+tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=p6G5SYnDZuY"
 type: solo
 ---
 
-# Summary
+# Healing in the Newness of Life (Part 11)
+
 In this episode of the [[Pleros Podcast]], [[Pastor Akim]] continues the series on [[Healing]] in the [[Newness of Life]]. The core message focuses on the distinction between [[Redemption]] making healing available and [[Faith]] being the mechanism that effects it. The teaching explores various dimensions of faith—including the faith of the recipient, third parties, and the often-overlooked responsibility of the [[Minister's Faith]]. Using the examples of the epileptic boy in [[Mark 9]] and the lame man at the Gate Beautiful in [[Acts 3]], the episode emphasizes that healing is a settled reality in the [[Gospel]] to be received by the design of faith.
 
 # Key Insights
@@ -132,4 +126,3 @@ How do we walk in faith for realing? We're going to look at that next. And we're
 Thank you. God bless you. Fulfill God's purpose and be healed. Amen. 
 
 We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel. God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog. For now, stay blessed and keep walking in his purpose.
-

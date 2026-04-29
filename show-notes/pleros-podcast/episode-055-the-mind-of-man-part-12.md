@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 12)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 12)"
-url: https://www.youtube.com/watch?v=ymh-HZC6P2A
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=ymh-HZC6P2A"
+type: solo
 ---
+
 # The Mind of Man (Part 12)
 
 Our journey began by recognizing that God's purpose for us is sonship, where we walk as His children and heirs in fellowship with His nature and character. To carry out our natural and spiritual assignments, we must understand how this purpose unfolds through our daily devotional life and the roadmap of discipleship.

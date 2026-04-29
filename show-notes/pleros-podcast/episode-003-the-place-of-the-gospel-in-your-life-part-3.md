@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Place of the Gospel in Your Life (Part 3)"
 date: 2026-02-25
-episode: "The Place of the Gospel in your Life (Part 3)"
-url: https://www.youtube.com/watch?v=ai6rzhx_Hh0
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=ai6rzhx_Hh0"
+type: solo
 ---
+
 # The Place of the Gospel in Your Life (Part 3)
 
 This episode continues our discussion on the vital subject: the place of the gospel in your life. We have established that the gospel's true position is not determined by our preferences, but by its own claim to be truth. If the gospel asserts itself as truth, it implies it is always correct; nothing can ultimately stand against it. Even actions taken in opposition to it ultimately serve its purpose, albeit with negative consequences. Therefore, accepting the gospel as truth requires serious consideration in two ways: first, discerning its claims to be truth, and second, verifying those claims.

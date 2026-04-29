@@ -1,6 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the hidden man (Part 10)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the hidden man (Part 10)
+
 ## The Hidden Man and the Mind's Animations
 
 Welcome to Plar Rose podcast. You are about to be blessed [music] by the teaching ministry of Pastor Akim. It is going to be an enlightening [music] time in God's word, renewing your mind and transforming your life to [music] fulfill God's purpose. We pray for you that you are established in all the truths of God's word [music] taught today. Let's get right into it.

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 2)"
 date: 2026-02-25
-episode: "Faith Stand (Part 2)"
-url: https://www.youtube.com/watch?v=pJStpnu6RVo
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=pJStpnu6RVo"
+type: solo
 ---
+
 # Faith Stand (Part 2)
 
 We continue our study on the faith stand, building on previous discussions regarding God's purpose and the roadmap to achieving it. We have established that growth and maturity are fostered through discipleship and the perfection of the saints, primarily occurring within the mind. Our prior focus explored various aspects of the mind, identifying a specific part responsible for our work, conduct, and actions. Addressing this crucial aspect of our mind is the precise reason for our current exploration of the faith stand.

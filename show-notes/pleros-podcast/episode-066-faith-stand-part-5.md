@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 5)"
 date: 2026-02-25
-episode: "Faith Stand (Part 5)"
-url: https://www.youtube.com/watch?v=1-SOCL2b-G4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=1-SOCL2b-G4"
+type: solo
 ---
+
 # Faith Stand (Part 5)
 
 This discussion focuses on the concept of the 'faith stand,' a crucial subject building upon our previous explorations of God's purpose and the roadmap for that journey. Fulfilling God's purpose for our lives necessitates spiritual growth.

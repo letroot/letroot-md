@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the mind of man (Part 5)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 5)"
-url: https://www.youtube.com/watch?v=XDzEpEKF25c
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=XDzEpEKF25c"
+type: solo
 ---
+
+# the mind of man (Part 5)
+
 ## Pursuing Maximum Productivity in God's Purpose
 
 At the core of the roadmap for our purpose is the need for maximum productivity. You need to be maximally productive and give your all, spending all the time required for each assignment. Don't just let the time pass you by or be found merely marking presence; you must do the real thing.

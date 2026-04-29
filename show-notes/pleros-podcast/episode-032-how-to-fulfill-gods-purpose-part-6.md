@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "how to Fulfill gods purpose (Part 6)"
 date: 2026-02-25
-episode: "How to Fulfil God's Purpose (Part 6)"
-url: https://www.youtube.com/watch?v=NUL2AN3zrYI
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=NUL2AN3zrYI"
+type: solo
 ---
+
+# how to Fulfill gods purpose (Part 6)
+
 ## Understanding Our Inheritance as Sons
 
 Romans 8:15-17 makes it clear that we have received the spirit of sonship, which is often called adoption. While "adoption" refers to the position we occupy, we are natural children of God. That is why the Spirit gives witness or evidence that we are children of God and heirs of God. When you are a son of God, it is not a matter of gender. 

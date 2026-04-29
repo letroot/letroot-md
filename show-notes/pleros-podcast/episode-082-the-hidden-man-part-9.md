@@ -1,9 +1,8 @@
 ---
-tags: [podcast, pleros-podcast, doctrine, the-hidden-man]
+title: "The Hidden Man (Part 9)"
 date: 2026-03-16
-episode: "The Hidden Man (Part 9)"
-guests: ["None"]
-url: https://www.youtube.com/watch?v=egtaavUH0J8
+tags: [podcast, pleros, doctrine, the-hidden-man]
+url: "https://www.youtube.com/watch?v=egtaavUH0J8"
 type: solo
 ---
 

@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the pursuit of gods purpose (Part 4)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 4)"
-url: https://www.youtube.com/watch?v=BpC5m6pdVxI
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=BpC5m6pdVxI"
+type: solo
 ---
+
+# the pursuit of gods purpose (Part 4)
+
 Brothers and sisters, today we are continuing our study on the pursuit of God's purpose. Now that we have found out about God's purpose for our lives, we must ask: what do I do now? We have already made major progress by recognizing God's word as the truth that reveals this purpose to us.
 
 ## The Reality of Sonship and Fellowship

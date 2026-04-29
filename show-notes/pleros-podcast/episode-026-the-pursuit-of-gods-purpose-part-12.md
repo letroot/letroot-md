@@ -1,8 +1,9 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 12)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 12)"
-url: https://www.youtube.com/watch?v=NG1ouDWnl6o
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=NG1ouDWnl6o"
+type: solo
 ---
 
 # The Pursuit of God's Purpose (Part 12)

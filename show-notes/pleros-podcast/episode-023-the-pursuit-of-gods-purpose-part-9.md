@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 9)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 9)"
-url: https://www.youtube.com/watch?v=TgWo8lYqSXQ
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=TgWo8lYqSXQ"
+type: solo
 ---
+
 # The Pursuit of God's Purpose (Part 9)
 
 ## The Foundation of Sonship and Purpose

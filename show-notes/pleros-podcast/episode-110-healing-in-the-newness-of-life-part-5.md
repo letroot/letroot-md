@@ -1,11 +1,12 @@
 ---
-tags: [podcast, pleros-podcast, christianity, gospel, healing]
+title: "Healing in the Newness of Life (Part 5)"
 date: 2026-04-18
-episode: "Healing in the Newness of Life (Part 6)"
-guests: None
-url: https://www.youtube.com/watch?v=kVoy_g-vjFA
+tags: [podcast, pleros, christianity, gospel, healing]
+url: "https://www.youtube.com/watch?v=kVoy_g-vjFA"
 type: solo
 ---
+
+# Healing in the Newness of Life (Part 5)
 
 ## Summary
 In this episode, Pastor Akim continues the series on [[Healing]] within the framework of the [[Newness of Life]]. He argues that healing is an inseparable component of the [[Gospel]], serving as a present-day demonstration of the redemption that will eventually culminate in total immortality. By distinguishing between "available" and "affected" realities, the teaching emphasizes that believers must actively walk in the power of the [[Holy Spirit]] to see physical restoration manifest in their bodies.

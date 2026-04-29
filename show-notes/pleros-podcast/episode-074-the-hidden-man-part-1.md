@@ -1,6 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the hidden man (Part 1)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the hidden man (Part 1)
+
 ## Introduction
 
 Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.

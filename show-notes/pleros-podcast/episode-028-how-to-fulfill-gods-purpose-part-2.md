@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "how to fulfill gods purpose (Part 2)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 2)"
-url: https://www.youtube.com/watch?v=Q6gWiyM7Cik
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=Q6gWiyM7Cik"
+type: solo
 ---
+
+# how to fulfill gods purpose (Part 2)
+
 We have established that God's ultimate purpose for our lives is sonship. The redemptive work of Jesus Christ was designed to restore us to this original purpose. When we are saved, our joy should extend beyond mere deliverance from damnation to a profound understanding of *why* our salvation was so crucial to the Father and the Lord. We were not simply saved *from* something; we were saved *for* something: the eternal purpose for which we were created—the purpose of sonship.
 
 We have examined what sonship entails and what it means to be God's child. It signifies a call to fellowship with Him, to walk in His nature and character, primarily fulfilled through a life of prayer and devotion.

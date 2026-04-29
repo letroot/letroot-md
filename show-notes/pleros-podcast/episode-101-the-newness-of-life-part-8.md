@@ -1,3 +1,13 @@
+---
+title: "the newness of life (Part 8)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# the newness of life (Part 8)
+
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
 Welcome back to the Plus podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're presently looking at the subject matter the newness of life and I believe it's been blessing you. We're taking it a notch further and well reaching the conclusive phase but we have some important details to look at on this subject matter.

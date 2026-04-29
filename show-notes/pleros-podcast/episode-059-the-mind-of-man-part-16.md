@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 16)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 16)"
-url: https://www.youtube.com/watch?v=NoKl91QKS3s
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=NoKl91QKS3s"
+type: solo
 ---
+
 # The Mind of Man (Part 16)
 
 Welcome back to another episode of the Pleros podcast. This is still your daily dose of God's word transforming you to fulfill God's purpose for your life. There is nothing more fundamental than for a believer to recognize that they exist for God's purpose. Our conviction, our philosophy, our theology, our worldview, and our persuasion affects the whole of our life. 

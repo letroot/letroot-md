@@ -1,8 +1,12 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the newness of life (Part 11)"
 date: 2026-04-10
-episode: "The Newness of Life: Fulfilling God's Purpose"
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the newness of life (Part 11)
 
 ## The Newness of Life: Fulfilling God's Purpose
 

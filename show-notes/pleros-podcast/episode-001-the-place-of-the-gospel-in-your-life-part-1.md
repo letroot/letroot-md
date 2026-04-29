@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Place of the Gospel in Your Life (Part 1)"
 date: 2026-02-25
-episode: "The Place of the Gospel in your Life (Part 1)"
-url: https://www.youtube.com/watch?v=S_xHfkCZy3g
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=S_xHfkCZy3g"
+type: solo
 ---
+
+# The Place of the Gospel in Your Life (Part 1)
+
 ```yaml
 ---
 tags: [podcast, pleros-podcast]
@@ -11,7 +15,6 @@ date: 2026-02-25
 episode: "The Place of the Gospel in your Life (Part 1)"
 url: https://www.youtube.com/watch?v=S_xHfkCZy3g
 ---
-# The Place of the Gospel in Your Life (Part 1)
 
 Many people treat the gospel in different ways. To some, it is simply the message they believed when someone preached to them so they could be saved, and that is the end of the story. Some others treat the gospel as a Sunday affair, while others view it primarily as a solution to their personal problems. Is that the place that the gospel wants to hold in our lives?
 

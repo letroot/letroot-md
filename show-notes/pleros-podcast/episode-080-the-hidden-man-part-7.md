@@ -1,9 +1,12 @@
 ---
 title: "The Hidden Man (Part 7)"
-date: "2026-03-13"
+date: 2026-03-13
 tags: [podcast, pleros, sermon]
-video_id: "DipuYZiS7_Q"
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# The Hidden Man (Part 7)
 
 ## Welcome to the Pleros Podcast
 

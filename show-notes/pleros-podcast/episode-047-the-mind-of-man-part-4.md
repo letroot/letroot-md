@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 4)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 4)"
-url: https://www.youtube.com/watch?v=pfLV-EG0QrU
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=pfLV-EG0QrU"
+type: solo
 ---
+
 # The Mind of Man (Part 4)
 
 Presently, we're looking at the mind of man, which is such an important teaching. We have been able to introduce the subject matter to a very good degree, seeing what God's purpose is regarding sonship and our assignments as heirs.

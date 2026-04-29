@@ -1,13 +1,12 @@
 ---
-tags: [podcast, pleros, healing]
+title: "Healing in the Newness of Life (Part 13)"
 date: 2026-04-29
-episode: "Healing in the Newness of Life Part 14"
-guests: None
+tags: [podcast, pleros, healing]
 url: ""
 type: solo
 ---
 
-# Healing in the Newness of Life Part 14
+# Healing in the Newness of Life (Part 13)
 
 ## Summary
 This episode explores the practical application of healing within the context of the "newness of life." The host establishes that healing is actively available through the power of the Spirit today, just as immortality will be affected in the age to come. The central message focuses on faith not as a barrier or demand placed upon us, but as the fundamental, existentially designed mechanism through which we receive God's provisions.

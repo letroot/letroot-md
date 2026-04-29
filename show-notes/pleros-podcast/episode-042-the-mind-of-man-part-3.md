@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 3)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 3)"
-url: https://www.youtube.com/watch?v=KHwCK5qgA00
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=KHwCK5qgA00"
+type: solo
 ---
+
 # The Mind of Man (Part 3)
 
 We have been exploring the mind of man, a crucial area of study. This teaching is extensive, but we have already covered several foundational points. We began by understanding God's purpose, which is sonship—we are called to be children of God with specific assignments to carry out. The journey of God's purpose encompasses a daily life of devotion, an unfolding natural assignment, and an unfolding spiritual assignment. However, merely understanding this roadmap does not equip us to fulfill it.

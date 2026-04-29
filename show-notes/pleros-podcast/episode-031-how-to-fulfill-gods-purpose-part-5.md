@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "How to Fulfill God's Purpose (Part 5)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 5)"
-url: https://www.youtube.com/watch?v=2gzSMp6aPzI
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=2gzSMp6aPzI"
+type: solo
 ---
+
 # How to Fulfill God's Purpose (Part 5)
 
 We continue our studies on fulfilling God's purpose, now focusing on the transformative process required for that fulfillment. We have established what God's purpose is through His direct revelation.

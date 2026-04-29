@@ -1,3 +1,11 @@
+---
+title: "The Newness of Life (Part 9)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
 # The Newness of Life (Part 9)
 
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
@@ -97,4 +105,3 @@ But we need to define what is the scope of what is available in the newness of l
 Thank you. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.
 
 org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog. For now, stay blessed and keep walking in his purpose.
-

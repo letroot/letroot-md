@@ -1,6 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the hidden man (Part 4)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the hidden man (Part 4)
+
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. 
 
 Let's get right into it. &gt;&gt; Welcome back to the Blues podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are looking at a very important subject matter which is the Eden man and we've already seen a number of things on this. 
@@ -71,4 +78,4 @@ And if it's not the way it's supposed to be for you to fulfill God's purpose, th
 
 To learn more of God's word, visit pleose. org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog. 
 
-For now, stay blessed and keep walking in his purpose. 
+For now, stay blessed and keep walking in his purpose.

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Gospel Answers Series 1"
 date: 2026-02-25
-episode: "Gospel Answers Series 1"
-url: https://www.youtube.com/watch?v=05Vs-MJv3TE
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=05Vs-MJv3TE"
+type: solo
 ---
+
 # Gospel Answers Series 1
 
 ## The Foundation of the Gospel Answers Series

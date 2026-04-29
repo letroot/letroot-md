@@ -1,3 +1,13 @@
+---
+title: "The Reality of Sonship and Purpose"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# The Reality of Sonship and Purpose
+
 ```markdown
 ---
 tags: [podcast, pleros-podcast]
@@ -5,7 +15,6 @@ date: 2026-02-25
 episode: "The Pursuit of God's Purpose (Part 3)"
 url: https://www.youtube.com/watch?v=qkaxjfAXqvU
 ---
-# The Reality of Sonship and Purpose
 
 We have discussed the essential role of the gospel as truth in our lives. This truth reveals God's ultimate purpose for humanity: sonship. As we've explored, sonship encompasses two key realities: being children of God and being heirs of God. This episode continues our study on the pursuit of this divine purpose.
 

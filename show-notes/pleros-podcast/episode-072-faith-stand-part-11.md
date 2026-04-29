@@ -1,9 +1,9 @@
 ---
-tags: [podcast, pleros-podcast, faith, confession, words, power-of-words]
+title: "Faith Stand (Part 11)"
 date: 2026-03-04
-episode: "Faith Stand (Part 11)"
-guests: None
-summary: "This episode focuses on the 'mouth' aspect of faith—specifically how words and confession determine the course of one's life. Pastor Akim emphasizes that faith is not just agreeing with God's word (mental assent) but involves a persistent stand and the use of words to enforce redemption. He warns against being careless with words, as they direct the 'intelligence' behind life's events, and encourages believers to use their words (in understanding and in prayer) to align their experiences with God's purpose."
+tags: [podcast, pleros, faith, confession, words, power-of-words]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # Faith Stand (Part 11)

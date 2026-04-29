@@ -1,10 +1,12 @@
 ---
-tags: [podcast, pleros-podcast]
-title: Developing the Inner Man (Part 10)
+title: "Developing the Inner Man (Part 10)"
 date: 2026-03-28
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
 type: podcast
-show: Pleros Podcast
 ---
+
+# Developing the Inner Man (Part 10)
 
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Gospel Answer Series 3"
 date: 2026-02-25
-episode: "Gospel Answer Series 3"
-url: https://www.youtube.com/watch?v=ML2frrU5V7Q
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=ML2frrU5V7Q"
+type: solo
 ---
+
 # Gospel Answer Series 3
 
 ## The Gospel's Claim to Truth

@@ -1,9 +1,9 @@
 ---
-tags: [podcast, pleros-podcast, faith, christian-living, prayer]
+title: "Faith Stand (Part 8)"
 date: 2026-02-28
-episode: "Faith Stand (Part 8)"
-guests: None
-summary: "Faith stand is a specific kind of faith that goes beyond just believing or agreeing with truth. It is a continuous stance or reckoning/consciousness of truth that transforms the believer and delivers experiential results. This episode explores the difference between salvific faith (one-time agreement) and faith stand (persistent consciousness), emphasizing the need for persistence in prayer and worship to maintain this reckoning against worldly influence and anxiety."
+tags: [podcast, pleros, faith, christian-living, prayer]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # Faith Stand (Part 8)

@@ -1,10 +1,12 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Reality of God's Purpose (Part 5)"
 date: 2026-02-25
-episode: "The Reality of God's Purpose (Part 7)"
-url: https://www.youtube.com/watch?v=Qs05-1kaBV4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=Qs05-1kaBV4"
+type: solo
 ---
-# The Reality of God's Purpose (Part 7)
+
+# The Reality of God's Purpose (Part 5)
 
 By now, you should know that God's purpose is sonship. In this episode, we will make substantial progress in understanding this reality.
 

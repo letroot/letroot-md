@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the place of the gospel in your life (Part 2)"
 date: 2026-02-25
-episode: "The Place of the Gospel in your Life (Part 2)"
-url: https://www.youtube.com/watch?v=2gXfHVAYG2A
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=2gXfHVAYG2A"
+type: solo
 ---
+
+# the place of the gospel in your life (Part 2)
+
 We're continuing from where we stopped, looking at the place of the gospel in our lives. We are talking about the different ways people view the gospel, and how sometimes people have a less than appropriate view of it. Some just see it as a one-time event saving them from hell, sin, and death, while others see it merely as a tool to solve problems when they arise.
 
 We have already seen from the last episode that the place of the gospel in our life is the place of truth. According to Ephesians 1:13, the gospel is the word of truth; you trusted after you heard that word of truth, the gospel of your salvation. If the place of the gospel in our lives is that of truth, then it means it is always right. This is the first thing we should recognize: even where we have assumed a particular way about something, if the gospel indeed is truth, then it is right.

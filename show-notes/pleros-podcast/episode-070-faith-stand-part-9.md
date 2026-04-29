@@ -1,9 +1,9 @@
 ---
-tags: [podcast, pleros-podcast, faith, christian-living, prayer]
+title: "Faith Stand (Part 9)"
 date: 2026-03-02
-episode: "Faith Stand (Part 9)"
-guests: None
-summary: "Faith Stand is at the center of the Christian life—it is how believers grow and walk in God's purpose. This episode emphasizes the persistence of faith, using the parables of the friend at midnight (Luke 11) and the unjust judge (Luke 18) to illustrate that true faith is unashamed and insistent. It explores the difference between mechanical repetition and genuine persistence based on conviction, urging believers to maintain their stand on God's word until results are seen."
+tags: [podcast, pleros, faith, christian-living, prayer]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # Faith Stand (Part 9)

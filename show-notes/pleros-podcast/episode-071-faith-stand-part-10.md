@@ -1,9 +1,9 @@
 ---
-tags: [podcast, pleros-podcast, faith, christian-living, persistence]
+title: "Faith Stand (Part 10)"
 date: 2026-03-03
-episode: "Faith Stand (Part 10)"
-guests: None
-summary: "This episode delves deeper into the concept of faith stand, emphasizing its role in the believer's growth and transformation. Pastor Akim explains that while salvation is a one-time act of faith, spiritual growth is a continuous, persistent stand on God's word. He highlights the transformation of the mind (reckoning/consciousness) through beholding God's glory and stresses the importance of persistence in faith, drawing parallels to the parable of the persistent widow and the Syrophoenician woman."
+tags: [podcast, pleros, faith, christian-living, persistence]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # Faith Stand (Part 10)

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "How to Fulfill God's Purpose (Part 1)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 1)"
-url: https://www.youtube.com/watch?v=EWXg1Eo9Q
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=EWXg1Eo9Q"
+type: solo
 ---
+
 # How to Fulfill God's Purpose (Part 1)
 
 If you have been following our series, you will have seen how we are transitioning to a new but related topic. We began by examining the place of the gospel in our lives, establishing that the gospel is truth.

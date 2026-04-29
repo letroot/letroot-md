@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 7)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 7)"
-url: https://www.youtube.com/watch?v=ThmlZHAmB_E
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=ThmlZHAmB_E"
+type: solo
 ---
+
 # The Mind of Man (Part 7)
 
 This series focuses on the mind of man. We have explored the roadmap of God's purpose and how personal growth facilitates its fulfillment. This study consistently points to the mind as the primary determinant of whether we achieve God's purpose for our lives.

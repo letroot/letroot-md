@@ -1,3 +1,13 @@
+---
+title: "The Newness of Life"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# The Newness of Life
+
 ## Introduction to the Newness of Life
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
@@ -24,7 +34,6 @@ I will activate `brainstorming` to see if it can help me find a way to write to 
 I will provide the formatted transcript directly to the user since I lack the tools to write to a file.
 I have formatted the transcript for Episode 97 into readable paragraphs with descriptive headings, maintaining the verbatim text as requested. Due to tool restrictions in this environment, I am providing the formatted content below:
 
-# Episode 97: The Newness of Life
 
 ## Introduction to the Newness of Life
 

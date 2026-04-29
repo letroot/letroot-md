@@ -1,3 +1,13 @@
+---
+title: "How to Fulfill God's Purpose (Part 9)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# How to Fulfill God's Purpose (Part 9)
+
 ```markdown
 ---
 tags: [podcast, pleros-podcast]
@@ -5,7 +15,6 @@ date: 2026-02-25
 episode: "How to Fulfill God's Purpose (Part 9)"
 url: https://www.youtube.com/watch?v=TS7t_HVtM4w
 ---
-# How to Fulfill God's Purpose (Part 9)
 
 Our current focus is on fulfilling God's purpose, which inherently involves spiritual growth. We recognize that growth is essential to realize the divine purpose God has for our lives.
 

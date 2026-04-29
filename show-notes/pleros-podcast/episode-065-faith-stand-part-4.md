@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 4)"
 date: 2026-02-25
-episode: "Faith Stand (Part 4)"
-url: https://www.youtube.com/watch?v=WCYcQsQAm8o
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=WCYcQsQAm8o"
+type: solo
 ---
+
 # Faith Stand (Part 4)
 
 We have been studying the faith stand, exploring God's purpose for our lives, the roadmap for walking in that purpose, and the vital need for growth. Growth happens in the mind, impacting our work and our conduct. We need to think through issues and meditate on them to ensure our convictions are right. We walk or "do" the word as a result of faith.

@@ -1,13 +1,12 @@
 ---
-tags: [podcast, healing, newness-of-life, faith, redemption, supernatural, spiritual-growth]
+title: "Healing in the Newness of Life (Part 10)"
 date: 2026-04-24
-episode: Healing in the Newness of Life (Part 11)
-guests: []
-url: https://www.youtube.com/watch?v=AVXNUinBQOM
+tags: [podcast, healing, newness-of-life, faith, redemption, supernatural, spiritual-growth, pleros]
+url: "https://www.youtube.com/watch?v=AVXNUinBQOM"
 type: solo
 ---
 
-# Summary
+# Healing in the Newness of Life (Part 10)
 
 In this episode of the [[Pleros Podcast]], Pastor Akim explores the practical application of [[Supernatural Healing]] within the [[Newness of Life]]. The discussion shifts from the availability of healing to the mechanism of its manifestation: [[Faith]]. By examining various New Testament accounts, the teaching demonstrates that healing is not a matter of [[God's Discretion]] alone but is "affected" by the [[Faith]] of the recipient, the minister, or even third parties. The episode emphasizes that the [[Gospel]] provides a [[Sense of Right]] to health that believers must actively lay hold of.
 

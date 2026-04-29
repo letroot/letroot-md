@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Place of the Gospel in your Life (Part 4)"
 date: 2026-02-25
-episode: "The Place of the Gospel in your Life (Part 4)"
-url: https://www.youtube.com/watch?v=gGJIgBcIe-4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=gGJIgBcIe-4"
+type: solo
 ---
+
 # The Place of the Gospel in your Life (Part 4)
 
 We continue our discussion on the place of the gospel in your life. Our aim is to help you understand the gospel not merely as a one-time event of salvation. While you may initially perceive it this way, having recently grasped the reality of redemption fulfilled in Christ Jesus, we will now delve into its deeper implications.

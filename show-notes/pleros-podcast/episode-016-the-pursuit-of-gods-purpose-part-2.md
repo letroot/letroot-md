@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Introduction and the Foundation of Purpose"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 2)"
-url: https://www.youtube.com/watch?v=QnSUcIkYtSw
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=QnSUcIkYtSw"
+type: solo
 ---
+
 # Introduction and the Foundation of Purpose
 
 Now that we know why we are here and what God made us for, we must ask ourselves what we are supposed to do next. The answer is not found in general natural wisdom; instead, we can trust God's word to give us objective direction. In the last episode, I emphasized the void of meaning and purpose with which we are existentially designed. We must ensure that God truly fills that void, rather than allowing it to be filled by the pressures of life or the cares of the world.

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "How to Fulfill God's Purpose (Part 11)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 11)"
-url: https://www.youtube.com/watch?v=APPlUsxFOQc
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=APPlUsxFOQc"
+type: solo
 ---
+
 # How to Fulfill God's Purpose (Part 11)
 
 ## The Foundation of Spiritual Growth

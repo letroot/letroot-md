@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 15)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 15)"
-url: https://www.youtube.com/watch?v=-h7O0OfUl3U
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=-h7O0OfUl3U"
+type: solo
 ---
+
 # The Mind of Man (Part 15)
 
 Welcome to the Plerose podcast, your daily dose of God's word transforming you to fulfill God's purpose. We have been looking at the mind of man, specifically focusing on how God’s purpose is sonship. This means He wants us to be His children and His heirs, called to a daily walk in fellowship with His nature and character. Essentially, our entire life is to be lived for the Lord, encompassing everything from family and academics to our spiritual assignments.

@@ -1,3 +1,13 @@
+---
+title: "Healing in the Newness of Life (Part 8)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
+---
+
+# Healing in the Newness of Life (Part 8)
+
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
 
 Let's get right into it. &gt;&gt; Welcome back to the Plus podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. And we're looking this time around at the healing and the newness of life.

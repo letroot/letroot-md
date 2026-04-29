@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 9)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 9)"
-url: https://www.youtube.com/watch?v=_ajks6u5yWQ
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=_ajks6u5yWQ"
+type: solo
 ---
+
 # The Mind of Man (Part 9)
 
 We have been examining the mind of man, with sonship as the foundational concept of our study. God's desire is for us to be His children and heirs, a purpose we fulfill through mental growth and transformation.

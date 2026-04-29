@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 11)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 11)"
-url: https://www.youtube.com/watch?v=udjtpOgVLP4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=udjtpOgVLP4"
+type: solo
 ---
+
 # The Mind of Man (Part 11)
 
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. 

@@ -1,8 +1,9 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "How to Fulfill God's Purpose (Part 3)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 3)"
-url: https://www.youtube.com/watch?v=RVEbGAXaPSI
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=RVEbGAXaPSI"
+type: solo
 ---
 
 # How to Fulfill God's Purpose (Part 3)

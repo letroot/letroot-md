@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 13)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 13)"
-url: https://www.youtube.com/watch?v=z7WCZe7WyQ0
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=z7WCZe7WyQ0"
+type: solo
 ---
+
 # The Mind of Man (Part 13)
 
 We continue our study on the mind of man, focusing on how it relates to God's purpose for our lives. God's ultimate purpose is for us to walk in sonship, both as his child and as his heir. As a child, we are called to walk in fellowship with him, embodying his nature and character. As an heir, we are entrusted with assignments, both natural and spiritual, with the spiritual assignments taking priority due to their eternal worth and weight.

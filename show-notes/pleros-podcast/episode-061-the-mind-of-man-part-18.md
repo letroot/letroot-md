@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 18)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 18)"
-url: https://www.youtube.com/watch?v=IUVIS_XbHYs
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=IUVIS_XbHYs"
+type: solo
 ---
+
 # The Mind of Man (Part 18)
 
 This final episode on the mind of man focuses on consciousness. Our study has been inspired by the understanding of God's purpose: sonship. We are called into God's family for fellowship, both with Him and with other members, and to fulfill specific assignments—natural and spiritual. To carry out these assignments, a roadmap is required, along with the capacity and strength to fulfill them. This highlights the necessity of discipleship and the perfecting of the saints. Without discipleship, we risk being too weak or ineffective to bear the burdens of purpose throughout our journey.

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 10)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 10)"
-url: https://www.youtube.com/watch?v=J8h6p9EDORo
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=J8h6p9EDORo"
+type: solo
 ---
+
 # The Pursuit of God's Purpose (Part 10)
 
 We continue our exploration into the pursuit of God's purpose. We have previously established that God's purpose centers on sonship, meaning He desires us to be His children and, by extension, His heirs.

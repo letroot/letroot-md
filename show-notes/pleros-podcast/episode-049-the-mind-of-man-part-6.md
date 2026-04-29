@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 6)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 6)"
-url: https://www.youtube.com/watch?v=tVyuPNzKC7E
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=tVyuPNzKC7E"
+type: solo
 ---
+
 # The Mind of Man (Part 6)
 
 We'll be looking at the mind of man on the foundation of our study on God's purpose. We have seen that God's purpose is sonship—to be God's child and to be God's heirs. This means we are called to a life of fellowship with God where we walk in His nature and character, as well as a life of pursuit of His assignments given to us. That's what we do with our lives daily.

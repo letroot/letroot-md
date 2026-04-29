@@ -1,9 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "how to fulfill gods purpose (Part 8)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 8)"
-url: https://www.youtube.com/watch?v=waPAaS6X1d4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=waPAaS6X1d4"
+type: solo
 ---
+
+# how to fulfill gods purpose (Part 8)
+
 ## Fulfilling Our Natural Assignment
 
 Welcome back to the Pleros podcast, your daily dose of God's word transforming you to fulfill God's purpose. We are looking at an important factor: how do we fulfill God's purpose? We have already seen that God's purpose for our lives is sunship, which is to be His child and His heir. For our natural assignment, we start where we are, take advantage of opportunities, use this world without misusing it, and remain open to the leading of the Spirit.

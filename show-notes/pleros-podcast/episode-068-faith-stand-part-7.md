@@ -1,6 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 7)"
+date: 
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
 # Faith Stand (Part 7)
 
 ## Introduction: The Purpose of the Gospel

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 14)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 14)"
-url: https://www.youtube.com/watch?v=TzNOzfGVFv0
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=TzNOzfGVFv0"
+type: solo
 ---
+
 # The Mind of Man (Part 14)
 
 Welcome back to the Pleros podcast. I trust you're going to be blessed by God's word as you receive your daily dose of His word that transforms you to fulfill God's purpose. We've been looking at the mind of man because we have seen that we exist for God's purpose, which is sonship—to walk as His child as well as His heirs. We've also seen that there's a roadmap involving a daily life of devotion that strengthens us to walk in our nature and character.

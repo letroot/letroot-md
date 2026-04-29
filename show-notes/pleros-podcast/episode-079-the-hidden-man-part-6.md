@@ -1,8 +1,9 @@
 ---
 title: "The Hidden Man (Part 6)"
-date: "2026-03-12"
+date: 2026-03-12
 tags: [podcast, pleros, sermon]
-video_id: "Ssn7kEfUqj8"
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
 
 # The Hidden Man (Part 6)

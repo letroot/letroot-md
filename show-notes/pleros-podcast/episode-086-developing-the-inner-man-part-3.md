@@ -1,10 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
-title: Developing the Inner Man (Part 3)
+title: "Developing the Inner Man (Part 3)"
 date: 2026-03-20
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
 type: podcast
-show: Pleros Podcast
 ---
+
+# Developing the Inner Man (Part 3)
+
 Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
 All right, welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. And we're looking at the subject matter developing the inner man or developing the Eden man. And it's because we have seen that what determines our work, pursuit, and fulfillment of God's purpose is our inner man or our Eden man.

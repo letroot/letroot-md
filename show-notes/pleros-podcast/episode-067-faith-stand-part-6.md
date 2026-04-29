@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 6)"
 date: 2026-02-26
-episode: "Faith Stand (Part 6)"
-url: https://www.youtube.com/watch?v=1RDy1WjFCeM
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=1RDy1WjFCeM"
+type: solo
 ---
+
 # Faith Stand (Part 6)
 
 Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. It is our passion to ensure you are equipped with everything you need from scripture to walk the path God has set for you.

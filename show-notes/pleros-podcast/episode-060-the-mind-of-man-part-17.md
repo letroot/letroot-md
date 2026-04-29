@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 17)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 17)"
-url: https://www.youtube.com/watch?v=kJHhslhBjyE
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=kJHhslhBjyE"
+type: solo
 ---
+
 # The Mind of Man (Part 17)
 
 We are examining the mind of man, and specifically today, the consciousness part of the mind. We will zoom in on this aspect, exploring what scripture says about it, using biblical texts to explain it clearly.

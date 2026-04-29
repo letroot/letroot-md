@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 1)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 1)"
-url: https://www.youtube.com/watch?v=cOZq7Uv91r4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=cOZq7Uv91r4"
+type: solo
 ---
+
 # The Mind of Man (Part 1)
 
 Welcome back to the podcast. We are here to give you your daily dose of God's word that transforms you to fulfill God's purpose. Today we are taking on another subject matter that is in the same line of our study. I will try to do a recap and introduction to what we will be looking at today, which is the mind of man.

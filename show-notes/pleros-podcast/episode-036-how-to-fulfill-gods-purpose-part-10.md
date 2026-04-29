@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "How to Fulfill God's Purpose (Part 10)"
 date: 2026-02-25
-episode: "How to Fulfill God's Purpose (Part 10)"
-url: https://www.youtube.com/watch?v=MjeE-kbNN7s
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=MjeE-kbNN7s"
+type: solo
 ---
+
 # How to Fulfill God's Purpose (Part 10)
 
 Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose. We are looking at how to fulfill God's purpose, which begins with understanding that your purpose is sonship. As God’s heir, you have both a natural assignment and a spiritual assignment to fulfill in your daily life. The pursuit of purpose is a journey of regular devotion and fellowship with the Father that facilitates your spiritual growth.

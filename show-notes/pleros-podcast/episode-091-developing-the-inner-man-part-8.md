@@ -1,10 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
-title: Developing the Inner Man (Part 8)
+title: "Developing the Inner Man (Part 8)"
 date: 2026-03-27
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
 type: podcast
-show: Pleros Podcast
 ---
+
+# Developing the Inner Man (Part 8)
+
 ## Developing the Inner Man (Part 8)
 
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. All right, 
@@ -119,4 +122,4 @@ and faith happens in the place of prayer and prayer is taught as persistent and 
 
 We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp, and follow 
 
-us on all our social media handles at Plurose_Hog. For now, stay blessed and keep walking in his purpose. 
+us on all our social media handles at Plurose_Hog. For now, stay blessed and keep walking in his purpose.

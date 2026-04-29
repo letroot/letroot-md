@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Faith Stand (Part 3)"
 date: 2026-02-25
-episode: "Faith Stand (Part 3)"
-url: https://www.youtube.com/watch?v=1lHyO_rYQp8
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=1lHyO_rYQp8"
+type: solo
 ---
+
 # Faith Stand (Part 3)
 
 Welcome back to the Plle podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose. We pray that you are established in all the truths of God's word taught today. I trust that you are going to receive everything we're going to be teaching today on the faith stand.

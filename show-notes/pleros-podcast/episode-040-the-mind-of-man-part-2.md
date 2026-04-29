@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 2)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 2)"
-url: https://www.youtube.com/watch?v=8TGip24GHWc
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=8TGip24GHWc"
+type: solo
 ---
+
 # The Mind of Man (Part 2)
 
 We continue our exploration of the mind of man. We are studying this subject because we have identified God's purpose for our lives: Sonship. He has called us to be His children and heirs, meaning He has given us assignments to fulfill as we walk in fellowship with Him and embody His character.

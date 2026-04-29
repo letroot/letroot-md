@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Mind of Man (Part 10)"
 date: 2026-02-25
-episode: "The Mind of Man (Part 10)"
-url: https://www.youtube.com/watch?v=fjF80P1xZPA
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=fjF80P1xZPA"
+type: solo
 ---
+
 # The Mind of Man (Part 10)
 
 Welcome back to the Plerose podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. Remember, we're looking at the mind of man, but also recall what God's purpose is. God's purpose is sonship; He wants you to walk as His child and heir on a daily basis.

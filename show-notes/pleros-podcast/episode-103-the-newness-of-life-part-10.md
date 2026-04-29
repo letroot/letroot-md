@@ -1,8 +1,12 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "the newness of life (Part 10)"
 date: 2026-04-10
-episode: "The Newness of Life: Growing in God's Purpose"
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
+type: solo
 ---
+
+# the newness of life (Part 10)
 
 ## The Newness of Life: Growing in God's Purpose
 

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Gospel Answers Series 4"
 date: 2026-02-25
-episode: "Gospel Answers Series 4"
-url: https://www.youtube.com/watch?v=M-h7xCp_JW4
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=M-h7xCp_JW4"
+type: solo
 ---
+
 # Gospel Answers Series 4
 
 ## Understanding Truth Through Observation

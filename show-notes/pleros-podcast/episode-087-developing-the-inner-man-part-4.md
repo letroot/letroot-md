@@ -1,10 +1,13 @@
 ---
-tags: [podcast, pleros-podcast]
-title: Developing the Inner Man (Part 4)
+title: "Developing the Inner Man (Part 4)"
 date: 2026-03-21
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=..."
 type: podcast
-show: Pleros Podcast
 ---
+
+# Developing the Inner Man (Part 4)
+
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
 &gt;&gt; All right, welcome back to the Polaros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are looking at developing the in man and I want us to jump right into it because we have already established a lot of things. We've seen that there is this part of our mind that is the hidden man or inner man and it is the true determinant of the fulfillment of God's purpose for our life. The condition of a person's inner man or hidden man determines whether they do all that the Lord wants them to do.

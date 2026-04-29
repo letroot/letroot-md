@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "The Pursuit of God's Purpose (Part 6)"
 date: 2026-02-25
-episode: "The Pursuit of God's Purpose (Part 6)"
-url: https://www.youtube.com/watch?v=jhOf8h9QFHY
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=jhOf8h9QFHY"
+type: solo
 ---
+
 # The Pursuit of God's Purpose (Part 6)
 
 We have previously established several foundational truths. Firstly, the gospel occupies the central place of truth in our lives and in all existence; even those who reject it are still profoundly affected by its reality.

@@ -1,9 +1,11 @@
 ---
-tags: [podcast, pleros-podcast]
+title: "Gospel Answer Series 2"
 date: 2026-02-25
-episode: "Gospel Answer Series 2"
-url: https://www.youtube.com/watch?v=WXpYnA8X8Go
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=WXpYnA8X8Go"
+type: solo
 ---
+
 # Gospel Answer Series 2
 
 All right, we're still looking at the gospel answer series. And the first thing the gospel is answering is truth. In this series, we are looking at other things the gospel answers; in fact, we're looking at the responses he gives to other faiths and belief systems. But we're starting with the very first thing the gospel answers.
