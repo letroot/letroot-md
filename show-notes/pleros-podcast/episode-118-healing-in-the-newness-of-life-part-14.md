@@ -1,3 +1,38 @@
+---
+tags: [podcast, pleros, healing]
+date: 2026-04-29
+episode: "Healing in the Newness of Life Part 14"
+guests: None
+url: ""
+type: solo
+---
+
+# Healing in the Newness of Life Part 14
+
+## Summary
+This episode explores the practical application of healing within the context of the "newness of life." The host establishes that healing is actively available through the power of the Spirit today, just as immortality will be affected in the age to come. The central message focuses on faith not as a barrier or demand placed upon us, but as the fundamental, existentially designed mechanism through which we receive God's provisions.
+
+## Key Insights
+*   **Immortality vs. Healing**: [[Immortality]] is affected by God's initiative in the age to come, whereas [[Healing]] is affected on our side through faith today.
+*   **The Power of the Spirit**: Healing is administered by the same [[Power of the Spirit]] that raised Christ and will eventually bring immortality.
+*   **The Mechanism of Faith**: [[Faith]] is not an arbitrary test or a performance to impress God; it is the designed "way we walk in this world" to receive supernatural realities, much like processing and accepting natural truths.
+*   **Varieties of Faith in Ministry**: Healing can be affected by the minister's faith, the recipient's faith, or a third party's faith (as seen in the Gospels and the book of Acts).
+
+## Coach's Corner
+**On Mindset & Removing Friction:**
+Faith in this episode is reframed not as a "hurdle" or an "order you have to prove to be given something," but simply as the mechanism of receiving. As a founder, you often view sales, marketing, and growth as massive hurdles you have to jump over to "prove" you deserve success. You add friction to your own mindset. What if closing a deal or acquiring a user isn't a test of your worth, but just the natural mechanism of the market working? When you unburden yourself from the pressure of "trying" to have faith (or trying to force success) and simply focus on understanding the mechanics of your business, the anxiety drops and execution becomes natural.
+
+**On Third-Party Faith (Team & Leadership):**
+The episode notes that healing could happen via the minister's faith or third-party faith when the recipient couldn't muster it. In your startup, your team or your early customers often borrow your conviction. If the minister (you, the founder) lacks belief, the result fails. Your conviction is contagious. Build it in the "place of prayer" (your deep work, your strategy sessions) so that when you face the market, your execution is flawless.
+
+## Action Items
+*   [ ] **Mindset audit**: Identify one area of your business where you feel you are "forcing" a result rather than understanding the mechanism of how it naturally flows.
+*   [ ] **Build conviction**: Spend 30 minutes in deep work reviewing your core value proposition so you can transfer that conviction to your next prospect.
+
+## Resources
+*   Matthew 17, Mark 11, Luke 4
+*   Acts 3, Acts 14
+
 ## Introduction to Healing in the Newness of Life
 
 All right, welcome back to the Plus podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. Now, we're looking at healing and illness of life. We're getting to the more practical side of the teaching and we have established a number of things that we exist to fulfill God's purpose. We have to grow to be able to fulfill that purpose. What we grow in is the newness of life. 
