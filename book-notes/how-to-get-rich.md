@@ -136,9 +136,9 @@ Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilati
 “If you “negotiate out of fear” you are not “negotiating.” You are surrendering in all but name. As to the second half of his pronouncement, he is saying that it’s always worth listening to the other side in the search for mutually beneficial agreements. ”
 
 ### Management Bargaining vs. Serious Negotiations
+“Serious negotiations are very different from day-to-day bargaining and should be approached differently. They imply a weakness in the position of at least one of the parties involved in the negotiations, unlike day-to-day bargaining, where no such weakness need exist. The first thing to be done, perhaps the most vital thing, is to establish exactly where those weaknesses lie.”
 
 ### The Elephant and the Flea
-
 - The flea has established to his own satisfaction the elephant’s urgent need.
 - The flea has learned to ignore flattery.
 - The flea has learned that an elephant cannot be your friend in negotiations.
@@ -150,6 +150,50 @@ Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilati
 - The flea has weighed Greed vs. Need. He believes Need will outweigh Greed.
 
 ### A Few Tips on Negotiating
+
+- Remember that few of us are any good at detailed negotiations. That includes your opponent, by the way
+- If you are a poor negotiator, like me, then set a limit on what you will pay or accept and on any conditions attached. Do not deviate. Your first thought is your best thought.
+- Most negotiations are unnecessary. Don’t enter into them. Remember that “the fortress that parleys is already half taken.” Save serious negotiations for serious occasions.
+- Do your homework. And do it rigorously. What you don’t know or haven’t bothered to find out can kill you in any type of serious negotiation.
+- Despite my jungle book examples above, the devil really is in the detail in serious negotiations. Get all the professional help you can trust. But do not surrender control of the negotiations or the agenda to such professionals. They are not the ones who will have to live with the consequences—you are. Professional advisors are there to explain and advise, not to decide.
+- If your advisors are leading you down a path you don’t approve of during your negotiations, call a “time-out” and tell them privately that if they continue along that route you will get yourself some new advisors. The world is full of them.
+- Never fall in love with the deal. A deal is just a deal. There will always be other deals and other opportunities.
+- Avoid auctions in business like the plague—unless you are selling something, that is. You will nearly always pay more than is wise if you are the “winner” of an auction process.
+- The negotiator opposite you is not your new best friend. He is not your partner. He is not your confidant. You have no obligation, outside of ordinary courtesy, to please him or satisfy his demands. He is the enemy. If you do not understand that real winners and real losers emerge from serious negotiations, then you will be robbed, whatever the circumstances.
+- Take no notice of management manuals that tell you to leave passion and emotion out of the negotiating room. If you are emotional or passionate about something, then let it show. But leaven emotion with courtesy, and, if possible, with wit. If you’re not the witty type, then flattery and self-deprecation are good substitutes.
+- Listen when engaged in serious negotiations. Then listen some more. You are in no hurry. Nobody ever got poor listening. Also, use silence as a weapon. Silences are disconcerting. People tend to fill silences with jabber, often weakening their bargaining position as they do so.
+- Choose a rogue element to your advantage and bring it into the negotiation at a late stage. You’ll be amazed at how often this tactic produces results.
+- The British created the largest geophysical empire in the world with one tactic: divide and rule. It always works. It never fails if you can get to exploit it. Get to know the other side. There may be slight differences in the individual approaches of their senior managers and, possibly, in their goals. Drive a wedge and keep hammering.
+- Permit no such weaknesses in your own camp. I have often banned senior executives from taking part in negotiations simply to avoid this trap. Better you are in there on your own, outgunned, outflanked and outmaneuvered, than to have two or three of you silently squabbling.
+- Everyone thinks they are a great negotiator, but most of us simply are not. If it’s your company, then, for better or worse,  you are the final arbiter. That remains true whether you are a good negotiator or a bad one.
+- If you suspect you perform badly on such occasions, do not attend, even if you are the 100 percent owner. Get someone else to do it after setting out your response to every conceivable option that might arise. This tactic can be devastating to the other side, and Peter, Bob and I have used it on many occasions in the past. You have to trust your nominee completely, though.
+- Above all, establish where the balance of weakness lies in any serious negotiation. Most strengths are self-evident, especially strengths like cash and infrastructure. Weaknesses are usually hidden. Ferret them out, hold them up to the light and make a battle plan.
+- Whatever you agree to during a negotiation, fulfill the bargain. Nobody wants to do business with a weasel or a chisler. Written in the Zoroastrian Scriptures two-and-a-half -thousand years ago was this: “Never break a covenant, whether you make it with a false man or a just man of good conscience. The covenant holds for both, the false and the just alike.”
+
+## Chapter 12 - Ownership! Ownership! Ownership!
+
+### Why Ownership Isn’t the Important Thing—It’s the Only Thing
+> “To become rich you must be an owner. And you must try to own it all. You must strive with every fiber of your being, while recognizing the idiocy of your behavior, to own and retain control of as near to 100 percent of any company as you can. If that is not possible, in a public company, for example, then you must be prepared to make yourself hated by those around you who are also trying to be rich. That is the dirty, rotten little secret of it all, my friend.”
+
+> “To become rich, every single percentage point of anything you own is crucial. It is worth fighting for, tooth and claw. It is worth suing for. It is worth shouting and banging on the table for. It is worth begging for and groveling for. It is worth lying and cheating for. In extremis, it is even worth negotiating for. Never, never, never, never hand over a single share of anything you have acquired or created if you can help it. Nothing. Not one share. To no one. No matter what the reason—unless you genuinely have to.”
+
+> “Because I owned it. I owned it all. And my dear friends David and Robin never owned anything during their time there except for a pile of EMAP share options, a good salary and a lovely pension. Please think about this if you want to be rich. Ownership is not the most important thing. It is the only thing that counts.”
+
+“Nothing counts but what you own in the race to get rich. If you haven’t much skill, or much wit, or much talent, or much luck, and yet you insist on owning more than your fair share of any start-up or acquisition, then you can become rich. If you take what you’re given, you will probably not get rich.”
+
+“And if I had given 20 percent to those four employees, should I not have had to do so with many others as they joined the company and worked hard to make it a success? Where would it all end? I’m not a bloody charity. I’m an entrepreneur trying to make a small fortune, not the Salvation Army. I pay people to get a job done. And I pay them well. I try to make it as much fun as I can along the way. I reward senior managers with bloody huge bonuses based on performance and results. Millions of dollars have been paid out in such bonuses over the years.
+
+But I will not give them a share. Not one. Not for love. Nor for loyalty. Not to be fair. Because capitalism isn’t fair. Life isn’t fair. The lottery of what genes we are born with isn’t fair. The moon and the stars and the gas clouds of Alpha Centauri aren’t fair.
+
+Except for your loved ones or closest friends, it’s every man for himself in this world, in case you haven’t noticed: “No prisoners! The Lord will know his own!” Or, in the rapier advice of Benjamin “Jowett, a nineteenth-century master of Balliol College, Oxford: “Never retreat. Never explain. Get it done and let them howl.”
+
+The best kind of fairness is the kind that makes money. Lots of money. Then you can decide to do with it whatever you wish. And there’s even a whole chapter at the end of this book about it. (See Chapter 18: How to Stay Rich.) But we can’t be wasting time thinking about and debating fairness while we are in money-making mode. Money making and fairness having nothing to do with each other.”
+
+### The Joys and Perils of Partnership
+“Which brings us to minority shareholders and investors. I have owned companies with minority shareholders. And I have always gone out of my way to be fair to them and their interests. But I cannot pretend that they were not a burden. Let me explain by way of example. Should I wish the company we co-own to invest all its profits for three years to build itself, a minority shareholder might (understandably) complain: “It’s all right for you. But I depend on the dividends the company would pay me if we did not invest so much. I want to protest at your investment strategy.”
+
+“But if you want to be rich and you are forced to take minority shareholders on board, then I guarantee that, sooner or later, you will waste weeks or even months in the attempt to obtain mutual agreement. It is unavoidable.”
+
 
 
 
