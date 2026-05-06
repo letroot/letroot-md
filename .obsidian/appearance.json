@@ -1,4 +1,6 @@
 {
   "accentColor": "#394cdb",
-  "textFontFamily": "Helvetica"
+  "textFontFamily": "Helvetica",
+  "showRibbon": true,
+  "theme": "moonstone"
 }

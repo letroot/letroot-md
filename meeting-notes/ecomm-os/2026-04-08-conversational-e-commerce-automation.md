@@ -6,7 +6,6 @@ participants:
   - Inioluwa Adegoke
 tags: [meeting, ecomm-os]
 ---
-
 # Conversational E-commerce Automation
 
 ## Summary

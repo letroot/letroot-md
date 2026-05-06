@@ -5,7 +5,6 @@ title: "Excuse me, is there a problem?"
 author: "Jason Cohen"
 url: "https://longform.asmartbear.com/problem/"
 ---
-
 # Excuse me, is there a problem?
 By Jason Cohen
 Source: [A Smart Bear](https://longform.asmartbear.com/problem/)

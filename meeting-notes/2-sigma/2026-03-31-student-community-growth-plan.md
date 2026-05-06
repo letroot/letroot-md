@@ -6,7 +6,6 @@ participants:
   - Mercy Abidoye
 tags: [meeting, 2-sigma]
 ---
-
 # Student Community Growth Plan
 
 ## Summary
