@@ -194,6 +194,88 @@ The best kind of fairness is the kind that makes money. Lots of money. Then you 
 
 “But if you want to be rich and you are forced to take minority shareholders on board, then I guarantee that, sooner or later, you will waste weeks or even months in the attempt to obtain mutual agreement. It is unavoidable.”
 
+### Why Going Public Is Different
+“(Insider trading is an easy one to understand. If you help to run a public company, nobody gets to know how you are doing before  everybody gets to know. Got that? It doesn’t matter if the news is good or bad. It must not be alluded to outside of your professional advisors and company colleagues. Especially the upcoming quarterly earnings and revenues. Just don’t mention it. Not even to yourself in the bath.)”
+
+“A private company could never have operated in the way Peter was required to run MicroWarehouse. A private company lives on profits and reserves. There has to be a balance between investment and profit-taking. Between growth and the bottom line. In a private company, growth is not a goal in itself; you only grow if it makes sense to grow."
+
+"But a public company exists only to boost its share price, and its share price is determined, incredibly enough, by “analysts”—spotty-faced youths who live on another planet where growth-at-any-price is the only deity one is encouraged to worship. Medium- or long-term strategies were for wimps and amateurs, in their estimation.  This quarter’s results, this quarter’s growth, were the only things that mattered to them. It almost seemed, at times, as if profit was a dirty word. If we were making “profits,” asked the “analysts,” weren’t we in danger of “wasting” money that could have been invested to produce more "growth”?"
+
+## Chapter 13 - The Joys of Delegation
+
+“The exercise of delegation, used responsibly, allows you to bring out the best in others and to make yourself rich in the process. It is the nearest thing to a “virtuous circle” imaginable. Just imagine getting rich while you’re helping others to help you get richer and prove their worth in the process. Magic!”
+
+“As an owner, or an owner in training, you must always be alert for the telltale signs that here is a candidate for promotion and delegation. They are smart. Perhaps smarter than you are. They work hard and they appear to love the work they do. They ask intelligent questions and don’t waste time gossiping and mucking about. They listen and correct their errors, and don’t repeat them. They want your job.
+Especially in the early days of your company, delegation and promotion are among your most powerful weapons in getting rich. Men and women with spirit will be prepared to leave safe, comfortable jobs and work for you, providing the atmosphere of the new operation is loaded with optimism, adventure, the sweet scent of delegation and the promise of promotion.”
+
+Excerpt From
+How to Get Rich
+Felix Dennis
+This material may be protected by copyright.
+
+“Do not seek a replica of yourself to delegate to, or to promote. Watch out for this, it is a common error with people setting out to build a company. You have strengths and you have weaknesses in your own character. It makes no sense to increase those strengths your organization already possesses and not address the weaknesses.”
+
+Excerpt From
+How to Get Rich
+Felix Dennis
+This material may be protected by copyright.
+
+“I see a young man who would think nothing of working a sixteen-hour day—going out into the London night for a drink and a swift curry, coming back into the office for a few hours’ nap on the office sofa and beginning the process all over again. And I see the same young man, dragging himself in on Saturdays and Sundays, pale with self-inflicted exhaustion. Snappy. Quick to criticize and too slow to delegate and praise others. I see a young man trying too hard, but not delegating enough.
+Month after month, in those early days, I battered myself and my staff into setting world records for stamina and effort. Did it make me rich? No. It made me tired, bad-tempered and arrogant. It led me to make errors of judgment which I would have avoided had I gone about it a smarter way.”
+
+Excerpt From
+How to Get Rich
+Felix Dennis
+This material may be protected by copyright.
+
+“How do you learn how to delegate wisely? Trial and error, I would say. I have been constantly surprised all my business life at who faces up to challenges best. It is very often not those who talk the best talk.”
+
+Excerpt From
+How to Get Rich
+Felix Dennis
+This material may be protected by copyright.
+
+“If you want to get rich, then learn to delegate. Don’t learn to pretend to delegate. Delegation is not only a powerful tool, it is the only  way to maximize and truly incentivize your most precious asset—the people who work for you.
+Real delegation can help make you rich. But only if you work at it.”
+
+Excerpt From
+How to Get Rich
+Felix Dennis
+This material may be protected by copyright.
+
+## Chapter 14 - A Piece of the Pie
+
+### Sharing and Growing the Pie
+“Despite all my hard words about establishing ownership and caution where partners are concerned, I am a great believer in sharing the annual  pie around. That is, I believe in incentives that help concentrate the mind and bring a sense of competition and purpose to management.
+What I do not believe in, are incentives handed over as a kind of sop (you will find these everywhere) or in an owner sharing the proceeds of an asset sale unless contractually bound to do so.
+Use the annual profits of a company to grow the business by all means. One of the ways of making it grow is to carefully craft bonuses for those who work for you to achieve margin, cost and revenue targets. This is a great idea even if you are going short at the time yourself and your sales manager is earning more than you are that year. Sounds crazy? Well, it worked for me!
+But when it comes to a sale, when you cash in your asset for big bucks, then I dispute the necessity (or even the fairness, not that life  is fair) of handing over substantial chunks of the big bucks to people who work for you to achieve margin, cost and revenue targets. This is a great idea even if you are going short at the time yourself and your sales manager is earning more than you are that year. Sounds crazy? Well, it worked for me!
+But when it comes to a sale, when you cash in your asset for big bucks, then I dispute the necessity (or even the fairness, not that life  is fair) of handing over substantial chunks of the big bucks to people who did not risk their cash or livelihoods to create the business.”
+
+### Twenty-one Ways to Make More Pie
+
+Here is what I have learned as far as owning, sharing and growing your annual pie is concerned. None of this should be written in stone. The way I got rich and shared (and continue to share) my annual pie may not suit you or your own circumstances. That said, I suspect some of the points that follow are universal truths:
+1.  **Make annual bonuses generous**. If you want your managers to concentrate on improving margin and profitability while growing the business, then they have to feel the light is worth the candle. Pay them well for performing well. (They will have many excuses to make to their lovers or spouses for working late to achieve the goals you set them.)
+2.  **“Ring fence” investment costs from “ongoing” business**. You want the business to grow but you also want to make profits. Balance is the key. By “ring fencing” all investment money for new projects and growth in your annual accounts, you can encourage managers to work on margin and profit from their “ongoing” parts of the business while offering them the chance to grow and take some risk. This equation requires patience and goodwill on all sides. But it can be done, and it works.
+3.  **Keep costs down. Always.** “Overhead walks on two legs” and will eat you out of house and home. No company, new or old, can avoid stealth growth in overhead. It occurs, as it were, by osmosis. Prune overhead regularly. Stop only when the pips squeak.
+4.  **Never delegate bonus arrangements.** I once did so, like a fool, and twelve months later my company was forced to pay ludicrously high bonuses for a very small improvement in profit to six senior managers. Four of them voluntarily returned half of their bonuses. They knew they were not equitable. The other two insisted on keeping their bonuses. Neither of those two managers works for me today, or will ever work for me again. But it was my fault. I had delegated a task to them I should not have delegated.
+5.  **At senior level, insist on collective responsibility for bonuses.** Part of the annual incentive bonus for senior managers should result from their combined efforts to bring home the bacon. One cannot make a senior manager’s whole bonus rest on this edifice. But peer pressure is a powerful force. If senior managers sense one of their number is slacking and fear they may all suffer for his or her transgressions, they are likely to let their feelings be known. Forcefully.
+6.  **Praise excellent work.** But do not waste your praise on ho-hum performances as a sop. Employees respect a boss who knows the difference between the mundane and the exceptional. Remember that not all employees respond well to incentive bonuses or a dangled carrot of any kind. They seek recognition, not bribery.
+7.  **Fire malingerers, incompetents, toads and glory hounds mercilessly.** Not only does firing them make you feel better and contribute to a more pleasant working atmosphere, it cheers up the whole staff.
+8.  **Turn a cold eye on company “perks.”** These can add up to huge sums. While I am considered terribly old-fashioned on this subject, I am still uneasy about company-issued credit cards; company-issued mobile telephones; travel and entertainment of any stripe at the company’s expense; company air travel in any class but economy.
+9.  **Avoid all “jollies,”** the generic British term for flying the sales team to Florida in winter to “boost morale” and issue tub-thumping speeches, all of which are forgotten the second the crew hit the beach. You can’t afford “jollies.” Ignore protestations from sales managers to the contrary. A day set aside in a quiet environment, prepared for carefully, to assist sales teams improve their presentations to clients, is sensible. As is sales training from reputable training agencies.
+10.  **Offer legal perks that you have paid for yourself to employees.** This sounds crazy, but it works. I allow my employees, for example, the use of my Rolls-Royces or Bentleys for their weddings. I permit them to stay at my homes around the world if they have performed well. I send every child born to an employee (well, I used to in the early days—there are too many of them now) a massive soft toy. Such perks are legal because I paid for them myself from after-tax dollars or pounds.
+11.  **Set an example.** If, as an owner, you want fancy furniture in your office or works of art or Persian rugs, then bloody well pay for them yourself. How can you expect frugality when a junior manager, who works in a cubicle, comes to visit you, knowing that the company paid for those accessories? There is nothing wrong with them being there. It’s who paid for them that counts.
+12.  **Encourage senior managers to go over annual results with you one-on-one**. You will learn more from off-the-cuff remarks and opinions expressed at one-on-one meetings while looking over financial results than you will in a dozen board meetings. This tactic never fails to produce food for thought, often on both sides.
+13.  **Back up your managers.** With delegation comes responsibility. Back up your managers, in public, whenever and wherever you have to. If they do not perform, speak seriously in private to them. If they still do not perform, fire them. But do not undercut them or engage in meetings that appear to undercut them. Reprimand other managers who bad-mouth their peers. Nearly everyone’s ego and self-confidence is more fragile than the outside world believes.
+14.  **Search out and promote talent.** Talent comes in all shapes and sizes and is often inarticulate and shy. Talent isn’t necessarily the woman in the Calvin Klein suit “who talks the talk and bamboozles meetings with stunning graphics on her PowerPoint presentation. Talent is often to be found dressed in T-shirts down in the lower reaches of your organization. Set a bounty on talent among managers. When you find it, test it. Groom it. Work it until it’s ready to drop. Load it with more work and responsibilities. Praise it. Reward it. It will make you loads-a-money.
+15.  **Interview your rivals’ talent.** I have never known a single person in a rival organization, however well paid or cosseted, who has refused to meet me for a quiet drink after work. I have discovered more about what my rivals are up to in this manner than any other. In addition, I have often been so impressed with the people I met in this way that I poached them later. No intelligence-gathering exercise is ever entirely wasted in business. There is only so much pie. Talent bakes that pie.
+16.  **Discourage secrecy.** The more you take middle and senior managers into your confidence, the more they will respect you and the harder they will work for you. Many managers disagree with this policy. They love the feeling of power that comes from knowing what others do not know. I don’t care about power. I care about getting rich.
+17.  **Save a little bit of pie for suppliers.** Save a little of the annual pie to wine and dine key suppliers. Or let them wine and dine you. If you like them enough, invite them to your home. We all remember to call often upon our major customers. But it is worth remembering suppliers. And they often have important market information.
+18.  **Never bad-mouth rivals.** It’s a sign of stupidity and weakness. I try to go out of my way to praise my rivals when I can. Often enough they deserve praise and they’re sure to learn about my comments sooner or later. Why go out of your way to antagonize them? (Secretly feeling sorry for them, because they do not own as much of their own company as you do, is definitely permitted.)
+19.  **Sell early.** Real money rarely comes from horsing around running an asset-laden business if you are an entrepreneur . You are not a manager, remember? You are trying to get rich. Whenever the chance comes to sell an asset at the top of its value, do so. Things do not keep increasing in value for ever. Get out while the going is good and move on to the next venture. More money is usually lost holding on to an asset than is made waiting for the zenith of its value. I should know—it’s my own biggest defect.
+20.  **Enjoy the business of making money.** The loot is only a marker. Time cannot be recaptured. There is no amount of pie in the world worth being miserable for, day after day. If you find you dislike what you are doing, then sell up and change your life. Self-imposed misery is a kind of madness. The cure is to get out.
+21.  **Never miss an opportunity to promote your asset.** Try purchasing one (or both) of my books of poetry: A Glass Half Full or Lone Wolf for instance. If they are not in your local bookstore, then go to www.felixdennis.com and check them out. Each contains a spoken-word CD and may well transform your entire life. (Sorry, I just couldn’t resist that.)
 
 
 
@@ -207,3 +289,5 @@ The best kind of fairness is the kind that makes money. Lots of money. Then you 
 > "Success is never permanent; failure is never fatal. The only thing that really counts is to never, never, never give up." — WINSTON CHURCHILL
 
 > "There is no substitute for talent. Industry and all the virtues are of no avail." — ALDOUS HUXLEY
+
+> “Work is of two kinds: first, altering the position of matter at or near the earth’s surface relatively to other such matter; second, telling other people to do so. The first is unpleasant and ill paid; the second is pleasant and highly paid. —BERTRAND RUSSELL, "IN PRAISE OF IDLENESS”
