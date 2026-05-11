@@ -6,7 +6,7 @@ guests: [[Brian Chesky]]
 url: https://www.youtube.com/watch?v=eURcW5_uS60
 type: interview
 ---
-
+	
 # How Brian Chesky Is Redesigning Airbnb for the AI Era
 
 ## Summary
