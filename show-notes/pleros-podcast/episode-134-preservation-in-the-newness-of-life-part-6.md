@@ -1,0 +1,89 @@
+---
+title: "Preservation in the Newness of Life (Part 6)"
+date: 2026-05-16
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=_mw-DjbPOlg"
+type: solo
+---
+
+# Preservation in the Newness of Life (Part 6)
+
+## Introduction to the Pleros Podcast
+
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
+
+Let's get right into it. Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## Preservation in the Newness of Life
+
+Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+
+All right, welcome back to the Plleos podcast. We're looking at preservation in the newness of life and this episode will be the final one in which we'll be examining the reality of that preservation as available. From the next episode we'll be seeing how we walk in preservation in the newness of life. So we have done a lot to show that preservation is a readily available reality for us in this new life that we have in Christ. And if we're going to walk in God's purpose and fulfill it, we have to acknowledge, grow in, be strong in all the realities that are available to us.
+
+We must not ignore anything that is available to us in Christ. All right. And it's on that note that I I I'll take us back to some of the things we have seen. We have already seen healing as available in the new life. But we said this new life is what God planned for man at the beginning that will be affected at the end.
+
+And between that time today, there are certain things that are available to us to be affected. So when we talk about immortality for our bodies, what is available to us whilst we are still in mortal bodies? Healing is available to us. Okay. So what is available to us relative to a cosmos that is corrupt, that is sick, that needs to be delivered by the spirit.
+
+Let's quickly look at Romans chapter 8 so that I could because we'll be moving forward from the next episode. Let's look at Romans 8 to remind us of that the power of the spirit is not just going to be exercised on our bodies but will take effect on creation itself. Now in Romans 8 and 11 it says the spirit of him that raised Jesus from the dead dwells in you. If the spirit of him that raises from the dead dwells in you, he who raised Christ from the dead will give life, immortal life to your mortal bodies through his spirit that dwells in you. So we see that we are going to come out of mortality into immortality by God's initiative via the spirit.
+
+But that event is also going to affect the cosmos. is going to affect creation. Romans 8 and verse 19. For the endless expectation of the creation eagerly waits for the revealing of the sons of God. For the creation was subjected to futility.
+
+And we said that's degeneration of wastage. It's getting worse in itself. All right. It was subject to futility not willingly but because of him who subjected it in hope or subjected it in hope because the creation or the cosmos will be delivered from the bondage of corruption. So today the creation is under the bondage of corruption and at that point where the revealing of the sons of God happen it's going to be delivered from the bondage of corruption into the glorious liberty of the children of God.
+
+is going to be delivered into the glorious liberty of the children of God. So or you could say of the sons of God as well. So that same freedom that we experience from mortality that glorious freedom is also going to be a freedom for uh the cosmos from corruption. Now the same way by that spirit of God we have the power of God available to be affected in our bodies is the same way we have the power of God available to be effected in creation. Okay is the same way we have the power of God available to be affected in creation.
+
+You remember we have seen that and we won't go to so many texts this time around from the example of the Lord Jesus when there was a windstorm in Matthew 8:23-27 or so and then in Mark chapter 4 I think about 35 downwards to 40 or 41. So you have we have those two texts we could see also there was the instance of the lord walking on water in Matthew 14:25 downwards and he exercised authority dominion over that sick state of the world there's also another instance we mentioned which is when he spoke to the fig tree there's an instance of him showing authority over the cosmos and when he thought when he taught faith at that instance he pointed out that it's it's applicable able to anything within redemptive possibility. He said, "Whosoever shall say to this mountain." So he spoke to a fig tree and then he mentioned a mountain. So whosoever shall say to this mountain, "Be removed, be cast into the sea, does not doubt since I believe things here shall come to pass in shall whatsoever seeth." So when when we are dealing with a sick world, we have authority, redemptive right to tame it, restrain it, but we can't put a necessary end to it by virtue of the fact that the world is legitimately and rightfully in a corrupt state today. Another instance we saw preservation is Acts chapter 27.
+
+Paul's experience whilst he was under arrest or when he was in custody going to testify before Caesar and he said their trip was going to be with disaster but later on it was assured by the angel of the lord that their lives were going to be preserved. So we then start to see the role of the angels of the lord in this issue of preservation in the newness of life. The lord Jesus mentioned the role of angels in in Matthew chapter 26. Uh the case for angels, let me just quickly say is a revelatory case. The Bible reveals the reality of angels.
+
+But there's also a observable case we might make. You know, a natural case we might make, something you can observe yourself. It's difficult that for for you not to have had maybe some people more than others, I don't know. But it's something that is almost rare that you will not have had experiences that show a proof that there is some intelligence behind the scenes of the world. Even though it can be for good or for you.
+
+Interestingly, you could see people's lives are so messed up and there's so much orchestration that led to that and you could see the details of people's life so designed as a canvas like sorry there's a work of art on a canvas that you're like there's some intelligence behind just that fact that you met this person. and you had to be there at the very moment this happened that the events just aligned almost precisely for that. So there is this fact of God's orchestration or providence we might want to say that it's well stated in God's word but it's also something that it'd be so difficult for you not to have ever seen or experienced. I mean I I I think that is the case for a behind the scenes intelligence that can be for good or for evil that is angels or demons that work um that work um hand in hand with man you might want to say that is with man's words to affect the events that we see play out on the earth. So but this is not a teaching on angels itself.
+
+Therefore I'm not going to go into much details on that but that's the case for angels and they play that role in preservation and deliverance. So the Lord said I could pray the angels for that to happen. I could have prayed that to the father. I mean the very reason he said that is because he went to prayer considering whether it is absolutely necessary that that happens again just reflecting his humanity no doubt and then praying for him to carry out what he was supposed to do. You know there are accounts where you see the deliverance of the Lord without any explanation and you can clearly tell the ministry of angels was at work and is what's been referred to.
+
+Let me show you one in the book of Luke chapter 4. So they were taking the Lord up a hill to throw him down. They wanted to pers they were persecuting him you know they were taking him up a hill to throw him down in his own time I believe. Let's see Luke chapter 4 and verse 28. So all those in the synagogue when when they heard these things were filled with wrath and rose up and thrust him out of the city.
+
+So they pushed him out of the city. That was not a funny experience. These people mean business. And they led him to the brow of the hill on which their city was built that they might throw him down the cliff. Then the next statement just reads, "Then passing through the midst of them, he went his way." For whatever reason, something happened.
+
+Some form of confusion must have happened. You might also argue maybe some form of blindness or must have happened, not literally that led to him to him escaping that situation. This is a case of um divine orchestration, you know. So, and you you can find divine orchestration as something you might have observed in your life. if you didn't meet this person, if that didn't happen, if this didn't happen, then maybe this other thing would not have happened and then maybe this other thing would not have happened.
+
+It happens all the time because um it is part of God's design that the events we see on earth would happen alongside the orchestrations that happen from the heavens. You know and man plays a role in determining whether the events happening from the heavens in their own life or people they are responsible for uh positive or negative but again that's on the teaching of angels not here but the lord shows us in Matthew 26 angels are involved in preservation in the new life also in Matthew 4 Satan himself you know quotes Psalm 91 to so the fact that there's a scripture for something does not mean you might be walking in the spirit doing that. You could be walking in the flesh. I mean someone can be healing the sick with pride. Um one might be doing something that is right with the wrong motive.
+
+So one can believe for preservation and deliverance whilst walking in the flesh. And if you're walking in the flesh, you might be opening yourself up for the wrong things. So the Lord said you shall not tempt the Lord your God. The truth of preservation and deliverance is not to prove a point. Is for preservation and deliverance.
+
+Period. So it's not to make a statement to anyone. It's not to prove a point is to be preserved and delivered. And that's him not falling into sin, him not yielding to the flesh, which those temptations were really about that the temptations were to prove a point. They were they were not asking so much of him.
+
+Just prove a point. If you are the son of God, you know, just walk in pride, make a statement, prove a point. Something we have to avoid. If our heart is like that then it means we can miss out of how we walk in God's purpose. So let's go to Psalm 91 and see that text has quoted and a very important text on preservation and deliverance.
+
+Like if there's any text that is heavy, utterly heavy on preservation, it is this text heavy on preservation maybe even more than deliverance. I mean deliverance by that I mean you already in a situation you're coming out of it. Then preservation you are just protected from the situation. Both of them are available in the new life. So in Psalm 91 it says he who dwells in the secret place of the most high shall dwell under the shadow of the might.
+
+Now let me make a point. Why is preservation in the new life important? Because we are living in a world that is under attack. Is the same reason why the believer's authority is important. And when we get there we'll talk about it.
+
+1 John 5 and verse 21 says the whole world 21 is verse 19 I believe says the whole world lies under the sway of the wicked one when you are seeing a world where death is default darkness is default there's the reign of sin death and darkness it's important to be in faith it's important to be in faith for preservation all right it's important to be in faith for preservation it's yeah let's just Let's leave it at that. It's important to be in faith for preservation. It's important to learn to exercise the believer's authority because you will need to from time to time. So the world be the way of the wicked one is in all kinds of regards. Temptation is one example.
+
+The enemy is always bringing temptation. You must exercise your authority not to walk in it. But also it could be in natural regards as well. All right? And that's why we must stay in faith for preservation and deliverance.
+
+So he tells us here, he that dwells in the secret place of the most high shall abide under the shadow of the almighty. I will say of the Lord is my refuge and my fortress. Isn't it interesting? We're reading the Old Testament text. And this is the kind of faith that um the psalmist here has um you know has about about Yahweh.
+
+All right. But let me jump to verse 9. Because you have made the Lord your refuge, even the most high your dwelling place. No evil shall befall you, nor shall any plague come near your dwelling. He gave you he gave us the reason because you have made the Lord your your the Lord my refuge, even the most high my dwelling place.
+
+So this is because of something there's something that effects it. You know, he also said earlier, you shall not be afraid. It says no evil shall be before you, no plague shall come near your dwelling. He shall give his angels charge over you. They shall keep you in all your ways.
+
+Do you believe that? It says in their ends they shall bear you up lest you dash your foot against a stone. You shall tread upon the lion and the cobra, the young lion and the serpent. You shall trample under food because he has set his love upon me. Therefore, I would deliver him.
+
+So, this is now speaking from God's side. Yahweh is speaking and saying because he has set his love upon me, he has his faith in me. It's just like Proverbs 18:20-21 that says those that love he that loves it will eat the fruit thereof. Death and life are in power of his tongue. So whichever one you love, whether you are in faith in Yahweh, you are in faith for life.
+
+You are not speaking evil happening. You know, therefore I will deliver him. I will set him on high because he has known my name. I will he shall call upon me and I will answer him. I'll be with him in trouble.
+
+I'll deliver him and honor him with long life. I will satisfy him and show him my salvation. So because of salvation, we might say the long life also might be spiritual in implication. But in the light of every part of this text is also can be seen as natural long life in the sense of fulfilling the number of our days which is something that the scriptures speak to very clearly. There is preservation and there's the role of the ministry of angels in that.
+
+Even though we are not looking to angels for it, we put our faith in Christ. We put our faith in God for that. All right. From here forward, we'll be asking the question, how do we walk in preservation? How do we effect it?
+
+Um, and we'll see that from the very next episode. Thank you.
+
+## Closing Charge
+
+All right that'll be it for now. Thank you. Fulfill God's purpose and see you on the next one.
+
+We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleros.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Pleros_HQ. For now, stay blessed and keep walking in his purpose.
