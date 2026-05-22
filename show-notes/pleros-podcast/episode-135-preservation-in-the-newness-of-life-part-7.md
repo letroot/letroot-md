@@ -9,7 +9,11 @@ url: https://www.youtube.com/watch?v=iSvIbIyeunI
 
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
 
-Let's get right into it. &gt;&gt; Welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're continuing on our teaching preservation in the newness of life.
+Let's get right into it. &gt;&gt; Welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## Review of Preservation in the Newness of Life
+
+We're continuing on our teaching preservation in the newness of life.
 
 And we really want to get to how we walk in preservation, but we have to make some emphasis on certain things that we've already seen. Now, you recall that we are looking at everything we are studying in the light of God's purpose, which is the very reason why God made us. And that's the central theme of scripture. God didn't make us just to exist for the sake of it.
 
@@ -23,6 +27,8 @@ Number one is the immortality of our bodies. And the second one is the incorrupt
 
 The very same spirit that willffect immortality is found active today. We saw that from the ministry of the Lord Jesus through the church and presently available to us today. The working of the spirit to effect healings in our bodies. Immortality will be affected by the initiative of God or we could say the initiative of the Lord Jesus himself at the end.
 
+## Romans 8 and Preservation Relative to the Cosmos
+
 What about preservation? We saw preservation as available in the new life by seeing the fact that incorruption would also be affected by the spirit. The deliverance of the cosmos would happen alongside the immortality of our body at the end of the age. Recall Romans chapter 8.
 
 See that Romans and chapter 8 and verse 21. Now in Romans 8 and verse 11 he had told us but if the spirit of him that raised Jesus Christ from the dead dwells in you he that raised Jesus Christ from the dead will give life to your mortal bodies by spirit that is in you. So we are going to receive immortality by the spirit. But in verse 20, we are told that the creation was subject to futility not willingly but because of him who subjected it in hope because the creation itself will be delivered from the bondage of corruption.
@@ -32,6 +38,8 @@ So we are seeing here that the cosmos the physics chemistry biology of our world
 There are things we have done on that on gospel answer series and we'll still do more on the website as well when we get to the critical version of gospel answers. But for now, our concern is the creation is under the bondage of corruption. It will be delivered when it says into the glorious liberty of the children of God. So he's saying at the very time that we are set free from the hold of sin and death in our bodies as we have already been set free in our spirit, it's at that time the creation itself as well will be delivered.
 
 So the same spirit that affects that in our body is the very power of the spirit that will effect the same at the end for creation or the cosmos as well. Now that said, it brings us to the question if incorruption is not available to the cosmos. Now, what is available? And we have run through several texts to establish the fact that preservation is available.
+
+## Jesus Exercising Authority Over the Cosmos
 
 So, for sake of summary, I'm going to mention Matthew chapter 8 23 downwards to 26 and where the Lord calmed the temptous wind in Matthew 8:23. Now, when he got into a boat, his disciples followed him and suddenly a great tempest arose on the sea. So the boat was covered with waves. Then they woke the Lord up, saying, "Lord, save us.
 
@@ -46,6 +54,8 @@ That's another instance of him taking authority over the cosmos in situations or
 So we see clearly instances of preservation happening by the power of god showing us that though the world remains corrupt in instances of sickness of the cosmos in that corrupt state there can be preservation. The role of angels is very important when it comes to this truth of preservation in the newness of life. We saw the Lord mentioned in Matthew chapter 26 that he could have prayed the father and have 12 legions of angels to preserve him from what was going to happen in this crucifixion. But it had to be done that the scriptures may be fulfilled.
 
 Also in Matthew chapter 4, we see where the enemy Satan spoke saying that God had made the promise to him as a person as the son of God, but by extension to people of faith or the covenant that he will give his angels charge over them, and they shall bear them up in their hands, lest they dash their foot against a stone. But he was actually tempting the Lord to walk in the flesh under the guise of exercising authority in a promise God has given. But nothing takes away from that truth that there is a promise of preservation in redemption. There's a promise of preservation in the newness of life or that God gives us by his power.
+
+## The Role of Angels in Preservation
 
 Now I just want to make a bit of an emphasis on the role of angels in this preservation that we have in the newness of life. It comes up again and again. You can see Genesis chapter 48, Jacob was speaking about the work of God's power over his life throughout his days. In Genesis chapter 48 and verse1 15, he blessed Joseph and said, "God before whom my fathers Abraham and Isaac walked, the God who has fed me all my days long.
 
@@ -76,6 +86,8 @@ But that understanding is taken from the temple. And in the temple description, 
 He that dwells in the secret place of the most high abides under the shadow of the almighty. Verse four will say he shall cover you with his feathers under his wings you shall take refuge. There are so many texts like that speaking about our safety under God's wings that we cannot get to here. Then verse 11 of Psalm 91, he shall give his angels charge over you to keep you in all your ways.
 
 In their hands they shall bear you up. We have read Psalm 91 about twice now. So we are not going back to that. You'll see all kinds of hevils mentioned and God's preserving power in that regard.
+
+## Acts 12 and Angelic Deliverance
 
 Now I'll mention just one last text about the role of angels and preservation or deliverance. Acts 12 when Peter was taken captive. Acts 12 and verse 5. Peter was therefore kept in prison but constant prayer was offered to God for him by the church.
 

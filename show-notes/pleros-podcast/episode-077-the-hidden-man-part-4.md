@@ -10,7 +10,11 @@ type: solo
 
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. 
 
-Let's get right into it. &gt;&gt; Welcome back to the Blues podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are looking at a very important subject matter which is the Eden man and we've already seen a number of things on this. 
+Let's get right into it. &gt;&gt; Welcome back to the Blues podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## Growth and the Hidden Man
+
+We are looking at a very important subject matter which is the Eden man and we've already seen a number of things on this. 
 
 We have taken us through the background that led up to this study. We have seen what God's purpose is for our lives. We have seen the road map of God's purpose. We've seen the need for growth to fulfill God's purpose. 
 
@@ -19,6 +23,8 @@ And that growth happens on our mind. We've also seen how growth happens exactly.
 There's a particular aspect of our mind more exactly that that growth happens to. So I'm just going to give um a brief recap on some things like growth does not happen to our spirit itself. So usually when people say things like training the human spirit, what they are really talking about is the hidden man which we could also call the inner man as we are going to further establish in this episode. And we need to be able to identify that particular aspect of us. 
 
 Distinguish it from our spirit man, even from our outward man, the body. So that when we see a believer that is a new creation having the life and nature of God, but we see the person by growth and by actions walking differently, we are able to understand why that is the case and also effectively able to address it. And remember when I say when we say believers, I'm speaking about you as well. So when you think about yourself and you recognize what Christ has done in you and for you and who you are in him, but then you find yourself at one juncture or the other or as a whole walking in one regard contrary to who you are, you know why that is the case and what to do about it. 
+
+## The Inward Man and the Outward Man
 
 Now just to remind us 2 Corinthians chapter 4 when Paul was speaking there he says that though our outward man is perishing yet our inward man is being renewed day by day. So he speaks about man from this paradigm as inward man and outward man. So there is the inward man is renewed day by day. And it's not literal to say it's renewed day by day. 
 
@@ -38,6 +44,8 @@ What is this part of us that is beyond just our outward man and that is not our 
 
 There's the Eden man of our mind of our heart. Our heart has aspects of it that are not the hidden man. There's the reasoning aspect of our heart. You know there are times where you say someone's heart is hardened and times where you say the person was thinking in his heart why you having these thoughts on your heart and that's not the man. 
 
+## 1 Peter 3 and the Hidden Man of the Heart
+
 So we need to surgically distinguish precisely and exactly what the Eden man is. Now in 1 Peter chapter 3 and in verse one Peter said wives likewise be submissive to your own husbands that even if they do not obey the word they without a word might be won by the conduct of their wives. So our conducts matter a lot in people's salvation in fact because we can attract or repel people just by our conduct. Verse two says, "When they observe your chasteed conduct accompanied by fear, do not let your adornment be merely outward, arranging the hair, wearing gold, or putting on fine apparel. 
 
 " So in this case, talking to the wives and particularly wives of those who are not believers, and he's instructing them not to have the mindset of only beautifying themselves or adorning themselves outwardly. Like I've said that word to adon is the word cosmio if I'm correct but it's from that word cosmos as well is about arrangements and also from where we have the word cosmetic today. So your beautifification of yourself your adornment of yourself should not be merely outward. Now clearly this outward is talking about the outward man the body you know that's where you put your makeup that's where you might wear your cloth etc. 
@@ -48,6 +56,8 @@ It can't be improved upon. We have repeated over and again, we are already parta
 
 I mean, the emphasis on the state of our spirit is absolute, complete, perfect, immutable, is fixed, and done. So where the work is is on another part other than the spirit man and the outward man. So what part do we need to adorn? He says don't just adorn the outward man. 
 
+## Adorning the Hidden Man
+
 What part do we need to adorn? He said rather let your adornment your beautifification or your dressing be the hidden man of the heart. So beyond knowing that we need to grow generally beyond knowing that we grow by faith stand we must know to what person exactly to what man exactly to what part of us exactly this growth is happening. And he says this reality, this person that growth is happening to is the hidden man of the heart. 
 
 He identifies it as the hidden man of the earth. So let your adornment be the hidden man of the heart. And he says what we should have done it with. He says adorn that hidden man of the heart with the incorruptible beauty or cosmetic or makeup of a gentle and quiet spirit. 
@@ -57,6 +67,8 @@ Now if you study the words gentle and quiet, they are realities already of the o
 KJV will use gentleness I believe there. And then temperance we are to wear this gentle and quiet just talking about humility spirit which is very precious in the sight of God. So he's saying take the realities of your spirit and adorn them on the eden man of your mind. It's not enough that you have the spirit of God. 
 
 It's important that you do the work from your spirit to your mind. You are supposed to adorn the hidden man of the heart. And then in our last episode, we're starting to make the argument that Paul also refers to this same part of man, but calls it the inner man. Now, we understand that Paul has already spoken about the inward man as this part that is always renewed day by day. 
+
+## The Inner Man in Ephesians 3
 
 So, there is no improvement happening to this part. But in Ephesians chapter 3 is speaking about an inner man where work can be done or where work is being done to by us or where work is to be done by us. Now in Ephesians chapter 3 and in verse 14 Paul says for this reason I bow my knees to the father of our lord Jesus Christ from whom the old family in heaven and earth is named that he will grant you according to the riches of his glory to be strengthened with might through the spirit in the inner man. Now I understand that there are people who believe that in that text Paul is saying he wants us to be strengthened with might through the spirit in the inner man. 
 
@@ -71,6 +83,8 @@ But here it says the spirit in the inner man with the Greek word is which is tha
 When it says you are strengthened with might by the spirit into the inner man would be a possible reading of that. It means the spirit does that work of strengthening the inner man of bringing about strengthening to the inner man of strengthening of us having strengthening by that spirit in the inner man. So there's what happens in prayer or by faith stand that causes the spirit to give strength to the inner man or to cause the inner man to become strengthened. And that inner man in this context will again be the Eden man of the heart that Peter was talking about that there is such a reality as the Eden man of the heart. 
 
 We are going to see it again in the next episode where Paul will talk about the spirit of the mind. So he's talking about a reality of the mind but uses the word spirit to describe it. And here I'll be reminding us of something we said when we're studying the mind of Mark. So there is this aspect of us that is so critical. 
+
+## The State of Your Hidden Man
 
 There's this aspect of us that is so important that the Lord does not want us to ignore or neglect. And that part of us is the hidden man. What is the state of your hidden man? Really, that's what we all get to interact with. 
 

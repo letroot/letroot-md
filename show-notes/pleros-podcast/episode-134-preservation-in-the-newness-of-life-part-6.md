@@ -9,13 +9,19 @@ url: https://www.youtube.com/watch?v=_mw-DjbPOlg
 
 You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-&gt;&gt; All right, welcome back to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're looking at preservation in the newness of life and this episode will be the final one in which we'll be examining the reality of that preservation as available. From the next episode we'll be seeing how we walk in preservation in the newness of life.
+&gt;&gt; All right, welcome back to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## Final Review of Preservation in the Newness of Life
+
+We're looking at preservation in the newness of life and this episode will be the final one in which we'll be examining the reality of that preservation as available. From the next episode we'll be seeing how we walk in preservation in the newness of life.
 
 So we have done a lot to show that preservation is a readily available reality for us in this new life that we have in Christ. And if we're going to walk in God's purpose and fulfill it, we have to acknowledge, grow in, be strong in all the realities that are available to us. We must not ignore anything that is available to us in Christ. All right.
 
 And it's on that note that I I I'll take us back to some of the things we have seen. We have already seen healing as available in the new life. But we said this new life is what God planned for man at the beginning that will be affected at the end. And between that time today, there are certain things that are available to us to be affected.
 
 So when we talk about immortality for our bodies, what is available to us whilst we are still in mortal bodies? Healing is available to us. Okay. So what is available to us relative to a cosmos that is corrupt, that is sick, that needs to be delivered by the spirit.
+
+## Romans 8 and the Spirit's Work in Creation
 
 Let's quickly look at Romans chapter 8 so that I could because we'll be moving forward from the next episode. Let's look at Romans 8 to remind us of that the power of the spirit is not just going to be exercised on our bodies but will take effect on creation itself. Now in Romans 8 and 11 it says the spirit of him that raised Jesus from the dead dwells in you. If the spirit of him that raises from the dead dwells in you, he who raised Christ from the dead will give life, immortal life to your mortal bodies through his spirit that dwells in you.
 
@@ -30,6 +36,8 @@ So or you could say of the sons of God as well. So that same freedom that we exp
 You remember we have seen that and we won't go to so many texts this time around from the example of the Lord Jesus when there was a windstorm in Matthew 8:23-27 or so and then in Mark chapter 4 I think about 35 downwards to 40 or 41. So you have we have those two texts we could see also there was the instance of the lord walking on water in Matthew 14:25 downwards and he exercised authority dominion over that sick state of the world there's also another instance we mentioned which is when he spoke to the fig tree there's an instance of him showing authority over the cosmos and when he thought when he taught faith at that instance he pointed out that it's it's applicable able to anything within redemptive possibility. He said, "Whosoever shall say to this mountain. " So he spoke to a fig tree and then he mentioned a mountain.
 
 So whosoever shall say to this mountain, "Be removed, be cast into the sea, does not doubt since I believe things here shall come to pass in shall whatsoever seeth. " So when when we are dealing with a sick world, we have authority, redemptive right to tame it, restrain it, but we can't put a necessary end to it by virtue of the fact that the world is legitimately and rightfully in a corrupt state today. Another instance we saw preservation is Acts chapter 27. Paul's experience whilst he was under arrest or when he was in custody going to testify before Caesar and he said their trip was going to be with disaster but later on it was assured by the angel of the lord that their lives were going to be preserved.
+
+## The Role of Angels in Preservation
 
 So we then start to see the role of the angels of the lord in this issue of preservation in the newness of life. The lord Jesus mentioned the role of angels in in Matthew chapter 26. Uh the case for angels, let me just quickly say is a revelatory case. The Bible reveals the reality of angels.
 
@@ -56,6 +64,8 @@ So one can believe for preservation and deliverance whilst walking in the flesh.
 Is for preservation and deliverance. Period. So it's not to make a statement to anyone. It's not to prove a point is to be preserved and delivered.
 
 And that's him not falling into sin, him not yielding to the flesh, which those temptations were really about that the temptations were to prove a point. They were they were not asking so much of him. Just prove a point. If you are the son of God, you know, just walk in pride, make a statement, prove a point.
+
+## Psalm 91 and the Ministry of Angels
 
 Something we have to avoid. If our heart is like that then it means we can miss out of how we walk in God's purpose. So let's go to Psalm 91 and see that text has quoted and a very important text on preservation and deliverance. Like if there's any text that is heavy, utterly heavy on preservation, it is this text heavy on preservation maybe even more than deliverance.
 

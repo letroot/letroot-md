@@ -10,7 +10,11 @@ type: solo
 
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
 
-Let's get right into it. &gt;&gt; All right, welcome back to the Playos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. Now presently we are looking at the newness of life.
+Let's get right into it. &gt;&gt; All right, welcome back to the Playos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## The Goal of Growth in Christ
+
+Now presently we are looking at the newness of life.
 
 We made certain submissions that are so important and that is the fact that this reality of the newness of life is the most important emphasis for our growth for us to fulfill God's purpose. Now the way we saw this is by going to Ephesians chapter 4 where Paul was explaining what the Lord Jesus instructed the leaders of the church to do. That means after he had accomplished the work of redemption which is how he restores us back into God's purpose. He gave an instruction to the leaders of the church to perfect the saints.
 
@@ -28,6 +32,8 @@ What is futile on their mind? What are they losing the or what do they lack the 
 
 What exactly is that thing? Then verse 20 answers us and tells us we have not so learned Christ if indeed we have heard him and have been taught by him as the truth is in Jesus that we put off. All right. So he's showing us that what we what we are ought to have um on our minds that truth we have learned in Christ is this reality of putting off concerning our former conversation the old man that grows corrupt according to deceitful lust and being renewed in in the spirit of our mind and that we put on the no which is created after God in righteousness and holiness of truth.
 
+## Romans 6 and Walking in Newness of Life
+
 That is in short the emphasis that is meant to be on our mind is that of the new creation. the reality of the new creation. This is something you also see in Romans chapter 6 and in verse four Paul will say the redemption Christ has accomplished is to the end that walk in the newness of life. Um Romans 6 and4 therefore we were buried with him through baptism into death.
 
 That's just as Christ was raised from the dead by the glory of the father even though we should walk in the newness of life. The reason why he did what he did is to bring us to this place where we walk in the newness of life. Now, so we could call this teaching the new creation. We could call it the newness of life.
@@ -41,6 +47,8 @@ This is no by no means condemning the content of the law which is a message of f
 So we have seen the new man. We have seen the newness of life. We have seen the newness of the spirit. Okay.
 
 And in contrast it it says and not in the wholeness of the letter. You don't even have to be under the law to function in the old man. You know functioning with the old man under the law is just but one way to function in the old man. You could function with the old man without the law.
+
+## What Life Means in the Newness of Life
 
 Something Romans 2:12-16 explains. So this is just worldliness that is still going to be demanded of you by the reign of sin and death as well. But let's get back to what we're looking at. So the newness of life, we have seen the contra side when we look at that wordness.
 
@@ -68,6 +76,8 @@ Not at all. Sin and death legitimately is the default state of this world. And t
 
 But it has not yet been realized fully. yet has not yet been it has not yet been consumated. What has been obtained has not yet been consumated. Very important.
 
+## Life as Internal and External Reality
+
 Okay. Now I want us to pay attention. You remember we ran through several texts and I'm going to do that and then we'll start to get to a particular point. Now we ran through several text on showing life not just as internal conditions but also external conditions like Mark 7:4 is the way that leads to life.
 
 Not talking about what's in you but a world you enter into. Mark 16, what shall I do to inherit eternal life? Those who do this, I will tell them enter into eternal life. Blessed are you um enter into eternal life.
@@ -91,6 +101,8 @@ Now even as that life is also in us where we have the internal conditions of tha
 Okay. So he wanted man to have life because life that life is descriptive of having the spirit which is the spirit of sunship that then explains our work would see we are called to reign in life. So we are to function in that life. Romans 5:17 you still see that life spoken of as a future reality.
 
 Let me show us some text on that one. Titus 3 and 7. So after the resurrection of the Lord Jesus this life is still spoken of as a future reality. Titus chapter 1 and verse 7.
+
+## The Scope of the Newness of Life Today
 
 What I want to ask now at this juncture is what is the reality of the newness of life today? That is what's the post-resurrection but pre- glorification reality of the newness of life today. Titus 3:7 for now. But that's the question I'm seeking to answer.
 

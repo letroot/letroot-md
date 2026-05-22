@@ -9,7 +9,11 @@ url: https://www.youtube.com/watch?v=g8OMJ2hOrd0
 
 Welcome to Plural's podcast. [music] You are about to be blessed by the teaching ministry of Pastor [music] Aking. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill [music] God's purpose. We pray for you that you are established in all the truths of God's word [music] taught to be.
 
-Let's get right into it. Welcome back to the Plural's podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We are looking at preservation in the newness of life, and we have been we have laid the foundation for this study already.
+Let's get right into it. Welcome back to the Plural's podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life.
+
+## Recap of Preservation in the Newness of Life
+
+We are looking at preservation in the newness of life, and we have been we have laid the foundation for this study already.
 
 Um we could even go further in the foundation to look at what we have seen on God's purpose and how that God's purpose requires growth to fulfill. We saw that that growth happens on our mind, and then we also concluded that what we are meant to grow in is the reality of the new creation or the reality of the newness of life. So, once we have that settled, what we need to understand is what is this life exactly that we are talking about. And we saw that our understanding of life needs to be wholesome.
 
@@ -22,6 +26,8 @@ And that life is often spoken of as a world that we have to enter into. Um it's 
 You'll notice that from text like Romans 6 and verse 4, it said Jesus died rose to the end that we should walk in the newness of life. So, we have to walk in all that he has brought us into the new life he has brought us into the new life that is also inside us. Um and we began examining the realities of that life one after the other. We have seen healing in the newness of life.
 
 Now, we're looking at preservation in the newness of life. The way we have gone about this study is to see it that in this new life that the Lord has given us, everything that will be available at the end is available now except immortality to our bodies and incorruption of matter or incorruption of the cosmos. You could also say incorruption of creation. &gt;&gt; [snorts] &gt;&gt; Every other thing is available except those two things.
+
+## What Is Available Relative to the Cosmos
 
 With that in mind then, the question is what is available to our bodies today? Also, what is available to the cosmos or to us relative to the cosmos today? We've seen that healing is available to our body, but then relative to the cosmos that is still corrupt and therefore can be sick from time to time. The same way a mortal body can be sick from time to time is the way a corrupt cosmos can be sick from time to time.
 
@@ -40,6 +46,8 @@ He's speaking to the cosmos. He's speaking to the natural world, and he tells it
 This is a sick situation. Peace. Or is the same way you could say, "Be healed. " And he says, "Be still.
 
 " And the wind ceased, and there was a great calm. But he said to them, "Why are you so fearful? How is it that you have no faith? " Matthew records it as you they were of little faith.
+
+## Jesus and Authority Over a Sick World
 
 So, and they feared that zealously asked one another, "Who is this that even the wind and and sea obey him? " All right? So, very important to see that there was something the Lord could do about a sick world. Not just about sick bodies, but about a sick cosmos, about a sick world.
 
@@ -67,6 +75,8 @@ But before we go to see how angels play role in this, we should lead us to the O
 
 This is death in carrying out his assignment. God preserves deliverers from that, and there are times where there is glory in that as well. So, I mean, there's always glory in martyrdom, no no doubt. But, I mean, if you could you should believe for preservation, and or if otherwise in God's purposes a beautiful thing to still bear.
 
+## Paul's Faith for Deliverance
+
 In 2 Corinthians 1 and in chapter 1, Paul shows his faith. Let's use that word even before we get to other explanations on preservation in the newness of life. He shows his faith about God's power to deliver and preserve. We'll see 2 Thessalonians chapter 1.
 
 I don't want to get into other texts that talk about preservation as well, but it's something that seemed to be normative in the faith of the apostles about what God does. Now, in 2 Corinthians 1 and 8, he was talking about all the experiences he has he has had, the discomforts, the sufferings, the persecution. For we do not want you to be ignorant, brethren, of our trouble when we came to Asia, that we were burdened beyond measure, above strength, so that we despaired even of life. Yet, so I mean, it is so terrible what they were going through that they were like, "Oh boy, I'm like, you know, sometimes maybe it's better off not to be alive.
@@ -86,6 +96,8 @@ In Matthew 26:53, when the apostles the his disciples, the Lord's disciples were
 But there is, notwithstanding, the Lord is saying the rights to preservation. Something the enemy himself, in Matthew chapter 4, mentions Satan himself mentions in Matthew 4, Luke 4 as well, where he in tempting the Lord to do things out of a wrong motive, he said, "If you are the son of God, prove a point. " He says, "Throw yourself down. He shall give his angels charge over you.
 
 In their hands they shall bear you up, lest you dash your feet against a stone. " It's such a settled reality that there's preservation in God, the redeeming God. And if we may add at this juncture by the ministry of angels, is quoting Psalm 91 and is such a huge text in this regard. So, we're going to go there and we'll make reference to all that Old Testament text in the subsequent episodes that establish preservation as what God makes available to you via redemption.
+
+## Psalm 91 and Preservation in Yahweh
 
 So, we are seeing it said that Yahweh does these works is in the context of the redemption that is fulfilled in Christ, no doubt, because this revelation of Yahweh is in the light of redemption, is in the light of the Exodus. You know, in the light of his reign over us in our death. In Psalm 91 it says, "He that dwells in the secret place of the Most High shall abide under the shadow of the Almighty. " This is preservative, protective.
 

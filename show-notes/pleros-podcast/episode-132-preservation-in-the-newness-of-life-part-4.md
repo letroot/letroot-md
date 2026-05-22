@@ -7,6 +7,8 @@ url: https://www.youtube.com/watch?v=fujZakdSLPM
 
 # Preservation in the Newness of Life (Part 4)
 
+## Introduction and Recap
+
 Welcome to Plural's podcast. You are about to be blessed [music] by the teaching ministry of Pastor Aking. It is going to be an enlightening [music] time in God's word, renewing your mind and transforming your life to fulfill [music] God's purpose. We pray for you that you are established in all the truths of God's word [music] taught to be.
 
 Let's get right into it. All right, welcome back to the Plural's podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. And we're looking at the subject matter, preservation in the newness of life.
@@ -33,6 +35,8 @@ Having said that, back to what we are looking at, what is available to us relati
 
 We saw the Lord do that in Matthew chapter 8, but we're not yet talking about I'm just trying to lay the ground for the different instance that show us that something can be done about the sick state of this world. We have looked at Matthew 8, we have looked at Matthew 14. Then we could look at Matthew 21, the fig tree. Now, this one doesn't seem to have a direct implication on preserving man, but it does show authority over the cosmos itself, which is the point I'm trying to draw out of it here.
 
+## Authority Over the Cosmos: The Fig Tree
+
 In Matthew chapter 21, you could look at verse 18. Now, in the morning, as he returned to the city, he was hungry. And seeing a fig tree by the road, he came to it and found nothing on it but leaves. And said to it, "Let no fruit grow on you ever again.
 
 " Immediately, the fig tree withered away. So, there's arguments made that seeing the tree in the state it was, leaves being on it, there's the expectation, you know, you could have shed your leaves then when I expect any fruits to be on you, but now you have not shed your leaves. probably your in season, you are bringing out the leaves, so we should be expecting that fruit should be on you. And it's also it makes a lot of sense in just the context of why would the Lord go there.
@@ -41,7 +45,7 @@ So, in not finding fruits on it raises the question of the the tree being an unf
 
 There's There's also other theological questions that can arise there, but let's stick with the fact that it's a simple narrative. And what we see is that there's authority by faith with words over the cosmos, over matter, over creation. So, he spoke and said, "Let no fruit grow on you ever again. " Immediately, the fig tree withered away.
 
-Of course, Matthew records immediately. When we read Mark's account, he said it happened by the next day they saw that it had begun to wither. So, the disciples saw it and they marveled saying, "How how the fig tree wither away so soon? &gt;&gt; [snorts] &gt;&gt; And the Lord answered, "I surely I say to you, if you have faith.
+Of course, Matthew records immediately. When we read Mark's account, he said it happened by the next day they saw that it had begun to wither. So, the disciples saw it and they marveled saying, "How how the fig tree wither away so soon? >> [snorts] >> And the Lord answered, "I surely I say to you, if you have faith.
 
 " So, we are coming to how is this done, but we'll leave with that for later. If you have faith and no doubt, you will not only do what's done to the to the fig tree, but also say to this mountain, "Be removed and be cast in the sea. " And it will be done. What whatever you ask in prayer, believe it, you will receive.
 
@@ -50,6 +54,8 @@ Let's look at Mark's account very quickly. So, this just an account telling us t
 And he came to it and he found nothing but leaves, for it was not the season for figs. And in response, Jesus said to it, "Let no one eat fruit from you ever again. " And his disciples heard it. By the time you get to verse 20, in the morning as they passed by, they saw the fig tree dried up from the root.
 
 Peter remembering said to him, "Rabbi, look, the fig tree which you cursed has withered away. " And Jesus answered and said, "Have faith in God, for I surely I say to you, so I shall say to this mountain, so again, using an example from the cosmos, if you say to this mountain, 'Be removed and be cast into the sea,' and does not doubt in his heart, but believes that the things which he says shall come to pass, shall be done or shall come to pass, it will have whatsoever he says. All right, 24 again, therefore I say to you, whatever things you ask when you pray, believe you receive them and you will have them. There is no doubt that in the life of the Lord is exemplifying the authority over the cosmos, over creation, exercised by faith, exercised with words.
+
+## Preservation in Paul's Journey
 
 Let's look at another example. This case is with Paul. So, Paul was in custody, was Should we say it was arrest let's just say he's in custody. Both of them would work, but he wasn't already sentenced yet.
 
@@ -81,6 +87,6 @@ And we'll start to look at some the Old Testament text on this matter as well. B
 
 Thank you. See you on the next one, fulfill God's purpose. We trust you are blessed by [music] today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, &gt;&gt; [music] &gt;&gt; visit pleroma. org. You will find answers to your questions [music] on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, &gt;&gt; [music] &gt;&gt; don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
+To learn more of God's word, >> [music] >> visit pleroma. org. You will find answers to your questions [music] on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, >> [music] >> don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 
 [music] For now, stay blessed and keep walking in his purpose.

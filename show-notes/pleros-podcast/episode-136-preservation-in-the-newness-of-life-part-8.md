@@ -9,7 +9,11 @@ url: https://www.youtube.com/watch?v=uf_jgpwSSU8
 
 Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
 
-Let's get right into it. &gt;&gt; Welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. Now, we're looking at preservation in the newness of life.
+Let's get right into it. &gt;&gt; Welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+
+## Review of Preservation in the Newness of Life
+
+Now, we're looking at preservation in the newness of life.
 
 We've already established from all the earlier episodes that there is such a thing as preservation available in the newness of life. And it is something that we ought to walk in. We should know about it. We should be in faith about it as we also see.
 
@@ -22,6 +26,8 @@ There is preservation also available in this life. The way we establish this is 
 Healing. What is available to a cosmos that is corrupt today? And the answer is preservation because this is relative to man. One of the examples we pointed out is Acts 27.
 
 God's commitment is to man. He made the world for him. And so in dealing with the corrupt state of the cosmos, the commitment to preservation is to man primarily. It could extend secondarily to every any other entity, but is about man primarily, the preservation of man as the case was again I mentioned in Acts chapter 27.
+
+## Examples of Preservation by Faith
 
 With that established, we looked at several instances that shows that we can believe for preservation in the newness of life. Like Matthew 8:23, there were heavy winds. There was a tempest and the Lord was asleep in the boat. The disciples were fearful.
 
@@ -38,6 +44,8 @@ Telling him to prove a point or to walk in the flesh. And he did not deny that p
 He's not to live his life to prove a point. Is not to walk in the flesh. There are other instances we saw. We went back and saw Psalm 91.
 
 We saw Psalm 34 and:7, Psalm 35:5 and 6, the role of angels in preservation and deliverance. We mentioned Genesis 19, Lot being delivered also by the ministry of angels. Genesis 48:15, Jacob pointing to the role of angels in his preservation. The angel who has redeemed me from all evil.
+
+## How We Walk in Preservation
 
 There is an abundance of text that summits that there is preservation in theness of life. Now to the question, how do we walk in preservation in the newness of life? One thing is clear particularly from the example of the Lord Jesus himself. We walk in this by faith.
 
@@ -85,6 +93,8 @@ That will be sponsored by demons. That will not be by the ministry of angels. Ou
 
 Whatever is of the divine nature, whatever is of the divine power, that's what we can believe for. One of it clearly is healing. Another we are seeing is preservation. Let's go a step further.
 
+## The Command of Faith
+
 Clearly in this instance, Matthew 8, Matthew 14, it was a command of faith and it was done. We could also look at Mark 4, which is a repeat of Matthew 8 quickly. Mark 4 and verse let's read from 39. In verse 38 they are told the Lord teacher do you not care that we are perishing?
 
 Then 39 the Lord arose and rebuked the wind and said to the sea peace be still. That's what he said. So it was a single command of faith. Peace be still.
@@ -94,6 +104,8 @@ And the wind ceased and there was a great calm. And he said to them, why are you
 Matthew records it the other way but it's fine. Usually in Matthew 14 as well the Lord saved Peter then he rebuked him after. So he said peace be still. Why are you fearful?
 
 How is it that you have no faith? It was a simple command of faith. It was a simple command of faith and there was preservation. Acts chapter 27 where there was a deliverance of Paul and his co-traers.
+
+## Prayer and Preservation
 
 We don't see any instance there was a command of faith. Paul came out of prayer and fasting and then he said he knows now by the angel of the Lord they are going to be preserved. Acts chapter 27 and verse we can see verse 10 where he first told them men I perceive that this voyage will end with disaster and much loss not only of the cargo and ship but also of our lives. So here his reception was arguably not entirely accurate.
 
