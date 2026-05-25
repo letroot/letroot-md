@@ -1,0 +1,11 @@
+# Python cache
+__pycache__/
+*.pyc
+
+# Scripts (intermediate download/processing tools)
+*.py
+*.sh
+
+# Raw subtitle intermediates (final markdown notes are committed)
+*.vtt
+*_clean.txt
