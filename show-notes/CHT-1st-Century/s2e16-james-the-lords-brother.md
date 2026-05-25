@@ -12,510 +12,446 @@ episode: "S2E16"
 
 ## Introduction
 
+welcome to church history and theology a study where we glean wisdom from those who came before us come lay aside today's concerns for a bit and join in a study of the church throughout the ages our forebears have shaped our faith in countless ways let's go look into one of
 
-## Matthew 13
+those influences today on church history and
 
-well hello everyone welcome to church history and theology as we delve into yet another figure in church istory that we get to see develop not only in the biblical texts but also to understand some of the things from history
+## Historical Background
 
-and how the effects of their lives continue to affect ours today's episode is James the Lord's brother now I got to tell you I can't I can't quite pinpoint another figure that I've had more questions about in my years
+theology well hello everyone welcome to church history and theology as we delve into yet another figure in church history that we get to see develop not only in the biblical texts
 
-but have never actually done the work to settle out all of the desperate ideas that I had floating around my head regarding this man and I had mixed up multiple jameses I think that's common that actually happened in
+but also to understand some of the things from history and how the effects of their lives continue to affect ours today's episode is James the Lord's brother now I got to tell you I can't I can't quite pinpoint another figure that I've had more questions about in my years
 
-church history several times with regards to some of these guys it's hard to keep it all straight what James am I talking about here what James there is this the Apostle James brother of John or is this another James or is James the
+but have never actually done the work to settle out all of the desperate ideas that I had floating around my head regarding this man and I had mixed up multiple jameses I think that's common that actually happened in church history several times with regards to some of these guys it's hard
 
-just the same person as James the Lord's brother James the Apostle or it really gets a little overwhelming sometimes and so I really I don't want o figure out all the jameses for you here today but I do want to work through James
+to keep it all straight what James am I talking about here what James there is this the Apostle James brother of John or is this another James or is James the just the same person as James the Lord's brother James the Apostle or it really gets a little overwhelming sometimes and
 
-the Lord's brother which is a tall enough task of its own because there's o much you have to weed through in order to actually get down to the reality of who he was believe it or not there is all manner
+so I really I don't want to figure out all the jameses for you here today but I do want to work through James the Lord's brother which is a tall enough task of its own because there's
 
-of embellishments that were made about him all manner of hagiographies and all manner of misrepresentations here we I specifically always want to reconstruct what we can know and then understand where the limits are there's some things we can't know
+so much you have to weed through in order to actually get down to the reality of who he was believe it or not there is all manner of embellishments that were made about him all manner of hagiographies and all manner of misrepresentations here we I specifically always want to reconstruct
 
-and that's okay if we can't know it there's a reason for that and we will take what we can know and devote ourselves to the truth of God's revealed story
+what we can know and then understand where the limits are there's some things we can't know and that's okay if we can't know it there's a reason for that and we will take what we can know and devote ourselves to the truth of God's revealed story and word and that's
 
-and word and that's omething that I look forward to here this evening so let's get started but before we even arrive to the story of James let me take one side note just a sidebar
+something that I look forward to here this evening so let's get started but before we even arrive to the story of James let me take one side note if you will just a sidebar because obviously if I'm bringing up a subject like James the Lord's brother all manner of complications arise in people's minds
 
-because obviously if I'm bringing up a subject like James the Lord's brother all manner of complications arise in people's minds James just like Peter has a history of embellishment that inflates his role to an implausible level
+James just like Peter has a history of embellishment that inflates his role to an implausible level also like Peter by the way this was a thing to work through there are historically challenged groups like The ebionites for instance who considered James to be the first Universal Bishop of the church
 
-also like Peter by the way this was a thing to work through there are historically challenged groups like The ebionites for instance who considered James to be the first Universal Bishop of the church that comes from the 2 Century by the way
+that comes from the 2 Century by the way and that comes before anybody was arguing that Paul or that Peter was so th this type of embellishments this type of you know revisioning of History to apply oneself to one apostle in favor of all the in favor instead
 
-and that comes before anybody was arguing that Paul or that Peter was so th this type of embellishments this type of revisioning of History to apply oneself to one apostle in favor of all the in favor instead of all the others
+of all the others or any of these types of things that kind of stuff shows up even in the New Testament where you have people who are you know I'm of Paul or I'm of Apollos I'm of Peter this kind of stuff and Paul rebukes that kind of an idea
 
-or any of these types of things that stuff shows up even in the New Testament where you have people who are I'm of Paul or I'm of Apollos I'm of Peter this stuff and Paul rebukes that an idea
+but it shouldn't be surprising to us that as we go through church history there's many groups that glom on to a single Apostle in direct violation of the instructions of the Apostle Paul to not do that with anyone including himself including Peter by name or Apollos or any other Church leader
 
-but it shouldn't be surprising to us that as we go through church history there's many groups that glom on to a single Apostle in direct violation of the instructions of the Apostle Paul to not do that with anyone including himself including Peter by
+because no single human outside of Christ is worthy of that level of devotion with James though some really interesting stories of extreme asceticism you know his ability to walk unobstructed into the temple in Jerusalem a lot of this arises due to not only his role in the Jerusalem Church which we'll get to
 
-name or Apollos or any other Church leader because no single human outside of Christ is worthy of that level of devotion with James though some really interesting stories of extreme asceticism his ability to walk unobstructed into
+but it really has a lot to do with who his brother was I mean when you are the brother of Jesus people are going to make stories about you when you are the same as if you are one of the closest Disciples of Jesus people are going to make up
 
-the temple in Jerusalem a lot of this arises due to not only his role in the Jerusalem Church which we'll get to but it really has a lot to do with who his brother was
+stories about you or the mother of Jesus or any of these others people will always glom on to those who were relatively close to a figure such as Jesus himself and
 
-when you are the brother of Jesus people are going to make stories about you when you are the same as if you are one of the closest Disciples of Jesus people are going to make up stories about you or the mother of Jesus
+so D to who his brother was I want to ensure that the statements that I'll make about who his family members are who James's family members are will come off to some as dismissive of their beliefs I want to say on the front end I only aim to give
 
-or any of these others people will always glom on to those who were relatively close to a figure such as Jesus himself and so D to who his brother was I want to ensure that the statements
+what is plainly said in the scriptures and what we can know from history so here's the facts James is described in familial settings as being the brother of the Lord in multiple genres of literature not just in references in the gospels
 
-that I'll make about who his family members are who James's family members are will come off to some as dismissive of their beliefs I want to say on the front end I only aim to give what is plainly said in the scriptures
+but even in his own reputation in the book of Galatians the book of Acts see the brother of the Lord is his reference not only that we have it from Josephus we have it from historians this is not a you know a chummy pal or a distant relation or a cousin or
 
-and what we can know from history so here's the facts James is described in familial settings as being the brother of the Lord in multiple genres of literature not just in references in the gospels but even in his own reputation in the book
+something like this he is the brother of the Lord that is the plain text both of scripture and of History it doesn't matter how much linguistic writhing people do about that is how it's going to be taken here on this episode what it plainly means and I will say linguistically if you do
 
-of Galatians the book of Acts see the brother of the Lord is his reference not only that we have it from Josephus we have it from historians this not a chummy pal or a distant relation or a cousin or something like this he
+have to run to the sep to prove something about a text using a text like the reference about lot and Abraham that really only demonstrates desperation to make a text say something that it doesn't the New Testament is pretty clear on not just pretty clear is abundantly clear on this James is the
 
-is the brother of the Lord that is the plain text both of scripture and of History it doesn't matter how much linguistic writhing people do about that is how it's going to be taken here on this episode what it plainly means
+Lord's brother hence the title of this episode obviously as Jesus had God as his father and Mary as his mother there is only one real way he could be his brother it's not through God the Father it is through his mother and I know this opens up a
 
-and I will say linguistically if you do have to run to the sep to prove something about a text using a text like the reference about lot and Abraham that really only demonstrates desperation to make a text say something that it
+can of worms of later beliefs that people hold closely regarding Mary's ongoing virginity which is a belief by the way that arises towards the end of the 2 Century ironically from a book claiming falsely to be written by James that's the Proto evangelium of James we'll deal with that one later on
 
-doesn't the New Testament is pretty clear on not just pretty clear is abundantly clear on this James is the Lord's brother hence the title of this episode obviously as Jesus had God as his father and Mary as his mother there is only one
+but of these things the New Testament knows nothing the plain exegesis of the text demonstrates that Joseph and Mary had children after Jesus that they were married in the normal sense that these were younger siblings of Jesus as far as we know at the writings of the OR at the
 
-real way he could be his brother it's not through God the Father it is through is mother and I know this opens up a can of worms of later beliefs that people hold closely regarding Mary's ongoing virginity which is a belief by the
+occurrence of Jesus's Ministry four brothers and at least two sisters a lot of the theories though that go on about this about these about James being an older brother of Jesus from Joseph's previous marriage or something like this these are theories from many years after the fact nobody in the New Testament knew
 
-way that arises towards the end of the 2 Century ironically from a book claiming falsely to be written by James that's the Proto evangelium of James we'll deal with that one later on but of these things the New Testament knows nothing the plain
+anything of this nothing of that comes from the New Testament or from the first century or from the histories there a lot of it is dependent on the later aesthetic musings that treat marriage and relations inside marriage as defiling of the sanctification of those who are otherwise holy of the raising of
 
-exegesis of the text demonstrates that Joseph and Mary had children after Jesus that they were married in the normal sense that these were younger siblings of Jesus as far as we know at the writings of the OR at the occurrence of Jesus's Ministry
+virginity above the value of normal marital relations even though the scriptures teach very plainly that the marriage bed is not defiled in its normal use those types of things are pretty plain and clear in scripture
 
-four brothers and at least two sisters a lot of the theories though that go on about this about these about James being an older brother of Jesus from Joseph's previous marriage or something like this these are theories from many years after the fact
+but unfortunately aestheticism always makes its ugly head and Rears it in history and likes to mess things up but drum is a story for another day when we get to the late 4th Century
 
-nobody in the New Testament knew anything of this nothing of that comes from the New Testament or from the first century or from the histories there a lot of it is dependent on the later aesthetic musings that treat marriage
+so I'll just let you know here on the on the front end I'm not using hagiographical sources to rebuild James someday we're going to have an episode on hagiography and how to utilize it because it says far more about the writers than it does about the stories it's writing and
 
-and relations inside marriage as defiling of the sanctification of those who are otherwise holy of the raising of virginity above the value of normal marital relations even though the scriptures teach very plainly that the marriage bed is not defiled in its normal use
+so that's just my first introduction to that if you want to use hagiography and church history which if you're brand new to this that is the it comes from the idea of a writing about a Saint's life it's basically a biography of a saint
 
-those types of things are pretty plain and clear in scripture but unfortunately aestheticism always makes its ugly head and Rears it in history and likes to mess things up
+so instead of a biography it's hagiography and it will be written at a later time about that person and it will be embellished with all manner of things everything from Miracles to martyrdoms to you just bizarre events and occurrences things that we know have no basis in history or reality
 
-but drum is a story for another day when we get to the late 4th Century so I'll just let here on the on the front end I'm not using hagiographical
+but is a genre of writing that says again more about the writer than it does about the object of the writing and so you don't go to the Proto evangelium of James for instance to learn about James or Mary or the birth of Jesus you go there to learn about
 
-sources to rebuild James someday we're going to have an episode on hagiography and how to utilize it because it says far more about the writers than it does about the stories it's writing and so that's just my
+those who are living in the second century who are writing these things and what they believed and perhaps what their influences were so we'll get into hagiography once we once we break into the second century I imagine sometime this summer when we finally get out of the first century we will probably have
 
-first introduction to that if you want to use hagiography and church history which if you're brand new to this that is the it comes from the idea of a writing about a Saint's life it's basically a biography of
+to direct our attention towards hagiography because we're going to start running into it pretty quick and it really does change everyone's perspective of History because a lot of people don't know how to deal with them when you open up hagiography and you read it and you go my goodness here's
 
-a saint so instead of a biography it's hagiography and it will be written at a later time about that person and it will be mbellished with all manner of things everything from Miracles to martyrdoms
+all these stories that obviously are meant to be taken as historical realities well some of them were but the basic truth of hagiography is that it is not reliable history and it has unfortunately influenced a whole lot of retellings of history and that's where The elusive quote unquote Traditions come from it being
 
-to you just bizarre events and occurrences things that we know have no basis in history or reality but is a genre of writing that says again more about the writer than it does about the object of the writing
+the case let's get into what we do know the early life of James was the eldest of Jesus's Four Brothers we have two lists of these in Scripture that is Mark 6:3 and Matthew 13:55 these read in as follows Mark 63 says is this is not this the carpenter the son of
 
-and so you don't go to the Proto evangelium of James for instance to learn about James or Mary or the birth of Jesus you go there to learn about hose who are living in the second century who are writing these things
+Mary and brother of James and joses and Judas and Simon and are not his sisters here with us and they took offense at him excuse me is this not The Carpenter's son in Matthew 13:55 is not this The Carpenter's son is not his mother called Mary are not his brothers James and
 
-and what they believed and perhaps what heir influences were so we'll get into hagiography once we once we break into the second century I imagine sometime this summer when we finally get out of the
+Joseph and Simon and Judas again we have four brothers we do have at least multiple sisters here listed so we have at least two of them we don't know their names and there's frustration there because people who had lived in Nazareth knew Jesus personally and knew James they always list James as first
 
-first century we will probably have to direct our attention towards hagiography because we're going to start running into it pretty quick and it really does change everyone's perspective of History
+that's how you list it out when they are older and James here being the eldest would have been the second born to Mary first to Joseph it seems and this makes more sense because as you as you address how all this goes down it means that they grew up in
 
-because a lot of people don't know how to deal with them when you open up hagiography and you read it and you go my goodness here's all these stories that obviously are meant to be
+Nazareth we know that Jesus being from Nazareth we can reconstruct as best as we can that Jesus and James would have had really similar childhoods not only just living in the same house having the same parents and being taught the same trade from their father
 
-taken as historical realities well some of them were but the the basic truth of hagiography is that it is not reliable history and it has unfortunately influenced a whole lot of retellings of history
+so there's a lot of people that you know address Joseph as you know a carpenter and you know he's just only working with wood it is a more broad term a skilled laborer that works in construction or anything it could involve ston work and things like that to it's not like he's
 
-and that's where The elusive quote unquote Traditions come from it being the case let's get into what we do know the early life of James was the eldest of Jesus's Four Brothers we have two lists of these in Scripture that is Mark 6:3
+building bird hous or something he in a small place like Nazareth would have been you know someone who can fix your roof someone who can fix your house someone who can build this or build that or build a door or a table or whatever the case may be and Nazareth
 
-and Matthew 13:55 these read in as follows Mark 63 says is this is not this the carpenter the son of Mary and brother of James and joses and Judas and Simon and are not his sisters here with us
+was small Nazareth was a few hundred people and so you get in mind that people in Nazareth that are being frustrated in both Mark 6 and Matthew 3 13 they are well aware of who Jesus is and they go we know his brothers we know his mother we know isn't this
 
-and they took offense at him excuse me is this not The Carpenter's on in
+the isn't this the son of the Carpenter and it would make even more sense that they know the names of James Joseph and Simon and Judas why well because they would have been there with their father helping him do his carpentry or repair or building or whatever the case may have
 
+been him growing up in Nazareth again we're here talking about James he would have been educated in the Torah thoroughly he would have been trained in the same trait as his father Joseph again manual labor Builder home construction repair all that kind of stuff again likely why everyone
 
-## Galatians Chapter 1
+in Nazareth was aware of the family even by name especially the boys we don't get anything about his childhood very similar to Jesus while we have one instance of Jesus's child childhood when he's 12 years old in the temple which is you know kind of a remarkable thing we don't get
 
-Matthew 13:55 is not this The Carpenter's son is not his mother called Mary are not his brothers James and Joseph and Simon and Judas again we have four brothers we do have at least multiple sisters here
+anything about James is not addressed to us as being there though presumably he would be and we don't get anything really until Jesus's Ministry kind of the same as with Jesus's life that whole next you know 30 years or whatever the case may be is just hidden to us we don't know exactly
 
-listed so we have at least two of them we don't know their names and there's frustration there because people who had lived in Nazareth knew Jesus personally and knew James they always list James as
+what's going on by the way there are other stories more hagiographies in history Gnostic literature and things like this that do arise and start to try to fill in the blanks avoid those because you don't have any again reliable history in any way filling in blanks like that in the 2 Century
 
-first hat's how you list it out when they are older and James here being the eldest would have been the second born to Mary first to Joseph it seems and this makes more sense
+though they are certainly attempting to there's a lot of skepticism that comes from Jesus's family during his ministry this is something that I don't think a lot of people understand how deep some of the skepticism went and how much rejection there was from Jesus's family including his own mother
 
-because as you as you address how all this goes down it means that they grew up in Nazareth we know that Jesus being from Nazareth we can reconstruct as best as we can that Jesus and James would have had really similar childhoods not
+and that I know that scares some people don't let it be we all have our weaknesses Mark chapter 3 addresses
 
-only just living in the same house having the same parents and being taught the same trade from their father so there's a lot of people that address Joseph as a carpenter
+this Jesus had just become in Mark's account a lot more prominent and it was difficult for them to do anything because there was crowds gathered everywhere and Jesus has gone out again get it in your perspective here James and you know and younger brothers and sisters and
 
-and he's just only working with wood it is a more broad term a skilled laborer that works in construction or anything it could involve ston work and things like that to it's not like he's building bird hous or something he
+so forth did not believe that Jesus was the Messiah all right so get it in your mind their older brother is about 29 or 30 and James and his brothers and sisters probably would have been mid to early 20s you know them that's a hard thing to swallow
 
-in a small place like Nazareth would have been someone who can fix your roof someone who can fix your house someone who can build this or build that or build a door or a table or whatever the case may be
+honestly if Jesus is like 29 years old and he's the Messiah of the world he's God incarnate that's a hard pill to swallow for one's older brother honestly you know he's always out doing everything
 
-and Nazareth was small Nazareth was a few hundred people and so you get in mind that people in Nazareth that are being frustrated in both Mark 6 and Matthew 3 13 they are
+so perfect anyway of course he's going to be that right but one of the places where James shows up in the story is alongside the rest of his family
 
-well aware of who Jesus is and they go we know his brothers we know his mother we know isn't this the isn't this the son of the Carpenter and it would make even more sense that they know the names of James Joseph
+now watch this narrative right it's in Mark 3 if you want to turn there starting in verse 13 and Jesus went up on the mountain and called to him Those whom he desired and they came to him and he appointed 12 which whom he also named Apostles
 
-and Simon and Judas why well because they would have been there with their father helping him do his carpentry or repair or building or whatever the case may have been him growing up in Nazareth again we're here talking about James he would have
+so that they might be with him there wait a second let me let me actually back up a little bit
 
-been educated in the Torah thoroughly he would have been trained in the same trait as his father Joseph again manual labor Builder home construction repair all that stuff again likely why everyone in Nazareth was aware of the family even by name especially the
+here no I don't want to back up here I do want you okay never mind we'll we'll stay we'll start in 13 I was I was probably going to go up to 16 let's just get the whole setting here verse 13 in Mark 3 we're going to go up to verse 35 just
 
-boys we don't get anything about his childhood very similar to Jesus while we have one instance of Jesus's child childhood when he's 12 years old in the temple which is a remarkable thing we don't
+so you know and he went up on the mountain and called to him Those whom he desired and they came to him and he appointed 12 whom he also named Apostles
 
-get anything about James is not addressed to us as being there though presumably he would be and we don't get anything really until Jesus's Ministry the same as with Jesus's life that whole next 30 years or whatever the case may be is just
+so that they might be with him and he might send them out to preach and to have authority to cast out demons he appointed the 12 here's the list Simon to whom he gave the name gave the name Peter James the son of zebede and John the brother of James this is different
 
-hidden to us we don't know exactly what's going on by the way there are other stories more hagiographies in history Gnostic literature and things like this that do arise and start to try to fill in the
+James by the way that's James the son of Zebedee so keep that straight to whom he gave the name boeris that is sons of thunder Andrew and Philip Bartholomew Matthew Thomas James the son of alfus that's a different James too that's the second James that's not the James we're talking about here and
 
-blanks avoid those because you don't have any again reliable history in any way filling in blanks like that in the 2 Century though they are certainly attempting to there's a lot of skepticism that comes from Jesus's family during his ministry this is something
+Thaddius and Simon the Zealot and Judas the scariot who betrayed him then he went home and the crowd gathered again so that they could not even eat and when his family heard it they went out to seize him for they were saying he is out of his
 
-that I don't hink a lot of people understand how deep some of the skepticism went and how much rejection there was from Jesus's family including his own mother and that I know that scares ome people don't let it be we all have
+mind and the scribes who came down from Jerusalem were saying he is possessed by be elel and by the prince of the Demons he casts out the demons and he called them to him and said to them in Parables how can Satan cast out Satan if a kingdom is divided against itself that
 
-our weaknesses Mark chapter 3 addresses this Jesus had just become in Mark's account a lot more prominent and it was difficult for them to do anything because there was crowds gathered everywhere and Jesus has gone out again get it in
+Kingdom cannot stand and if a house is divided against itself that house will not be able to stand and if Satan has risen up against himself and is divided he cannot stand
 
-your perspective here James and younger brothers and sisters and so forth did not believe that Jesus was the Messiah all right so get it in your mind their older brother is about 29 or 30
+but is coming to an end but no one can enter a strong man's house and plunder his Goods unless he first binds the strong man then indeed he may plunder his house truly I say to you all sins will be forgiven the children of men
 
-and James and his brothers and sisters probably would have been mid to early 20s them that's a hard thing to swallow honestly if Jesus is like 29 years old and he's the Messiah of the world he's
+but whoever and whatever blasphemies they utter but whoever blasphemes against the Holy Spirit never has forgiveness but is guilty of an eternal sin for they were saying he has an unclean spirit and
 
-God incarnate that's a hard pill to swallow for one's older brother honestly he's always out doing everything so perfect anyway of course he's going to be that right but one of the places where James shows up in the story is alongside the
+then it continues after that parentheses parenthesis and his mother and his brothers came and standing outside they sent to him and called him and a crowd was sitting around him and they said to him your mother and your brothers are outside seeking you and he answered them and said who are my
 
-rest of his family now watch this narrative right it's in Mark 3 if you want to turn there starting in verse 13 and Jesus went up on the mountain and called to him Those whom he desired
+mothers who are my mother and my brothers and looking about at those who sat around him he said here are my mother and my brothers for whoever does the will of God he is my M brother and sister and mother obviously here as we pull this out we see that
 
-and they came to him and he appointed 12 which whom he also named Apostles so that they might be with him there wait a second let me let me here no I don't want to back up here I do want
+James's reaction is the same as is definitively pointed out here the mother and the brother of Jesus are all coming to essentially as Mark accounts here seize him because they were saying he is out of his mind that the things that he was teaching the things that he was doing were outside their expectations
 
-you okay never mind we'll we'll stay we'll start in 13 I was I was probably going to go up to 16 let's just get the whole setting here verse 13 in Mark 3 we're going to go up to verse 35 just
+now we also know from John chapter 7 that James does not believe that Jesus is the Messiah you see this in John Chapter 7: 2 to7 watch this now the jews' Feast of booths was at hand
 
-so and he went up on the mountain and called to him Those whom he desired and they came to him and he appointed 12 whom he
+so his brothers said to him leave here and go to Judea that your disciples Also may see the works that you are doing for no one works in secret if he seeks to be known openly if you do these things show yourself to the world and John gives us
 
-also named Apostles so that they might be with him and he might send them out to preach and to have authority to cast out demons he appointed the 12 here's the list
+the description for not even his brothers believed in him Jesus said to them my time is not yet come but your time is always here the world cannot hate you
 
-Simon to whom he gave the name gave the name Peter James the son of zebede and John the brother of James this is different James by the way that's James the son of Zebedee so keep that straight to whom he gave the name
+but it hates me because I testify about it that its works are
 
-boeris that is sons of thunder Andrew and Philip Bartholomew Matthew Thomas James the son of alfus that's a different James too that's the second James that's not the James we're talking about here and Thaddius and Simon the Zealot
+## Biblical Framework
 
-and Judas the scariot who betrayed him then he went home and the crowd gathered again so that they could not even eat and when his family heard it they went out to seize him for they were
+again it is hard to read these things and not talk about Jesus because that's what it's all about but here in the story of Jesus and these happenings here we get James one of the brothers of Jesus traveling with his mother we get him not believing in Christ we get
 
-saying he is out of his mind and the scribes who came down from Jerusalem were saying he is possessed by be elel and by the prince of the Demons he casts out the demons
+him saying alongside the rest of his family presumably including his mother who comes down with this that he is out of his mind that what Jesus is doing does not meet their expectations as a family does not meet their expectations of what Messiah was to do what exactly has gone on that
 
-and he called them to him and said to them in Parables how can Satan cast out Satan if a kingdom is divided against itself that Kingdom cannot stand and if a house is divided against itself that house will not be able to
+brings them to this point we do not know but what things were happening was his involvement with casting out demons and things like this really seemed to set his family off in a very unique way this is the case for James throughout Jesus's Ministry we do not have any indication whatsoever of his
 
-stand and if Satan has risen up against himself and is divided he cannot stand but is coming to an end but no one can enter a strong man's house
+coming to Salvation in the last year or two of Jesus's Ministry in fact we don't have any mention of him not at all regarding his presence at the upper room or regarding his involvement with issues that had come up or even being in attendance at things or
 
-and plunder his Goods unless he first binds the strong man then indeed he may plunder his house truly I say to you all sins will be forgiven the children of men but whoever
+even at the cross which is a notable absence there even though his mother was there Jesus's brother and sis brothers and sisters were not described as being
 
-and whatever blasphemies they utter but whoever blasphemes against the Holy Spirit never has forgiveness but is guilty of an eternal sin for they were saying he has an unclean spirit and then it continues after that parentheses parenthesis
+present that should sit in the mind pretty hefty in fact the very next instance that we have is told to us after the fact and that is found in 1 Corinthians chapter 15 verse
 
-and his mother and his brothers came and standing outside they sent to him and called him and a crowd was sitting around him and they said to him your mother and your brothers are outside seeking you
+7 where we learn that Christ in all of his appearances to 500 people here and to the apostles there and to those who are at the tomb and all this there we get this little parenthesis that Paul includes that Jesus appeared to
 
-and he answered them and said who are my mothers who are my mother and my brothers and looking about at those who sat around him he said here are my mother and my brothers for whoever does the will of God he is
+everything seeing his older brother who had just been put to death on the cross res resurrected I you know there's a there's a few conversations I would like to be witnessed to in scripture one is the road to Emmas I think that is incredible
 
-my M brother and sister and mother obviously here as we pull this out we see that James's reaction is the same as is definitively pointed out here the mother and the brother of Jesus are all coming to essentially as Mark accounts here seize
+but the discussion that Jesus had in his resurrected form with James after his resurrection that brought James to Salvation would certainly be on my top five
 
-him because they were saying he is out of his mind that the things that he was teaching the things that he was doing were outside their expectations now we also know from John chapter 7 that James does not believe that Jesus
+I think it's one of those instances that we tend to forget how transformative that would have been for him and yet it mention is only a couple of words long in the scriptures for James that would have been the Pinnacle of his entire life his older brother has come back from the grave demonstrating
 
-is the Messiah you see this in John Chapter 7: 2 to7 watch this now the jews' Feast of booths was at hand so his brothers said to him leave here
+with great power that he is indeed the creator of Heaven and Earth that's that's a weird day spent with one's brother and that appearance to James changed everything about James because all of a sudden it weeks later when we opening up the book of Acts we find him in the upper
 
-and go to Judea that your disciples Also may see the works that you are doing for no ne works in secret if he seeks to be known openly if you do these things show yourself to the world
+room we find him alongside the rest of the Apostles not only just him but all his brothers too it's in found in Acts 1: 13- 14 when they had entered they went into the upper room where they were staying and Peter and John and James wrong James and Andrew Philip and Thomas Bartholomew
 
-and John gives us the description for not even his brothers believed in him Jesus said to them my time is not yet come but your time is always here the world cannot hate you
+and Matthew James the son of alfus different James and Simon the Zealot and Judas the son of James different James all these with one Accord were devoting themselves to prayer together with the women and Mary the mother of Jesus and his
 
-but it hates me because I again it is hard to read these things and not talk about Jesus because that's what it's all about but here in the story of Jesus and these happenings here we get James one
+brothers again James here is found after Jesus has appeared to him because now we're talking about after the Ascension this is the passage where we're dealing with the with the birth of the church and the coming of the spirit this is the day of Pentecost and we have the presence of
 
-of the brothers of Jesus traveling with his mother we get him not believing in Christ we get him saying alongside the rest of his family presumably including his mother who comes down with this that e is out of his mind that what Jesus
+James there in the upper room something I will simply say I missed I don't know how many times I have walked through the book of book of Acts I missed that James was present there probably because there's three other jameses mentioned in the same paragraph and it's just stinking confusing as to which
 
-is doing does not meet their expectations as a family does not meet heir expectations of what Messiah was to do what exactly has gone on that brings them to this point we do not know but what things were happening was his involvement with
+James is going on at which point there's James there's James and then there's Judas the son of James and then there's James one of Jesus's brothers so that presence in the upper room is awesome I don't know why it's just made me smile all week Having learned it that James was there after
 
-casting out demons and things like this really seemed to set his family off in a very unique way this is the case for James throughout Jesus's Ministry we do not have any indication whatsoever of his coming to Salvation in the last year or
+having sat down one-on-one with the resurrected Christ his older brother and learn from him and become a convert I mean James has been a Christian now for a handful of days and here he is sitting in the upper room present for the day of
 
-two of Jesus's Ministry in fact we don't have any mention of him not at all regarding his presence at the upper oom or regarding his involvement with issues that had come up or even being in attendance at things or even at the cross
+awesome there was another apostle that wasn't there that wasn't even a Christian yet but would soon be after attempting to persecute Christians and that is Paul a few years after Pentecost Paul describes a visit that he has to Jerusalem in Galatians chapter 1 and it reveals something about
 
-which is a notable absence there even though his mother was there Jesus's brother and sis brothers present that should sit in the mind pretty hefty in fact the very next instance that we have is told to us after the fact
+us or about James it's found in Galatians chapter 1 and by the way this was a lot of fun to piece together the timeline here or something I'd never done before in Galatians chapter 1 this would be about 3 or four years after
 
-and that is found in 1 Corinthians 7 where we learn that Christ in all of his appearances to 500 people here and to the apostles there and to those who are at the tomb
+Pentecost Paul recounts this trip he had it's in Galatians 1: 15 to 19 says but when he had when he who had set me apart before I was born and who called me by his grace was pleased to reveal his son to me in order that I might
 
-and all this there we get this little parenthesis that Paul everything seeing his older brother who had just been put to death on the cross res urrected I there's a there's a few conversations I would like to be witnessed to in scripture one
+preach him among the Gentiles I did not immediately consult with anyone nor did I go up to Jerusalem to those who were Apostles before me but I went away into Arabia and returned again to Damascus and
 
-is the road to Emmas I think that is incredible but the discussion that Jesus had in his resurrected form with James after his resurrection that brought James to Salvation would certainly be on my top five I think it's
+then after 3 years I went up to Jerusalem to visit sephus and remained with him for 15 days but I saw none of the other Apostles except James the Lord's brother this again is a few years after all of this and I find it remarkable I find it remarkable that actually some of
 
-one of those instances that we tend to forget how transformative that would have been for him and yet it mention is only a couple of words long in the scriptures for James that would have been the Pinnacle of his entire life his older
+these some of these references even parallel how Jesus appeared to James and now Paul beginning his ministry comes and sits down with James is taking on some kind of a role in the in the in the early Church of Jerusalem that is prominent already here he's been a Christian for just a handful
 
-brother has come back from the grave demonstrating with great power that he is indeed the creator of Heaven and Earth at's that's a weird day spent with one's brother and that appearance to James changed everything about James
+of years didn't even follow Christ during his ministry and only after the resurrection of Christ from what we can piece together became a follower of Christ and was there for Pentecost and
 
-because all of a sudden it weeks later when we opening up the book of Acts we find him in the upper oom we find him alongside the rest of the Apostles not only just him
+now is quite prominent in the church in Jerusalem and actually as Paul comes he doesn't even set his mind on staying and visiting with anyone other than with Peter and with James in fact Paul says that he didn't even see any of the other Apostles not even
 
-but all his brothers too it's in found in Acts 1: 1314 when they had entered they went into the upper room where they were staying and Peter and John and James wrong James
+John honestly also not even the other James as in the Peter James and John thing that is not the case and so Peter's first visit after his three years away in Arabia and Damascus 3 years that I think everyone kinds of forgets because if you read acts it's
 
-and Andrew Philip and Thomas Bartholomew and Matthew James the son of alfus different James and Simon the Zealot and Judas the son of James different James all these with one Accord were devoting themselves to prayer together with the women
+so quick but James the Lord's brother as he says is one that he made up his mind to visit while he was in Jerusalem important stuff starts to reveal to us James's first roles is as one of the leaders in the Church of
 
-and Mary the mother of Jesus and his brothers again James here is found after Jesus has appeared to him because now we're talking about after the Ascension this is the passage where we're dealing with the with the birth of the church
+Jerusalem when we start to carry along into Church's history we move along from the late 30s into the early 40s mid 40s you have the martyrdom of the Apostle James the son of Zebedee one that again a lot of people mix up a lot of teachers in history have mixed up
 
-and the coming of the spirit this is the day of Pentecost and we have the presence of James there in the upper room something I will simply say I missed I don't know how many times I have walked through the
+but James the son of zebede was one of the 12 in Acts chapter 12 was put to death in the year 44 right around that mid 40s and it is about that time that James really does that the James were talking about the Lord's brother Rises more even to prominence in the church in
 
-book of book of Acts I missed that James was present there probably because there's three other jameses mentioned in the same paragraph and it's just inking confusing as to which James is going on at which point
+Jerusalem now whether this is that he takes over a role that James the Apostle had left behind in his martyrdom is really conjecture as far as I know there is nothing that says he was replacing him simply because his name was
 
-there's James there's James and then there's Judas the son of James and then there's James one of Jesus's brothers so that presence in the upper room is awesome I don't know why it's just
+so similar nothing like that it's it's it's a prominence that even Paul recognized years before it just happens to be one of those things that goes on it's just an important thing to mention because acts 12 chap verse two usually gets mixed up with James the Lord's brother and
 
-made me smile all week Having learned it that James was there after having sat down one-on-one with the resurrected Christ his older brother and learn from him and become a convert James has been a Christian
+then people are super confused about who is the James that's presiding over the Council of Jerusalem in Acts 15 but suffice it to say wrong James if you're mixing that up with X12 it is in the following years after that in the late 40s that James writes the first book of the New
 
-now for a handful of days and here he is itting in the upper room present for awesome there was another apostle that wasn't there that wasn't even a Christian yet but would soon be after attempting to persecute Christians
+Testament James writes the book of James the general epistle the Book of James written to again Jewish Christians scattered amongst the world this shows us something that we will quickly
 
-and that is Paul a few years after Pentecost Paul describes a visit that he has to Jerusalem in Galatians chapter 1 and it reveals something about us or about James it's found in Galatians chapter 1 and by the way this was a lot
+now learn of James and that is that his ministry was devoted to the circumcision to the Jewish people that were following Christ that was his role and he played massive roles in ensuring that the relationship between the Jewish church and the Gentile churches would not go to war with one another over
 
-of fun to piece together the timeline here or something I'd never done before in
+issues and James was enormously important with regards to this and the Epistle of James itself really demonstrates this because it introduces using the genre that it is of wisdom literature it introduces the gospel in a very Jewish way using examples of those of Faith who have come before them using the
 
+descriptions of wisdom using the pursuit of virtue and our proper relationship to the law the Book of James is by the way just simply remarkable I actually just got to teach on it last year as a two-part series I did on the Book of Proverbs and
 
-## Now We Can Set
+then on the book of James which again I argue is the Proverbs of the New Testament but James here having written it he is he is writing in a very Jewish style it's a very wisdom literature pical writing on practical Faith wisdom true wisdom from above versus Earthly wisdom in its
 
-Galatians chapter 1 this Pentecost Paul recounts this trip he had it's in Galatians 1: 15 to 19 says but when he had when he who had set me apart before I was born
+limits perseverance under trials all that kind of stuff it is it is very indicative of early mid 40s Jewish Christianity and it's pretty cool probably one of my favorite books in the scriptures many have assumed by the way a conflict of theology between James and Paul you know because James
 
-and who called me by his grace was pleased to reveal his son to me in order that I might preach him among the Gentiles I did not immediately consult with anyone nor did I go up to Jerusalem to those who were Apostles before
+writes this way and Paul writes that way but those who do merely demonstrate that they understand neither Paul nor James very well at all both of them preach the gospel of God's saving grace through true faith that evidences itself in works out after the fact that is just
 
-me but I went away into Arabia and returned again to Damascus and then after 3 years I went up to Jerusalem to visit sephus and remained with him for 15 days but I saw none of the other Apostles
+plain how can you claim to have true faith if Works don't flow both of them will say this you know there's dead Faith as well that doesn't save anyone and dead Faith results in nothing take it to heart in the year approximately 48 and
 
-except James the Lord's brother this again is a few years after all of this and I find it remarkable I find it remarkable that actually some of these some of these references even parallel how Jesus appeared to James
+so again assuming that Jesus was born like
 
-and now Paul beginning his ministry comes and sits down with James is taking on some a role in the in the in the early Church of Jerusalem that is prominent already here he's been a Christian for just a handful of years didn't even
+bc5 his younger brother James could have been born about the year zero maybe the year two I don't know 2 BC or something like this so whatever Year we're talking is that's about his age
 
-follow Christ during his ministry and only after the resurrection of Christ from what we can piece together became a follower of Christ and was there for Pentecost and now is quite prominent in the church in Jerusalem
+so you can kind of work with it like that so in the year about 48 there is an agreement between James and Peter and John and Paul and he ends up sending Christians to Antioch I want you to see this whole thing Paul's second visit to Peter James and John in
 
-and actually as Paul comes he doesn't even set his mind on staying and visiting with anyone other than with Peter and with James in fact Paul says that he didn't even see any of the
+Jerusalem is really important it's found in Galatians Chapter 2 now we can set this on the timeline simply because Paul is so good at telling us some of these details that we don't get from the book of Acts because acts again go from one chapter to the next it can skip a
 
-other Apostles not even John honestly also not even the other James as in the Peter James and John thing that is not the case and so Peter's first visit after his three years away in Arabia
+couple of years and you won't even know that's kind of how Luke writes but one of the things that's really helpful is that we have the book of Galatians to help clear up some of the timeline and in Galatians Chapter 2 we'll see this in verses 1 to 10 again a super
 
-and Damascus 3 years that I think everyone kinds of forgets because if you read acts it's so quick but James the Lord's brother as he says is one that he made up his
+important passage about James that for some reason because when studying the book of Galatians you're not really here trying to you know figure out James's life I kind of missed this Galatians chap 2: 1-10 Paul says
 
-mind to visit while he was in Jerusalem important stuff starts to reveal to us James's first roles is as one of the leaders in the Church of Jerusalem when we start to carry along into Church's history we move along from the late
+then after 14 years very helpful I went up again to Jerusalem with Barnabas taking Titus along with me I went because of a revelation and set before them though privately before those who seemed influential the gospel that I Proclaim among the Gentiles
 
-30s into the early 40s mid 40s you have the martyrdom of the Apostle James the son of Zebedee one that again a lot of people mix up a lot of teachers in history have mixed up but James the son of zebede was one
+now this is again side note this is Paul saying you know after all these years I came back to Jerusalem and I communicated them the gospel that I've been preaching among the Gentiles because again the gospel given to Gentiles is going to sound different than the gospel being preached to first
 
-of the 12 in Acts chapter 12 was put to death in the year 44 right around that mid 40s and it is about that time that James really does that the James were talking about the Lord's brother Rises more even to prominence in
+generation Jewish Believers it's going to sound different it's in a different culture it's with a different base of understanding you can start with the god of Israel you can start with the entirety of the Old Testament scriptures which are all in possession by the church at this time you can start with
 
-the church in Jerusalem now whether this is that he takes over a role that James the Apostle had left behind in his martyrdom is really conjecture as far as I know there is nothing that says he was replacing him simply
+all of that I mean the familiarity with all these things the expectation of Messiah all those things is a different way of giving the gospel to Jewish people than it is to go to the Greeks and this is something that the church has wrestle through and
 
-because his name was so similar nothing like that it's it's it's a prominence that even Paul recognized years before it just happens to be one of those things that goes on it's just an important hing to mention
+so here's one of the ways they did it in Galatians 21:10 again it is 2 1-10 rather
 
-because acts 12 chap verse two usually gets mixed up with James the Lord's brother and then people are super confused about who is the James that's presiding over the Council of Jerusalem in Acts 15 but suffice it to say wrong James
+he's Paul says he says I wanted to give them the gospel that I Proclaim among the Gentiles in order to make sure that I was not running or had not run in vain
 
-if you're mixing that up with X12 it is in the following years after that in the late 40s that James writes the first book of the New Testament James writes the book of James the general epistle
+but he says even Titus who was with me was not forced to be circumcised though he was a Greek yet because of false Brothers secretly brought in who slipped in to spy out our freedom that we have in Christ
 
-the Book of James written to again Jewish Christians scattered amongst the world this shows us something that we will quickly now learn of James and that is that his ministry was devoted to the circumcision to the Jewish people
+so that they might bring us into slavery to them we did not yield in submission even for a moment so that the truth of the Gospel might be preserved for you and from those who seem to be influential what they are makes no difference to me God shows no
 
-that were following Christ that was his role and he played massive roles in ensuring that the relationship between the Jewish church and the Gentile churches would not go to war with one another over issues
+partiality here's where he talks about James those I say who seemed influential added nothing to me on the contrary when they saw that I had been entrusted with the gospel to the uncircumcised just as Peter had been entrusted with the gospel to the circumcised for he who worked through
 
-and James was enormously important with regards to this and the Epistle of James itself really demonstrates this because it introduces using the the genre that it is of wisdom literature it introduces
+Peter for his Apostolic Ministry to the circumcised worked also through me from mine to the Gentiles and when James and sephus Peter and John who seemed to be pillar perceived the grace that was given to me they gave the right hand of Fellowship to Barnabas and me that we
 
-the gospel in a very Jewish way using examples of those of Faith who have come before them using the descriptions of wisdom using the pursuit of virtue and our proper relationship to the law the Book of James is by the way
+should go to the Gentiles and that they should go to the circumcised only they asked us to remember the poor the very thing that I was eager to do this agreement between Paul and James and Peter and John that Paul should continue to pursue the Gentiles as far as he can excuse
 
-just simply remarkable I actually just got to teach on it last year as a two-part series I did on the Book of Proverbs and then on the book of James which again I argue is the Proverbs of
+me and that they should continue on their work in presenting the gospel and the ministry of the Gospel to the circumcised really shows us the these dividing lines that they had of responsibility again we're not preaching a different gospel we are not doing this
 
-the New Testament but James here having written it he is he is writing in a very Jewish style it's a very wisdom literature pical writing on practical Faith wisdom true wisdom from above versus Earthly wisdom in its limits perseverance under trials all that
+but we are going to very different backgrounds and that encourages us to follow how the spirit has divided up the apostolic Ministry some of them were devoted specifically to Jewish Ministries others were devoted specifically to Gentile Ministries at a date slightly later or before the Jerusalem Council we're going to cover here in a
 
-stuff it is it is very indicative of early mid 40s Jewish Christianity and it's pretty cool probably one of my favorite books in the scriptures many have assumed by the way a conflict of theology between James
+second Peter's error is immediately discussed in involving his reaction to the arrival in Antioch of some men from James it's just the next few verses and before we go to the Council of Jerusalem I want you to at least see this
 
-and Paul because James writes this way and Paul writes that way but those who do merely demonstrate that hey understand neither Paul nor James very well at all both of them preach the gospel of God's saving grace through true
+so again right where we left off verse 11 when sephus came to Antioch Paul says I oppose him to his face because he stood condemned for be before certain men came from James he was eating with the Gentiles
 
-faith that evidences itself in works out after the fact that is just plain how can you claim to have true faith if Works don't flow both of them will say this there's dead Faith as well that doesn't save anyone
+but when they came he drew back and separated himself fearing the circumcision party and the rest of the Jews acted hypocritically along with him so that even Barnabas was led astray by their hypocrisy
 
-and dead Faith results in othing take it to heart in the year approximately 48 and so again assuming that Jesus was bc5 his younger brother James could have been born about the year zero maybe the year two I don't know 2 BC or
+but when I saw that their conduct was not inep with the truth of the Gospel I said to sephus before them all if you though a Jew live like a gentile not like a Jew how can you force the Gentiles to live like Jews okay what do we learn here what do
 
-something like this so whatever Year we're talking is that's about his age so you can work with it like that so in the year about 48 there is an agreement between James
+we learn about James what do we learn about the issues that are going on the Gentile Jewish Christian divide was enormously difficult for Jewish Christians to work through because all of a sudden we have things like the story of Cornelius where the spirit of God is falling on them and saving them
 
-and Peter and John and Paul and he ends up sending Christians to Antioch I want you to see this whole thing Paul's second visit o Peter James and John in Jerusalem is really important it's found in Galatians Chapter 2
+before they are circumcised before they are taking in any Jewish rights before they're baptized even they before everything like Cornelius the story of Cornelius comes up really high in Peter's mind and reasoning about these things
 
-now we can set his on the timeline simply because Paul is so good at telling us some of these details that we don't get from the book of Acts because acts again go from one chapter to the
+but here some of the difficulties is in the practicalities how do we sit down and eat with one another is basically what was going on is when the when the representatives from James who was one of the leaders in the Jerusalem Church had not been to Antioch yet Peter
 
-next it can skip a couple of years and you won't even know that's how Luke writes but one of the things that's really helpful is that we have the book of
+had no problem sitting down and eating dinner with Gentiles and just going wow it's just normal day here we understand you know how this works now and it's different and all this kind of stuff
 
-Galatians to help clear up some of the timeline and in Galatians Chapter 2 we'll see this in verses 1 to 10 again a super important passage about James that for some reason
+but then when those of the circumcision party showed up when Jewish Christians from James showed up Peter would not sit down with the Gentiles and eat with them but instead insisted that other things should change around again Antioch being ESS essentially the third largest city in the Roman Empire at the
 
-because when studying the book of Galatians you're not really here trying to figure out James's life I missed this Galatians chap 2: 1-10 Paul says then after 14 years very helpful I went up again to Jerusalem with Barnabas taking
+time this is a very Cosmopolitan very Gentile City you're not going to have a lot of Jewish Christians there and so there's not going to be a normal let's just say a normal familiarity with the Scruples of Jewish Christians and
 
-Titus along with me I went because of a revelation and set before them though privately before those who seemed influential the gospel that I Proclaim among the Gentiles now this is again side note this is Paul saying after
+so Peter kind of fearing you know making anyone upset really causes problems here because he insists that in order for people to make others happy you have to become just like them not just keeping in mind their Scruples out of love this is a gospel level problem on multiple fronts and
 
-all these years I came back to Jerusalem and I communicated them the gospel that I've been preaching among the Gentiles because again the gospel given to Gentiles is going to sound different han the gospel
+so the exact details of it is not given to us but that it was involving men coming down as representatives from James and in Jerusalem pretty significant stuff pretty significant stuff indeed okay that gets us to the Jerusalem Council this is in the year 49 most likely maybe the year
 
-being preached to first generation Jewish Believers it's going to sound different it's in a different culture it's with a different base of understanding you can start with the god of Israel you can start with the ntirety of the Old Testament scriptures which are
+## Key Developments
 
-all in possession by the church at this time you can start with all of that the the familiarity with all these things the xpectation of Messiah all those things is a different way of giving the gospel to Jewish people than it is to
+50 the Jerusalem Council is one of these councils where people tend to make it mean this and that or prove this and that or set up a legitimacy that the church should be doing councils or that we can do councils Beyond this or whatever the case may be to you know
 
-go to the Greeks and this is something that the church has wrestle through and so here's one of the ways they did it in Galatians he's Paul says he says I wanted to give them the gospel that I Proclaim among the Gentiles
+decide or to make Theology and so forth I want to point out a couple of things first of all before we even open this passage and learn about James the Council of Jerusalem was there to handle some of the more practical disputes not really to EST Lish
 
-in order to make sure that I was not running or had not run in vain but he says even Titus who was with me was not forced to be circumcised though he was a Greek yet because of alse Brothers secretly brought in who
+theology that stuff comes in the form of scripture the Jerusalem Council was there applying theology certainly but it was applying to it to actual Fellowship problems how is it that Jewish and Gentile Believers are to get along how are we to keep in mind
 
-slipped in to spy out our freedom that we have in Christ so that they might bring us into slavery to them we did not yield in submission even for a moment so that the truth of the Gospel might be preserved
+each other's needs how is it we can what in the world do Gentile Christians have to do to become Christians do they have to become Jews do they have to follow the law do they have to do all this kind of stuff and that's really what's happening at
 
-for you and from those who seem to be influential what they are makes no difference to me God shows no partiality here's where he talks about James those I say who seemed influential added nothing to me on the contrary
+the Jerusalem Council well you say what does that have to do with James is essentially acting as the presider I suppose there's a couple of ways to say it
 
-when they saw that I had been entrusted with e gospel to the uncircumcised just as Peter had been trusted with the gospel to the circumcised for he who worked through Peter for his Apostolic Ministry to the circumcised worked
+but he really he's the one that kind of summates up everything and actually writes the letter of response and establishes his judgment and puts that forward so there's really interesting thing here at the end that I want you to see
 
-also through me from ine to the Gentiles and when James and sephus Peter and John who seemed to be pillar perceived the grace that was given to me they gave the right hand of Fellowship to Barnabas
+so as we go through the Jerusalem Council here James here presides over the Council of Jerusalem for lack of a better term presides he's he's advocates for a compromise that includes the Gentiles without requiring circumcision for instance which was a massive issue that is not by the way in any way
 
-and me that we should go to the Gentiles and that they should go to the circumcised only they asked us to remember the poor the very thing that I was eager to do this agreement between Paul
+condemnatory on Paul in the next passages by the way of recommending to Timothy to get circumcised who's half Jewish and half Gentile that's that's a Ministry decision for you know some of his ministry towards the Jews there in Ephesus
 
-and James and Peter and John that Paul should continue to pursue the Gentiles as far as he can excuse me and that they should continue on their work in presenting the gospel and the ministry of the Gospel to the circumcised really shows us
+but as far as for acts 15 is concerned here at the Jerusalem Council James is also the one who proposes a letter to be sent to Gentile Believers again and he emphasizes the exstension from a few things and it's really interesting what things he points out and why
 
-the these dividing lines that they had of responsibility again we're not preaching a different gospel we are not doing this but we are going to very different backgrounds and that encourages us to follow how the spirit has divided up the apostolic Ministry
+so let's kind of get into this right the Jerusalem Council now I have an entire episode on the Jerusalem Council so I don't really want to get into that
 
-some of them were devoted specifically to Jewish Ministries others were devoted specifically to Gentile Ministries at a date slightly later or before the Jerusalem Council we're going to cover here in a second Peter's error is immediately discussed in involving his reaction to the
+so much that is episode 11 in season 2 if you want to go back and see a detailed analysis of this but I really want you to just see when James addresses all of this because Peter you know he stands up he gives them this whole spiel about what he saw with
 
-arrival in Antioch of some n from James it's just the next few verses and before we go to the Council of Jerusalem I want you to at least see this so again right where we left off verse 11
+regards to Cornelius and they worked through all of this that the Holy Spirit you know he was given to the Gentiles in the exact same way as he did to the Jews making no distinction having cleansed their hearts by faith and all this kind of stuff
 
-when sephus came to Antioch Paul says I oppose him to his face because he stood condemned for be before certain men came from James he was eating with the Gentiles but when they came he drew back
+and the whole the whole assembly Falls silent right after Paul has said what he had said regarding how the Lord was working among the Gentile Christians and then Peter comes up and goes yeah we saw that whole story with Cornelius that's that's exactly what we've been seeing as well and everyone
 
-and separated himself earing the circumcision party and the rest of the Jews acted hypocritically along with him so that even Barnabas was led astray by their hypocrisy but when I saw that their conduct was not inep with e truth of the
+in the entire assembly fell silent and they listened to Barnabas and Paul and as they related the signs and wonders that God had done through them among the
 
-Gospel I said to sephus before them all if you though a Jew live like a gentile not like a Jew how can you force the Gentiles to live like Jews
+Gentiles after they finished speaking James I'm going to insert the Lord's brother just for clarity here James the Lord's brother replied Brothers listen to me Simeon has related how God first visited the Gentiles to take from them a people for his name
 
-okay what do we learn here what do we learn about James what do we learn about the issues that are going on the Gentile Jewish Christian divide was enormously difficult for Jewish Christians to work through because all of a sudden we have things
+now stop there for just a second that's an incredible thing for James the Lord's brother the one of the main pillars of the church as Paul calls him in Jerusalem whose Ministry is to the circumcised believing Jewish people to say this about the Gentiles this is why
 
-like the story of Cornelius where the spirit of God is falling on them and saving them before they are circumcised before they are taking in any Jewish rights before they're baptized even they before verything like Cornelius the story of Cornelius comes up
+I say his role in bridging this Gap is not only just undeniable it is absolutely essential so again with that in mind listen to this James stands up and replies Brothers listen to me Simeon has related how God first visited the Gentiles to take from them a people for
 
-really high in Peter's mind and reasoning about these things but here some of the difficulties is in the practicalities how do we sit down and eat with one another is basically what was going on is
+his name and with this the words of the prophets agree just as is as it is written after this I will return and I will rebuild the tent of David that has fallen I will rebuild build its ruins and I will restore it that the remnant
 
-when the when the representatives from James who was one of the leaders in the Jerusalem Church had not been to Antioch yet Peter had no problem sitting down and eating dinner with Gentiles and just going wow it's just normal day here we
+of mankind May seek the Lord and all the Gentiles who are called by my name says the Lord who makes these things known from of old therefore my judgment is that we should not trouble those of the Gentiles who turn to God
 
-understand how this works now and it's different and all this stuff but hen when those of the circumcision party showed up when Jewish Christians from James showed up Peter would not sit down with the Gentiles
+but should write to them to abstain from things polluted by Idols from sexual immorality and from what has been strangled and from blood for from ancient Generations Moses has had in every city those who Proclaim him for he has read every Sabbath in the
 
-and eat with them but instead insisted that other things should change around again Antioch being ESS essentially the third largest city in the Roman Empire at the time this is a very Cosmopolitan very Gentile City you're not going to have a lot of
+synagogues this is one of those fascinating instances in the church's history where we have references to something that is higher than looking out for oneself or just advocating for oneself we have here James expressly saying to them that all of this is to be done in care and deference to those who
 
-Jewish Christians there and so there's not going to be a normal let's just say a normal familiarity with the Scruples of Jewish Christians and so Peter fearing making anyone upset really causes problems here
+live amongst them as far as for James is concerned he is keeping in mind that those who are of the circumcision party living in Gentile lands will have certain
 
-because he insists that in order for people to make others happy you have to become just like them not just keeping in mind their Scruples out of love this is a gospel evel problem on multiple fronts
+Scruples and he is addressing to them that look Jewish Christians live in every city Moses has been preached in the Sabbath in their synagogues everywhere and so after this in verse 22 it says it seemed good to the apostles and the elders and the whole church to choose men from among them and
 
-and so the exact details of it is not given to us but that it was involving men coming down as representatives from James and in Jerusalem pretty significant stuff pretty significant stuff indeed
+send them to Antioch with Paul and Barnabas they sent Judas called Barabas and Silas Leading Men among the brothers with the following letter again here's the letter the brothers both the apostles and the elders to the brothers who are the Gentiles in Antioch and Syria and cissa greetings
 
-okay that gets us to the Jerusalem Council this is in the year 49 most 50 the Jerusalem Council is one of these councils where people tend to make it mean this and that or prove this and that or set up a legitimacy that
+now hang on I want you to simply just see the fact that this is not sent out by some Universal Bishop of the church nor is it sent out by one Bishop nor is it sent out by one elder or one Apostle or anything it's all of them the apostles the elders the
 
-he church should be doing councils or that we can do councils Beyond this or whatever the case may be to decide or to make Theology and so forth I want to point out a couple of things
+brothers to the brothers who are of the Gentiles in Antioch and Syria and cissa greetings since we have heard that some persons have gone out from us and troubled you with words unsettling your minds although we gave them no instructions it has seemed good to us having come to one
 
-first of all before we even open this passage and learn about James the Council of Jerusalem was there to handle some of the more practical disputes not really to EST Lish theology that stuff comes in the form
+Accord to choose men and to send them to you with our beloved Barnabas and Paul men who have risked their lives for the name of the Lord Jesus Christ we have sent them we have therefore sent Judas and Silas who themselves will tell you the same things by Word of Mouth for it
 
-of scripture the Jerusalem Council was there applying theology certainly but it was applying to it to actual Fellowship problems how is it hat Jewish and Gentile Believers are to get along how are we to keep in mind each
+has seemed good to the Holy Spirit and to us to lay on you no greater burden than these requirements that you abstain from what has been sacrificed to Idols from blood from what has been strangled and from sexual immorality if you keep yourselves from these you will do well farewell
 
-other's needs how is it we can what in the world do Gentile Christians have to do to become Christians do they have to become Jews do they have to follow the law do they have to do all this stuff
+now is that a testament to the entirety of the Christian witness no that is not laying down a whole compendium for how the Christian life is to work and all this they are talking about a very specific narrow focus on Ministry and living as Gentile Christians in the presence of
 
-and that's really what's happening at he Jerusalem Council well you say what does that have to do with James is essentially acting as the presider there's a couple of ways to say it
+Jewish Christians how to keep their Scruples in mind in love and deference to one another that same advice is given to them it is to be applied and wouldn't you know it is strange I don't know how this all came together I happen to be preaching on Jesus's letter to the
 
-but he really he's the one that summates up everything and actually writes the letter of response and establishes his judgment and puts that forward so there's really interesting thing here at the end that I
+church in pergamum which is a little bit further than cysia and Antioch away from Jerusalem but Jesus corrects them for not following this advice and it's something I never saw before in the connections here I want you to see that it's Revelation 2: 12-1 17 Jesus says to the angel of the church in
 
-want you to see so as we go through the Jerusalem Council here James here presides over the Council of Jerusalem for lack of a better term presides he's he's advocates for a compromise that includes the Gentiles without requiring circumcision for instance which was
+pergamum write the words of him who has a sharp two-edged sword I know where you dwell where Satan's Throne is yet you hold fast my name and you did not deny my faith even in the days of Antipas my faithful witness who was killed among you where Satan dwells
 
-a massive issue that is not by the way in any way condemnatory on Paul in the next passages by the way of recommending to Timothy to get circumcised who's half Jewish and half Gentile that's that's a Ministry decision for some of his ministry
+but I have a few things against you have some there who hold to the teaching of balum who taught BAC to watch this put a stumbling block before the sons of Israel
 
-towards the Jews there in in Ephesus but as far as for acts 15 is concerned here at the Jerusalem Council James is also the one who proposes a letter to be sent to Gentile Believers again
+so that they might eat food sacrificed to idols practice sexual immorality so also you have some who hold to the teachings of the nians so forth repent that correction comes in and quotes half of the Jerusalem council's letter of recommendations where Jesus is saying to them these very things what it
 
-and he emphasizes the exstension from a few things and it's really interesting what hings he points out and why so let's get into this right the Jerusalem Council
+wasn't just a Ministry decision of Scruples they were specifically not following the advice of the Jerusalem Council and instead causing not Christ to be a stumbling block for those who are Jews that would come to salvation
 
-now I have an entire episode on the Jerusalem Council so I don't really want to get into that so much that is episode 11 in season 2
+but themselves and their
 
-if you want to go back and see a detailed analysis of this but I really want you to just see when James addresses all of this because Peter he stands up he gives them this
+freedom they say we could eat food sacrifice to Idols whatever Idols are nothing right that's not how Paul warns Gentile Christians to interact in the world that's not how Jesus here in re Revelation 12 wants them to do it's just this plugging away at it's nothing I don't have to worry about anybody I
 
-whole spiel about what he saw with regards to Cornelius and they worked through all of this that the Holy Spirit he was given to the Gentiles in the exact same way as he did to the Jews making no
+don't have to give care of deference to anybody I can do whatever I want or the practice of sexual immorality obviously it's not just a normal thing here but it is it is with regards to the idea that there is certain distinct holdups for those who would come to Christ and
 
-distinction having cleansed their hearts by faith and all this kind and the whole the whole assembly Falls silent right after Paul has said what he had said regarding how the Lord was working among the Gentile Christians
+instead of dressing accordingly or being of a certain mindset with regards to these things keeping in concern those who would have massive issues being from other cultures why are you intentionally putting yourself as a stumbling block for those who would come to Salvation in Christ it's really interesting it's really interesting that Jesus to
 
-and then Peter comes up and goes yeah we saw that whole story with Cornelius that's that's exactly what we've been seeing as well and everyone in the entire assembly fell silent
+the church in pergamum uses two of the main items from the Jerusalem council's letter in Revelation 2 I think that's fascinating as a leader in the church in Jerusalem James continues to play a role there Paul is well aware of this role obviously having just been in Jerusalem
 
-and they listened to Barnabas and Paul and as they related the signs and wonders that God had done through them Gentiles after they finished speaking James I'm going to insert the Lord's brother just for clarity here James the Lord's brother replied
+as he leaves for his second missionary journey he stays in Corinth for about 18 months and a while there he writes the book of First Thessalonians and he uses the church in Jerusalem as a commendation for the church that the Thessalonians are imitating it's found in 1 Thessalonians chapter 2: 13
 
-Brothers listen to me Simeon has related how God first visited the Gentiles to take from them a people for his name now stop there for just a second that's an incredible thing for James the Lord's
+to 15 again James is one of the main leaders there at this time and notice the things that it's commended for in 1 Thessalonians 23-15 where Paul this would be like a year maybe two years after the Jerusalem Council he's found his way all the way to
 
-brother the one of the main pillars of the church as Paul calls him in Jerusalem whose Ministry is to the circumcised believing Jewish people to say this about the Gentiles this is why I say his role in bridging this Gap is not only
+Corinth Paul says to the church in thessalonica we also thank God constantly for this and when you received the word of God oh that when you received the word of God which you heard from us you accepted it not as the word of men
 
-just undeniable it is absolutely essential so again with that in mind listen to this James stands up and replies Brothers listen to me Simeon has related how God first visited the Gentiles to take from them a people for his name
+but as what it really is the word of God which is at work in you Believers for you Brothers became imitators of the churches of God and Christ Jesus that are in Judea for you suffered the same things from your own countrymen as they did from the Jews who
 
-and with this the words of the prophets agree just as is as it is written after this I will return and I will rebuild the tent of David that has fallen I will rebuild build its ruins
+killed both the Lord Jesus and the prophets and drove us out and displeased God and oppose all man
 
-and I will restore it that the remnant of mankind May seek the Lord and all the Gentiles who are called by my name says the Lord who makes these things known from of old therefore my judgment is that we should not trouble
+kind this recognizing receiving and accepting the word of God from the apostles that both those in thessalonica as well as the churches in Judea do is remarkable I love that reference these are the earliest scriptures written James and 1 Thessalonians and all of a sudden you have the message
 
-those of the Gentiles who turn to God but should write to them to abstain from things polluted by Idols from sexual immorality and from what has been strangled and from blood for from ancient Generations Moses has
+that's coming from the apostles mouths the gospel of Christ as being received as the word of God not as the word of men and more than that faithful endurance and suffering this is what the church in Jerusalem is known for one of the main leaders there being James it's just
 
-had in every city those who Proclaim synagogues this is one of those fascinating instances in the church's history where we have references to something that is higher than looking out for oneself or just advocating for oneself we have here James expressly saying to
+fascinating James Spends His T days spends his time working to bridge tensions between Jewish and Gentile Christians the 50s saw significant famines in Jerusalem it's referenced in Romans 1 and 2 Corinthians as Paul takes up collections for the church in Jerusalem again James is still one of the prominent leaders there he
 
-them that all of this is to be done in care and deference to those who live amongst them as far as for James is concerned he is keeping in mind that hose who are of the circumcision party living in
+has a rough time massive famines a lot of poverty probably already being hinted at when Paul on his first visit expresses that he was no on his second visit that he was looking to remember or that he was being encouraged by James and Peter and John to remember the poor
 
-Gentile lands will have certain Scruples and he is addressing to them that look Jewish Christians live in every city Moses has been preached in the Sabbath in their synagogues everywhere and so after this in verse 22 it says it seemed good to the
+and he's like I something I was already looking to do may very well have been references to the church in Jerusalem itself which was a having exceptionally difficult times in the 50s well we come to the end of James's life it is in the year 62 he is executed by stoning
 
-apostles and the elders and the whole church to choose men from among them and send them to Antioch with Paul and Barnabas they sent Judas called Barabas and Silas Leading Men among the brothers with the following letter again here's the letter
+under the high priest at the time during a gap in Roman rule and he was accused of breaking Jewish law the story I'm not going to read it in it's entirety just a short section of it is found in Josephus Antiquities 20 chapter 9 paragraph one if you want
 
-the brothers both the apostles and the elders to the brothers who are the Gentiles in Antioch and Syria and cissa greetings now hang on I want you to simply just see the fact hat this is not sent out by some Universal Bishop of
+to look it up at this point fesus one of the leaders one of the rulers there was dead and albinus was on the road and so the high priest took advantage of this let's just say Hiatus of Roman overlordship and assembled the Sanhedrin of Judges and brought before them the
 
-the church nor is it sent out by one Bishop nor is it sent out by one elder or one Apostle or anything it's all of them the apostles the lders the brothers to the brothers who are of the Gentiles in Antioch
+brother of Jesus who was called Christ whose name was James again for those who have issues with this being a brother and must be a cousin or something like this you have to explain why someone like Josephus in the 9s is using this exact same language that the rest of the
 
-and Syria and cissa greetings ince we have heard that some persons have gone out from us and troubled you with words unsettling your minds although we gave them no instructions it has seemed good to us having come to one Accord to choose men
+New Testament uses and calling him the legal brother of Jesus I don't know what you do with that whose name was James and some others and when and when he had formed an accusation against them as Breakers of the law he delivered them to be stoned
 
-and to send them to you with our beloved Barnabas and Paul men who have risked their lives for the name of the Lord Jesus Christ we have sent them we have therefore sent Judas
+but as for those who seem to be the most Equitable of the city citizens and such as were the most uneasy at the breach of the laws they dislike what was done they also sent to the king who was a grippa at the time Desiring him to send the high priest
 
-and Silas who themselves will tell you the same things by Word of Mouth for it has seemed good to the Holy Spirit and to us to lay on you no greater burden than these requirements that you
+that he should act so no more for that which he had already done was not to be justified nay some of them went also out to meet albinus and he was upon his journey from Alexandria and informed him that it was not lawful for him to assemble the Sanhedrin without his consent
 
-abstain from what has been sacrificed to Idols from blood from what has been strangled and from sexual immorality if you keep yourselves from these you will do well farewell now is that a testament to the entirety of the Christian witness no
+yeah James was stoned to death under false pretenses with wrong rulers in place which is unfortunate I know if you are a fan or if you remember any of this from about know I'd say about 20 or
 
-that is not laying down a whole compendium for how the Christian life is to work and all this they are talking about a very specific narrow focus on Ministry and living as Gentile Christians in the presence of Jewish Christians how to keep their
+so years ago there was a archaeological discovery that made the rounds on media of an uary of James's bones that were found and people have argued back and forth about that you know has inscriptions on it all this kind of stuff I'm not convinced that's a reliable find
 
-Scruples in mind in love and deference to one another that same advice is given to them it is to be applied and wouldn't it is strange I don't know how this all came together I happen to be preaching on Jesus's letter to the
+so I'm not really going to bring it in but I just want to know there's there's something like that you can go look it up go read about it I think some of the best writing I've seen on it's definitely a first century thing
 
-church in pergamum which is a little bit further than cysia and Antioch away from Jerusalem but Jesus corrects them for not following this advice and it's something I never saw before in the connections here I want you to
+but the inscription on it certainly doesn't seem to it would be far too convenient for us to find something like that I think but neither here nor there is a whole another account of his death of James's death and this is an account that I will simply call Jesus's unreliable account I say that
 
-see that it's Revelation 2: 12-1 17 Jesus says to the angel of the church in pergamum write the words of him who has a sharp two-edged sword I know where you dwell where Satan's Throne is yet you hold fast my name
+for this reason hesus was a late 2 Century author who some of his works are preserved by the quotations of uus who is a church historian in the early 4th Century early 300s and he adds all sorts of things about James's life that are unusual things that he was very
 
-and you did not deny my faith even in the days of Antipas my faithful witness who was killed among you where Satan dwells but I have a few things against you have some there who hold to the
+unusually righteous that you know he prayed on his knees so much that they resembled camels knees and had a very strict adherance to the law of Moses which by the way is not consistent with either Josephus which is exactly what he was being tried for or to his own
 
-teaching of balum who taught BAC to watch this put a stumbling block before the sons of Israel so that hey might eat food sacrificed to idols practice sexual immorality so also you have some who ld to the teachings of the nians
+test testimony in Acts 15 that's not that I mean he yeah anyway and that instead of being stoned to death he was thrown from the Pinnacle of the temple that kind of that same place where the where the devil took Jesus to hesus like many early writers is not
 
-so forth repent that correction comes in and quotes half of the Jerusalem council's letter of recommendations where Jesus is aying to them these very things what it wasn't just a Ministry decision of Scruples they were specifically not following the advice of the Jerusalem
+reliable for actual history again not only is it partially oral history and some of it most likely informed on some levels from the ebionites over emphasis on James such things are unreliable notoriously
 
-Council and instead causing not Christ to be a stumbling block for those who are Jews that would come to salvation but freedom they say we could eat food sacrifice to Idols whatever Idols are nothing right that's not how Paul warns Gentile Christians to
+so for speaking about people that are held in high reverence yeah you can think of it even in our own Society in America if you think of the stories of George Washington for instance you know cutting down the cherry tree and having wooden teeth and all this kind of stuff it just it's
 
-interact in the world that's not how Jesus here in re Revelation 12 wants them to do it's just his this plugging away at it's nothing I don't have to worry about anybody I don't have to give care of deference to anybody I can
+embellishments that happen over time it happens with every historical figure and regard whether people like it or not Christians are historical figures and this kind of stuff happens and haes spice's writings are hagiographical with regards to James here and can't be taken as authentic history because again hagiography was
 
-do whatever I want or the practice of sexual immorality obviously it's not just a normal thing here but it is it is with regards to the idea that there is certain distinct holdups for those who would come to Christ
+not having as its goal telling accurate history we got to do a lot more work to arrive at the truth than just taking you know the story of the church's history handed down to us at face value there's there's things in it that are wrong there's things in it that are
 
-and instead of dressing accordingly or being of a certain mindset with regards to these things keeping in concern those who would have massive issues being from other cultures why are you intentionally putting yourself as a stumbling block for those who would come to
+great and we got to sift through the reality of things in order to know which is which as far as that is concerned James the Lord's brother I got to say as far as for research on episodes there's one of the reasons that we took one week off for this was because La two
 
-Salvation in Christ it's really interesting it's really interesting that Jesus to the church in pergamum uses two of the main items from the Jerusalem council's letter in Revelation 2 I think that's fascinating as a leader in the church in Jerusalem James continues to
+weeks ago it was Christmas but I also wanted to spend more time with this once I started delving into this story it really just it made me happy I don't know another way to put it made me happy to read James's story in a really unusual way I'm I'm really impressed
 
-play a role there Paul is well aware of this role obviously having just been in Jerusalem as he leaves for his second missionary journey he stays in Corinth for about 18 months and a while there he writes the book of
+with this man I it helped that I had just finished teaching on the Epistle of James so I had a completely different perspective starting from and it's only blossomed and grown since
 
-First Thessalonians and he uses the church in Jerusalem as a commendation for the church that the Thessalonians are imitating it's found in 1 Thessalonians chapter 2: 13 to 15 again James is one of the main leaders there at this time
+then in the end we have we have James the Lord's brother were presented with a man who truly followed the way of his brother our Lord and suffered martyrdom for his faithful reputation he takes to Heart some of the most encouraging words he ever wrote and these are found in the book of James
 
-and notice the things that it's commended for in 1 Thessalonians 23-15 where where Paul this would be like a year maybe two years after the Jerusalem Council he's found his way all the way to Corinth Paul says to the church in thessalonica we
+## Main Discussion
 
-also thank God constantly for this and when you received the word of God oh that when you received the word of God which you heard from us you accepted it not as the word of men but as what it really is the word
+itself humble yourselves before the Lord and He will exalt you I'm going leave us with advice here at the end of this episode may the Lord bless you all
 
-of God which is at work in you Believers for you Brothers became imitators of the churches of God and Christ Jesus that are in Judea for you suffered the same things from your own countrymen as they did from the Jews who killed both
-
-the Lord Jesus and the prophets and drove us out and displeased kind this recognizing receiving and accepting the word of God from the apostles that both those in thessalonica s well as the churches in Judea do is remarkable
-
-I love that reference these are the earliest scriptures written James and 1 Thessalonians and all of a sudden you have the message that's coming from the apostles mouths the gospel of Christ as being received as the word of God
-
-not as the word of men and more than that faithful endurance and suffering this is what the church in Jerusalem is known for one of the main leaders there being James it's just fascinating James Spends His T days pends his
-
-time working to bridge tensions between Jewish and Gentile Christians the 50s saw significant famines in Jerusalem it's referenced in Romans 1 and 2 Corinthians as Paul takes up collections for the church in Jerusalem again James is still one of the prominent leaders there
-
-he has a rough time massive famines a lot of poverty probably already being hinted at when Paul on his first visit expresses that he was no on his second visit that he was looking to remember or that he was being encouraged by James
-
-and Peter and John to remember the poor and he's like I something I was already looking to do may very well have been references to the church in Jerusalem itself which was a having exceptionally
-
-difficult times in the 50s well we come to the end of James's life it is in the year 62 he is executed by stoning under the high priest at the time during a gap in Roman rule
-
-and he was accused of breaking Jewish law the story I'm not going to read it in it's entirety just a short section of it is found in Josephus Antiquities 20 chapter 9 paragraph one if you want o look it up at this point
-
-fesus one of the leaders one of the rulers there was dead and albinus was on the road and so the high priest ook advantage of this let's just say Hiatus of Roman overlordship and assembled the Sanhedrin of Judges
-
-and brought before them the brother of Jesus who was called Christ whose name was James again for those who have issues with this being a brother and must be a cousin or something like this you have to explain why someone
-
-like Josephus in the 9s is using this exact same language that the rest of the New Testament uses and calling him the legal brother of Jesus I don't know what you do with that whose name was James
-
-and some others and when and when he had formed an accusation against them as Breakers of the law he delivered them to be stoned but as for those who seem to be the most Equitable of the city citizens
-
-and such as were the most uneasy at the breach of the laws they dislike what was done they also sent to the king who was a grippa at the time Desiring him to send the high priest hat he should act
-
-so no more for that which he had already done was not to be justified nay some of them went also out to meet albinus and he was upon his journey from Alexandria
-
-and informed him that it was not lawful for him to assemble the Sanhedrin without his consent yeah James was stoned to death under false pretenses with wrong rulers in place which is unfortunate I know if you are a fan or
-
-if you remember any of this from about know I'd say about 20 or so years ago there was a archaeological discovery that made the rounds on media of an uary of James's bones that were found
-
-and people have argued back and forth about that has inscriptions on it all this stuff I'm not convinced that's a reliable find so I'm not really going to bring it in
-
-but I just want to know there's there's something like that you can go look it up go read about it I think some of the best writing I've seen on it's definitely a first century thing but the inscription on it certainly doesn't seem
-
-to it would be far too convenient for us to find something like that I think but neither e nor there is a whole another account of his death of James's death and this is an account that I will simply call Jesus's unreliable account
-
-I say that for this reason hesus was a late 2 Century author who some of his works are preserved by the quotations of uus who is a church historian in the arly 4th Century early 300s and he adds all sorts of things about
-
-James's life that are unusual things that he was very unusually righteous that he prayed on his knees so much that they resembled camels knees and had a very strict adherance to the law of Moses which by the way
-
-is not consistent with either Josephus which is exactly what he was being tried for or to his own test testimony in Acts 15 that's not hat he yeah anyway and that instead of being stoned to death he was thrown from the Pinnacle of
-
-the temple that same place where the where the devil took Jesus to hesus like many early writers is not reliable for actual history again not only is it partially oral history and some of it most likely informed on some levels from the ebionites
-
-over emphasis on James such things are unreliable notoriously so for speaking about people that are held in high reverence yeah you can think of it even in our own Society in America
-
-if you think of the stories of George Washington for instance cutting down the cherry tree and having wooden teeth and all this stuff it just it's embellishments that happen over time it happens with every historical figure
-
-and regard whether people like it or not Christians are historical figures and this stuff happens and haes spice's writings are hagiographical with regards to James here and can't be taken as authentic history because again hagiography was not having as its
-
-goal telling accurate history we got to do a lot more work to arrive at the truth than just taking the story of the church's history handed down to us at face value there's there's things in it that are wrong there's things in it
-
-that are great and we got to sift through the reality of things in order to know which is which as far as that is concerned James the Lord's brother I got to say as far as for research on episodes there's one of the
-
-reasons that we took one week off for this was because La two weeks ago it was Christmas but I also wanted to spend more time with this once I started delving into
-
-this story it really just it made me happy I don't know another way to put it made me happy to read James's story in a really unusual way I'm I'm really impressed with this man I it helped that I had just finished teaching
-
-on the Epistle of James so I had a completely different perspective starting from and it's only blossomed and grown since then in the end we have we have James the Lord's brother were presented with a man who truly followed the way of
-
-his brother our Lord and suffered martyrdom for his faithful reputation he takes to Heart some of the most encouraging words he ever wrote and these are found in the book of James itself humble yourselves before the Lord
-
-and He will exalt you I'm going leave us with advice here at the end of this episode may the Lord bless you all [Applause]
-
+[Applause]
 
 ## Closing

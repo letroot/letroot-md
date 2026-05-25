@@ -12,604 +12,512 @@ episode: "S2E6"
 
 ## Introduction
 
+into the fascinating topic of leadership in the apostolic church I tell you when we start on studies like this one of the things that I'm always is very grateful to be working with is the scriptures these scriptures reveal to us a whole lot about the early part of the church
 
-## So I Want To
+and his leadership structure and what the roles were of the various people involved with this as we look into this I'm going to encourage you to grab your Bibles there's a lot of scripture references most of them I will read
 
-and theology well welcome once again to church history and theology as we delve into the fascinating topic of leadership in the apostolic church I tell you when we start on studies like this one of the things that
+## Historical Background
 
-I'm always is very grateful to be working with is the scriptures these scriptures reveal to us a whole lot about the early part of the church and his leadership structure and what he roles were of the various people involved with
+but we're going to be looking at so many of them it probably help to have your Bible handy and also a pause button in order to turn back and forth I get to prepare ahead of time and have all these things ready on my screen and be able to work through them all
 
-this as we look into this I'm going to encourage you to grab your Bibles there's a lot of scripture ferences most of them I will read but we're going to be looking at so many of them it probably help to
+but as we work through these some of these issues are going to be pretty quick especially when we get to some of the references regarding New Testament prophets and teachers and things like that
 
-have your Bible handy and also a pause button in order to turn back and forth I get to prepare ahead of time and have all these things ready on my screen
+so but here at the beginning I really wanted to give you an overview of what we're going to look at this evening and that is this concept of leadership in the Apostolic Church what was the first church structured like as best as we can piece together and
 
-and be able to work through them all but as we work through these some of these issues are going to be pretty quick especially when we get to some of the references regarding New Testament prophets
+then immediately after that the post-apostolic church what did it look like what offices were made for permanency that we end up having qualifications for and ways to choose people for these things and
 
-and teachers and things like that so but here at the beginning I really wanted to give you an overview of what we're going to look at this evening and that is this concept of leadership in the Apostolic Church what was the
+so forth when we when we start to open the book of Acts we would probably be we would probably be forgiven for overlooking some of these offices because we don't talk about them hardly ever in the New Testament era
 
-first church structured like as best as we can piece together and then immediately after that the post-apostolic church what did it look like what offices were made for permanency that we end up having qualifications for
+but it's important as we are studying church history to try to recreate what in the world was going on in the first church because we have all of these little nuggets of information kind of sprinkled throughout the Book of Acts and various Epistles and it really
 
-and ways to choose people for these things and so forth when we when we start to open the book of Acts we would probably be we would probably be forgiven for overlooking some of these offices
+helps us to be able to assemble it all together and this is what my goal is for this evening is to get a as clear a picture as we can get of the different Authority and responsibility structures inside the first church as
 
-because we don't talk about them hardly ever in the New Testament era but it's important as we are studying church istory to try to recreate what in the world was going on in the first church
+well as the let's call it the second church or the post-apostolic church and how consistent they are with one another yet developed and once they develop it becomes solidified you're going to see a number of things here I hope that are new and are clear to you and I
 
-because we have all of these little nuggets of information sprinkled throughout the Book of Acts and various Epistles and it really helps us to be able to assemble it all together and this is what my goal is for this evening is to get
+hope a couple of challenges for you as well regardless of what tradition you come from I know I was certainly challenged with regards to some of the assumptions I had when I've been writing this particular episode the past month and a half and I'll tell you it's it's it's a good study and
 
-a as clear a picture as we can get of the different Authority and responsibility structures inside the first church as well as the let's call it the second church or the post-apostolic church
+one that I'm looking forward to delve into so let's let's go ahead and delve straight into that and that is going to be the original leadership of the Apostolic Church the first thing we have to talk about is the scriptures
 
-and how consistent they are with one another yet developed and once they develop it becomes solidified you're going to see a number of things here I hope that are new and are clear to you
+now by the scriptures of course we are talking about the apostolic church we are not yet speaking of the New Testament so we start at the Old Testament prophets the Hebrew scriptures if you will this is what the New Testament will call and Jesus calls and the apostles call the prophets
 
-and I hope a couple of challenges for you as well regardless of what tradition you come from I know I was certainly challenged with regards to some of the assumptions I had
+or the law and the prophets or the law and the writings and the prophets however you want to refer to it the shorthand for it is the Old Testament prophets meaning the Hebrew scriptures everything from Moses all the way down to Malachi everything that was written for the benefit of the church these
 
-when I've been writing this particular episode the past month and a half and I'll tell you it's it's it's a good study and one that I'm looking forward to delve into
+things these examples these people's lives everyone the time of the judges the time of the United Kingdom the time of the divided Kingdom the times of dwelling ding in the promised lands the times of Exile whether in Babylon or whether in Egypt the entire story and the
 
-so let's let's go ahead and delve straight into that and that is going to be the original leadership of the Apostolic Church the first thing we have to talk about is the scriptures
+entire edifice if you will of the Jewish religion in its scriptures belongs to the church the first church had as its main Authority the Hebrew scriptures excuse me specifically the Old Testament prophets in the Hebrew scriptures
 
-now by the scriptures of course we are talking about the apostolic church we are not yet speaking of the New Testament so we start at the Old Testament prophets the Hebrew scriptures this is what the New Testament will call
+now I'm going to I'm going to put this forward as part of the leadership structure of the original church this is why because the scriptures play a role that are even over and above assuming that there's going to be consistency between the scriptures that were given to the to the Jews and
 
-and Jesus calls and the apostles call the prophets or the law and the prophets or the law and the writings and the prophets however you want to refer to it the shorthand for it is
+then all the way down to the church there's going to be consistency with them and with Christ and with the apostles and so what the early church does what the first church does is analyze the scriptures to ensure that what the apostles are saying comports to the reality of the Old
 
-the Old Testament prophets meaning the Hebrew scriptures everything from Moses all the way down to Malachi everything that was written for the benefit of the church these things these examples these people's lives everyone the time of the judges the time of the United
+Testament scriptures you're going to see these types of things you're going to see this as the developing habit of all that come after it the Hebrew scriptures were there for Christians to check the apostles teachings for consistency with the revelation of God this is something that is absolutely Central with
 
-Kingdom the time of the divided Kingdom the times of dwelling ding in the promised lands the times of Exile whether in Babylon or whether in Egypt the entire story and the ntire edifice of the Jewish religion in its scriptures belongs to the church
+regards to our relationship as Christians to the Old Testament scriptures as we call it the Old Testament scriptures the Hebrew scriptures all sorts of terminologies for this you will actually see this emphasized for us in Acts 17: 10-2 a passage that I'm sure many people are aware of is referred to the church in
 
-the first church had as its main Authority the Hebrew scriptures excuse me specifically the Old Testament prophets in the Hebrew scriptures now I'm going to I'm going to put this forward as part of the leadership structure of the original church this is why
+Berea there we pick up the story that the brothers immediately sent Paul and Silas Away by night to Berea when they arrived they went into the Jewish synagogue now this is again this is going to be a place where the Hebrew scriptures are plainly read are plainly understood this was Paul's habit
 
-because the scriptures play a role that are even over and above assuming that there's going to be consistency between the scriptures that were given to the to the Jews and then all the way down to the church there's
+everywhere he went he would go and start in the synagogue first why not just because you're starting at a similar base but because Old Testament Saints are there truly saved individuals who have yet to hear about the coming of the Messiah and
 
-going to be consistency with them and with Christ and with the apostles and so what he early church does what the first church does is analyze the scriptures to ensure that what the apostles are saying
+so he goes to these places and he tells them all about this and let's let's learn about these look at verse 11 in Acts chapter 17 now these Jews were no more noble than those in thessalonica they received the word with all eagerness Examining the Scriptures Daily to see if these things were
 
-comports to the reality of the Old Testament scriptures you're going to see these types of things you're going to see this as the developing habit of all that come after it the Hebrew scriptures were there for Christians to check the apostles teachings for
+so notice one of the things that Paul does not do he does not just go in and say Here's my Apostolic Authority end of story it doesn't matter what you see in Scripture it doesn't matter what your personal interpretation is or any of that kind of stuff he doesn't say
 
-consistency with e revelation of God this is something that is absolutely Central with regards to our relationship as Christians to the Old Testament scriptures as we call it the Old Testament scriptures the Hebrew scriptures all sorts of terminologies for this you will actually
+that go and see that these things are consistent the people in Berea these are not Elders this is not an established church this is a synag ogue these are Old Testament Saints what were they doing they were examining the Hebrew scriptures for consistency with the apostles message they were Examining the
 
-see this emphasized for us in Acts 17: 10-2 a passage that I'm sure many people are aware of is referred to the Berea there we pick up the story that he brothers immediately sent Paul and Silas Away by night to Berea
+Scriptures Daily to see if these things were so many of them therefore believed and this becomes a central aspect of the leadership of the Old Testament prophets in the first church their leadership is codified into the Old Testament writings and Old Testament Saints are able to look at the apostles and weigh what they
 
-when they arrived they went into the Jewish synagogue now this is again this is going to be a place where the Hebrew scriptures are plainly read are plainly understood this was Paul's habit everywhere he went he would
+are claiming and weigh what they are saying with scripture consistency across Revelation across the leadership structure of the church across even to the authority structure of the Apostles if the apostles were preaching a different God if the apostles were preaching a different message if the apostles were teaching about a messiah
 
-go and start in the synagogue first why not just because you're starting at a similar base but because Old Testament Saints are there truly saved individuals who have yet to hear about
+that is not consistently fulfilled from the Old Testament scriptures then we have a massive problem on our hands the scriptures are in charge the Old Testament prophets had a leadership role in the First Apostolic church and that is that what God had said before is going to be consistent with God saying things
 
-the coming of the Messiah and so he goes to these places and he tells them all about this and let's let's learn about these look at verse 11 in Acts chapter 17 now these Jews were no more noble than those
+now and the outcome of that is that the Old Testament Saints in the U in the synagogue and Berea believed and it says there not a few Greek women of high standing as well as men a remarkable story that really emphasizes for us this point that the scriptures play a central role in the
 
-in thessalonica they received the word with all eagerness Examining the Scriptures Daily to see if these things were so notice one of the things that Paul does not do he does not just go in and say Here's my Apostolic Authority end of story
+leadership of the early church these things we usually will talk about the leadership in the first church and start with Apostles we'll start with offices but I would argue that we are actually missing a massive piece of the puzzle and it actually confuses us significantly when we come to discuss
 
-it doesn't matter what you see in Scripture it doesn't matter what your personal interpretation is or any of that stuff he doesn't say that go and see that these things are consistent the people in Berea these are not Elders
+the current offices of the church which we will talk about in a little bit but before we even start to the apostles we have to deal with the fact that the Old Testament prophets the Hebrew scriptures played a central role also in the management of the first church it was in
 
-this is not an established church this is a synag ogue these are Old Testament Saints what were they doing they were examining the Hebrew scriptures for consistency with the apostles message they were Examining the Scriptures Daily to see
+confirming the significant consistency that is existing between the apostles Jesus and the Old Testament prophets the same God of Israel is the same God and father of our Lord Jesus Christ this is no new message this is a new chapter of the same message okay
 
-if these things were so many of them therefore believed and this becomes a central aspect of the leadership of the Old Testament prophets in the first church their leadership is codified into the Old Testament writings
+so let's go on to the first of the offices the apostles now believe it or not this is actually kind of a dicey term because Apostles is used specifically and technically of the original 12 obviously with Judas scariot being replaced by Mias in chapter one of the book of Acts
 
-and Old Testament Saints are able to look at the apostles and weigh what they are claiming and weigh what they are saying with scripture consistency across Revelation across the leadership structure of the church across even to the authority structure
+and also Paul as he calls himself an apostle born out of turn these 13 men are in the technical sense the only Apostles period there are others like Barnabas Silas and Timothy who are referred to as Apostles in a non technical sense the difficulty lies in the original Greek for Apostle is just
 
-of the Apostles if the apostles were preaching a different God if the apostles were preaching a different message if the apostles were teaching about a messiah that is not consistently fulfilled from the
+meaning one who is sent and the apostles sent people and then called them the ones we sent the sent ones it doesn't mean that they are creating new Apostles in the authoritative Jesus commissioning type sense
 
-Old Testament scriptures then we have a massive problem on our hands the scriptures are in charge the Old Testament prophets had a leadership role in the First Apostolic church and that is that what God had said before is going to
+but it does mean that you have to be very careful in looking at this terminology with regards to those like Barnabas and Silas and Timothy and others that is not specifically denoting them as Apostles I even refrained from saying capital A as the office of apostle rather than one who is Apostle
 
-be consistent with God saying things now and the outcome of that is that the Old Testament Saints in the U in the synagogue and Berea believed and it says there not a few Greek women of high standing
+one who is sent out which is all apostas really means with this so it does it is used in the technical sense and in the non-technical sense in the New Testament and there's got to be really clear about that we are talking about 13 Apostles the original 12 plus one that's Paul and
 
-as well as men a remarkable story that really emphasizes for us this point that the scriptures play a central role in the leadership of the early church these things we usually will talk about the leadership in the
+then one of the characteristics of the Apostles that I'll simply point out only because there's other offices that are specifically donated is different than this one is males only they have a qualification it they are chosen by Christ directly right Paul on the road to Damascus obviously also the original 12 and with the
 
-first church and start with Apostles we'll start with offices but I would argue that we are actually missing a massive piece of the puzzle and it actually confuses us ignificantly when we come to discuss the current offices of
+loss of Judas es scariot on purpose as Jesus says in John 17 and the maintaining of the other 11 and then maias is a chosen one out of a group who have always been with Jesus himself since the very beginning
 
-the church which we will talk about in a little bit but before we even start to the apostles we have to deal with the fact that the Old Testament prophets the Hebrew scriptures played a central role
+so Mias was witness to that you can see even the testimony of that in Acts chapter 1 we see that this is the original way of it you can see one of the crowning references to the different offices in the early church and that's going to
 
-also in the management of the first church it was in confirming the significant consistency that is existing between the apostles Jesus and the Old Testament prophets the same God of Israel is the same God and father of our Lord Jesus Christ this is
+kind of be a Headwater if you will and that's Ephesians chapter 4:1 Ephesians chapter 4:1 actually talks about the various offices of the early church and that is this of the first church excuse me I really wanted to know the Apostolic Church from that which came after it because they're
 
-no new message this is a new chapter of the same message okay so let's go on to the first of the offices the apostles now believe it or not this is actually a dicey term
+actually quite different he says in Ephesians chap 4: 11 that Christ gave to the church Apostles prophets evangelists Shepherds and teachers those are five different offices spelled out there it's not Shepherd teachers it's Shepherds and teachers you'll see why in just a minute and the very first one there is apostles
 
-because Apostles is used specifically and technically of the original 12 obviously with Judas scariot being replaced by Mias in chapter one of the book of Acts and also Paul as he calls himself an apostle born out of turn these 13
+he gave the apostles to the church they had the same ultimate goal as the prophets the evangelists the Shepherds meaning the elders and the teachers which is actually a different office in the first church
 
-men are in the technical sense the only Apostles period there are others like Barnabas Silas and Timothy who are ferred to as Apostles in a non technical sense the difficulty lies in the original Greek for Apostle is just meaning one who is sent
+but not in the post-apostolic church we'll get there all of those five offices Express out the responsibility to equip the Saints for the work of the ministry that whole passage in Ephesians 4: 11-15 says that there is a Unity for the church that is devoted to the leaders of the church we
 
-and the apostles ent people and then called them the ones we sent the sent ones it doesn't mean that they are creating new Apostles in the authoritative Jesus commissioning type sense but it does mean that you have to be very careful in looking
+are to equip the Saints for the work of the ministry that they may attain unto the unity of Christ right and so the apostles have this as their as one of their ultimate goals
 
-at his terminology with regards to those like Barnabas and Silas and Timothy and others that is not specifically denoting them as Apostles I I even refrained from saying capital A as the office of apostle rather than one
+so to the prophets so to the evangelists so to the elders and so to the
 
-who is Apostle one who is sent out which is all apostas really means with this so it does it is used in the technical sense and in the non-technical sense in the New Testament
+teachers now if you look at that list you'd be probably a little set back if you're in any church today because you look at that and go well we don't have five offices like that yeah I know that's why we're going to pull that apart right here
 
-and there's got to be really clear about hat we are talking about 13 Apostles the original 12 plus one that's Paul and then one of the characteristics of the Apostles that I'll simply point out only
+so as we go from Apostles we move on to something that hardly anyone ever talks about and that is New Testament prophets there is a significant office in the first church called New Testament prophets the prophets of the New Testament the prophets of the first generation of the church was a temporary office
 
-because there's other offices that are specifically donated is different than this one is males only they have a qualification it they are chosen by Christ directly right Paul on the road to Damascus obviously also the original 12
+now when I say temporary I don't mean it just came up as a little thing at the beginning of the church I mean temporary in that it came to an end why do I say that I'll show you why it is a continuation of the Old Testament prophets that winds down after the New
 
-and with the loss of Judas es scariot on purpose as Jesus says in John 17 and the maintaining of the other 11 and then maias is a chosen one out of a group who have always been
+Testament is written that is my suggestion here it's a continuation of the Old Testament prophets that continues through with John the Baptist and you find multiple instances of New Testament prophets and several commands about the responsibilities and their exact purpose some of their responsibilities Etc and I really wanted
 
-with Jesus himself since the very beginning so Mias was witness to that you can see even the testimony of that in Acts chapter 1 we see that this is the original way of it you can see one of the crowning references to the
+to spend a little bit more time with New Testament prophets because I imagine it's something that not a lot of people spend time on certainly something that I grew up and never really understood when I passed over a reference to it what in the world I was reading
 
-different offices in the early church and that's going to be a a Headwater and that's Ephesians chapter 4:1 Ephesians chapter 4:1 actually talks about the various offices of the arly church and that is this of the
+so I want to introduce the concept to this first of all that new testament prophets are an extension of the Old Testament prophetic office just as Moses was a prophet he was also a leader as well just as Elijah was an oral prophet and Isaiah was a written
 
-first church excuse me I really wanted to know the Apostolic Church from that which came after it because they're actually quite different he says in Ephesians chap 4: 11 that Christ gave to the church Apostles prophets evangelists Shepherds
+prophet and you have Jeremiah as well Ezekiel
 
-and teachers those are five different offices spelled out there it's not Shepherd teachers it's Shepherds and teachers you'll see why in just a minute and the very first one there is apostles he gave the apostles to the church
+Daniel excuse me you have all of these things together and then in the New Testament you have John the Baptist as Jesus himself refers to him as a prophet and
 
-they had the same ultimate goal as the prophets the evangelists the Shepherds meaning the elders and the teachers which is actually a different office in the first church but not in the post-apostolic church we'll get here all of those five
+then we also then have New Testament prophets rising in the book of Acts and you see references to them especially hugely in First Corinthians we'll get there as well this is a very unique office in the first church and it is mentioned in a multiplicity of areas and one of the
 
-offices Express out the responsibility to equip the Saints for the work of the ministry that whole passage in Ephesians 4: 11-15 says that here is a Unity for the church that is devoted to the leaders of the church we are to equip the
+things that I want to see want you to see the overarching realm of this and the role of all prophets because again in the first church you do not have this harsh line between New Testament and Old Testament prophets the New Testament hasn't been written yet
 
-Saints for the work of the ministry that they may attain unto the unity of Christ right and so the apostles have this as their as one of their ultimate goals so to the prophets o to the evangelists
+so I want you to see in Acts 10: 43 settle your minds in this straight away in there we realize that regarding to Christ all the prophets bear witness that everyone who believes in Him receives forgiveness of sins through his name we are sitting at a time where we
 
-so to the elders teachers now if you look at that list you'd be probably a little set back if you're in any church today because you look at that and go well we don't have five offices like that
+can draw lines between Old Testament and New Testament prophets but they weren't in Acts chapter 10 all the prophets that God has sent bear witness that everyone who believes in Jesus receives forgiveness of sins through his name that includes everyone from Moses to Isaiah to Malachi to John the Baptist and to
 
-yeah I know that's why we're going to pull that apart right here so as we go from Apostles we move on to something that hardly anyone ever talks about and that is New Testament prophets there is a significant office in the
+the New Testament prophets agabus and the daughters of Philip the Evangelist and the other prophets especially the ones that are mentioned in 1 Corinthians and the ones that dwelt in other places that are never referenced this is really significant because it really shows us that there is consistency across the
 
-first church called New Testament prophets the prophets of the New Testament the prophets of the first generation of the church was a temporary office now when I say temporary I don't mean it just came up as a little
+board John the Baptist made straight the way of the Lord in the New Testament people are pointing other ones to Christ himself and especially to the authority of the Apostles that Christ has sent it's it's one of these things that I think gets passed over really quick because we automatically read in
 
-thing at the beginning of the church temporary in that it came to an end why do I say that I'll show you why it is a continuation of the Old Testament prophets that winds down after the New Testament is written that is my
+the New Testament all the prophets bear witness and we instantly go back to the old testament which we should but we should also include in the New Testament prophets it was their go goal as well to Bear witness that everyone who believes in Jesus Christ receives forgiveness of sins through his
 
-suggestion here it's a continuation of the Old Testament prophets that continues through with John the Baptist and you find multiple instances of New Testament prophets and several commands about the responsibilities and their exact purpose some of their esponsibilities Etc
+name that is not to say that they did not have specific prophetic roles as well the Old Testament prophets and the New Testament prophets are just as varied as each other Old Testament prophets were very different than each other they all had different roles some of them had this role some of them had
 
-and I really wanted to spend a little bit more time with New Testament prophets because I imagine it's something that not a lot of people spend time on certainly something that I grew up and never really understood
+that one of them has to depict his entire message by his life the other one gets called to visions of Heaven one gets picked up by his hair and Drug around the world and another one is Raising people from the dead it the Old Testament prophets were quite varied in their specific Ministry
 
-when I passed over a reference to it what in the world I was reading
+so were the New Testament prophets but they all bear witness about Christ and this is this is one of those overarching aspects of actually all of the office of the New Testament and I would argue all of the offices of the old Prophet priest and King all of them are focusing
 
+into Christ that is the whole point he is the central focus of all of scripture and revelatory history and so when we look at the New Testament prophets we cannot miss that's one of these things as well
 
-## So I Want You
+so let's look at some of these references regarding prophets because I have a lot of them we're going to look at some of the main ones here there's a couple of others that I'm I'm just going to pass over for use of time
 
-so I want to introduce the concept to this first of all that new testament prophets are an extension of the Old Testament prophetic office just as Moses was a prophet he was
+but continue on you have for instance in Acts 11:27 the very next chapter that there was a group of prophets that came down from Jerusalem into Antioch now we're going to talk about the church in Antioch we're going to spend a whole night on the on the city of Antioch because it's
 
-also a leader as well just as Elijah was an oral prophet and Isaiah was a written prophet and you have Jeremiah as well Ezekiel Daniel excuse me you have all of these things together
+so Central to the text of the book of Acts but just to see here that prophets were being commissioned and sent out of Jerusalem to Antioch now how they were commissioned or whatnot maybe that's too hard of a terminology prophets were leaving Jerusalem and going to Antioch this is kind of this ongoing
 
-and then in the New Testament you have John the Baptist as Jesus himself refers to him as a prophet and then we also then have New Testament prophets rising in the book of Acts
+presentation of the of the witness in the book of Acts that everything starts in Jerusalem and it continues out from there because Jerusalem is at this point still the center of the Apostolic Church Antioch becomes a very significant Hub of this as well
 
-and you see references to them especially hugely in First Corinthians we'll get here as well this is a very unique office in the first church and it is mentioned in a multiplicity of areas
+but at this point we are still dealing with Jerusalem being the center of this you can skip forward another chapter and a half to Acts chapter 13:1 saying that
 
-and one of the things that I want to see want you to see the overarching realm of this and the role of all prophets because again the first church you do not have this harsh line between New Testament
+now that there were in the Church of Antioch prophets and teachers there's that other there's that other one there Barnabas Simeon who was called Niger L Lucius of sirene Manan a lifelong friend of Herod the tetrarch and Saul
 
-and Old Testament prophets the New Testament hasn't been written yet
+now this is after Saul's conversion and he immediately set up as one of the teachers there he is nowhere else listed as one of the prophets but he is listed as one of the teachers
 
+so that is something that comes off to us quite directly we have multiple people here that are fulfilling these roles of these multiplicity of roles and leadership in the early church again continue on in chapter 19:6 you have one of these references we'll just see it as
 
-## Acts 13
+passing that the Holy Spirit goes out with this I don't want to say it rolling out but I don't really know of this grad ual Revelation regarding the Holy Spirit
 
-so I want you to see in Acts 10: 43 settle your minds in this traight away in there we realize that regarding to Christ all the prophets bear witness that everyone who believes in Him receives forgiveness of sins through his name we are
+but you can see that story in the book in the beginning of the book of Acts verse Chapter 19 Verse six saying when Paul laid his hands on them meaning this group of people who only knew of the baptism of John the Baptist he says when Paul had
 
-sitting at a time where we can draw lines between Old Testament and New Testament prophets but they weren't in Acts chapter 10 all the prophets that God has sent bear witness that everyone who believes in Jesus receives forgiveness of sins
+laid his hands on them the Holy Spirit came on them and they began speaking in tongues and prophesying these types of things again you may be forgiven to read quickly and think that there's no specific role here I simply want to point out that just because somebody's prophesying does not necessarily mean
 
-through his name that includes everyone from Moses to Isaiah to Malachi to John the Baptist and to the New Testament prophets agabus and the daughters of Philip the Evangelist and the other prophets especially the ones that
+that they fulfill a permanent responsibility of profit but there it doesn't necessarily mean that but it certainly could mean that and this is one of those aspects here that we will start to see couple other references here last one in the book of Acts is in chapter 29 21: 9-10 and
 
-are mentioned in 1 Corinthians and the ones that dwelt in other places that are never referenced this is really significant because it really shows us that there is consistency across the board John the Baptist made straight the way of the Lord in the
+this is regarding Philip the Evangelist who was one of the first deacons his four daughters all of them prophesied and in the very same text the very next verse while we were staying for many days a prophet named agabus came down from Judea again
 
-New Testament people are pointing other ones to Christ himself and especially to the authority of the Apostles that Christ has sent it's it's one of these things that I think gets passed over really quick
+so now you have four daughters who are again all sisters of one another four daughters of Philip the Evangelist and then you have the prophet agabus who comes down from Judea and we start to see this mixing the different roles and agabus gives this whole depiction of what's going to
 
-because we automatically read in the New Testament all the prophets bear witness and we instantly go back to the old testament which we should but we should also include in the New Testament prophets it was their go goal
+happen to Paul if he's going to go in he's going to be arrested he gets his hands tied and all this kind of stuff really Old Testament sounding depictions of what's going to happen in the future and that gives one of the primary roles immediate future telling is one of the
 
-as well to Bear witness that everyone who believes in Jesus Christ receives forgiveness of sins through his name that is not to say that they did not have specific prophetic roles as well the Old Testament prophets
+roles of the New Testament prophets why they're a continuation of the Old Testament prophetic office but I want to really pull us out of just that as the expectation they aren't just talking about the future they have a whole another Bevy of responsibilities in the church that thankfully we have First
 
-and the New Testament prophets are just as varied as each other Old Testament prophets were very different than each other they all had different roles some of them had this role some of them had that one of them has to depict his entire
+Corinthians to tell us about otherwise we would be left really asking a lot of questions like what in the world is their main roles in the church other than just talking about the future and bearing witness to Jesus Christ we actually have a lot more that are
 
-message by his life the other one gets called to visions of Heaven one gets picked up by his hair and Drug around the world and another one is Raising people from the dead it the Old Testament prophets were
+revealed to us and I want you to see them in 1 Corinthians specifically in chapter 11 and chapter 14 in chapter 11 we have verses four and five saying every man who prays or prophesies with his head uncovered dishonors his head
 
-quite varied in their specific Ministry so were the New Testament prophets but they all bear witness about Christ and this is this is one of those overarching aspects of actually all of the office of the New Testament
+but every wife who prays or prophesies with her head uncovered dishonors her head since it is the same as if her head were shaven now I'm not going to get into head coverings and things like this that's not what we're here for only to say that the same thing that we just saw
 
-and I would argue all of the offices of the old Prophet priest and King all of them are focusing into Christ that is the whole point he is the central focus of all of scripture
+## Biblical Framework
 
-and revelatory history and so when we look at the New Testament prophets we cannot miss that's one of these things as well so let's look at some of these references regarding prophets
+in Acts chapter 21 both men and women are a part of this leadership structure prophets could be made up of either men or women in the New Testament ERA this is a fascinating thing because one we are told that explicitly in Joel chapter 2 it is quoted by Paul in Acts
 
-because I have a lot of them we're going to look at some of the main ones here there's a couple of others that I'm I'm just going to pass over for use of time but continue on you have for instance in Acts 11:27
+chapter 2 on the day of Pentecost that this is going to be something that goes beyond this kind of this expectation of just your men's servants but also on your female servants as well there's there's a specific way in which the spirit at the beginning here is going to work and
 
-the very next chapter that there was a group of prophets that came down from Jerusalem into Antioch now we're going to talk about the church in Antioch we're going to spend a whole night on the on the city of Antioch
+so what do we have we have not only Philip the angelist daughters but we also have here in 1 Corinthians chap 11 you actually have a whole bunch of women who are prophesying in fact
 
-because it's so Central to the text of the book of Acts but just o see here that prophets were being commissioned and sent out of Jerusalem to Antioch now how they were commissioned or whatnot maybe
+so many men and women were prophesying in the church in Corinth that Paul just basically shuts everyone down and says look everyone stopped talking everyone stopped prophesying and one at a time and he even had to shut down all the women in chapter 14 and just say okay no
 
-that's too hard of a terminology prophets were leaving Jerusalem and going to Antioch this is this ongoing presentation of the of the witness in the book of Acts that everything starts in Jerusalem
+nobody speak over here at all one man at a time one man at a time one other otherwise we have chaos right and so you see that bear out as well in 1 Corinthians 14 we start to see this expression here
 
-and it continues out from there because Jerusalem is at this point still the center of the Apostolic Church Antioch becomes a very significant Hub of this as well but at this point we are still dealing with Jerusalem being the center of
+now I'm not going to talk about all the speaking in tongues and everything like that because I'm not here for that right now but I do want you to see that there is something specific to the gifting of the prophets to the New Testament we know it's an office in the original in the
 
-this you can skip forward another chapter and a half to Acts chapter 13:1 saying that now that there were in the Church of Antioch prophets and teachers there's that other there's that other one there Barnabas Simeon who was called
+original church and we also know that it died away soon after the New Testament was written I want you to see why that is in 1 Corinthians 14 we start in verse one pursue love and earnestly desire the spiritual gifts especially that you may prophesy for one who speaks in a tongue
 
-Niger L ucius of sirene Manan a lifelong friend of Herod the tetrarch and Saul now this after Saul's conversion and he immediately set up as one of the teachers there he is nowhere else listed as one of the prophets
+speaks not to men but to God for no one understands him for he utters the mysteries of the spirit on the other hand the one who prophesies speaks to people
 
-but he is listed as one of the teachers so that is omething that comes off to us quite directly we have multiple people here that are fulfilling these roles of these multiplicity of of roles
+now we see the purpose for their up building encouragement and consolation the one who speaks in a tongue builds up himself but the one who prophesies builds up the church here is one of the reasons why prophesying is more significant and being a new testament Prophet here at the tail end
 
-and leadership in the early church again continue on in chapter 19:6 you have one of these references we'll just see it as passing that the Holy Spirit goes out with this I don't want to say it rolling out
+of the Old Testament prophets if you will just the prophets of God why that is more significant than speaking in tongues speaking in tongues by the way is a remarkable thing we saw it in Acts chapter 2 and as it Carries On fascinating stuff again topic for another day excuse me
 
-but I don't really know of this grad ual Revelation regarding the Holy Spirit but you can see that story in the book in the beginning of the book of Acts verse Chapter 19 Verse six saying
+but here prophesying is seen as something much greater why because it is there for the edification of the church just like the other original first church offices it is there to up build to edify to encourage and to console specifically encouragement
 
-when Paul laid his hands on them meaning this group of people who only knew of the baptism of John the Baptist he says when Paul had laid his hands on them the Holy Spirit came on them
+now this isn't just through foreshadowing or telling the future the proph consistently call people to submission to the scriptures the word of God this is what the Lord says that's what true prophets do thus says the Lord because the Lord has said that and
 
-and they began speaking in tongues and prophesying these types of things again you may be forgiven to read quickly and think that there's no specific role here I simply want to point out that just because somebody's prophesying does not necessarily mean that they
+so their focus on the word of God is going to be Central to their entire Ministry and specifically to this the scriptures are able to encourage Us in these
 
-fulfill a permanent responsibility of profit but there it doesn't necessarily mean that but it certainly could mean that and this is one of those aspects here that we will start to see couple other eferences here last one in the book of
+things and the New Testament prophets specifically had this role of encouragement we actually see it multiplied in reference in the book of First Corinthians they have this responsibility of consolation and I would argue that whatever oral things God was handing down through these prophets that we don't fully have
 
-Acts is in chapter 29 21: 9-10 and this is regarding Philip the Evangelist who was one of the first deacons his four daughters all of them prophesied and in the very same text the very
+Testament to though we see the references to it we see agabus obviously having been given a message of God that is not recorded for us when that was given we just have him coming and displaying something we just have him coming and telling Paul the outcome of these things
 
-next verse while we were staying for many days a prophet named agabus came down from Judea again so now you have four daughters who are again all sisters of one another four daughters of Philip the Evangelist
+but the normative role of the New Testament prophets was for the edification of the church the same as the apostles the same as the evangelists and the pastors and the teachers it was to edify the church
 
-and then you have the prophet agabus who comes down from Judea nd we start to see this mixing the different roles and agabus gives this whole depiction of what's going to happen to Paul if he's going to go in he's going to be
+so that they would do the work of the ministry it was to equip the church their up building their encouragement their
 
-arrested he gets his hands tied and all this stuff really Old Testament sounding depictions of what's going to happen in the future and that gives one of the primary roles immediate future telling is one of the
+consolation this is why he says in verse 5 here in 1 Corinthians 14 now I want you all to speak in tongues but even more to prophesy the one who prophesies is greater than the one who speaks in tongues unless someone interprets
 
-roles of the New Testament prophets why they're a continuation of the Old Testament prophetic office but I want to really pull us out of just that as the xpectation they aren't just talking about the future they have a whole another Bevy of responsibilities
+so that the church may be built up and again you have every spiritual gift every spiritual office every role in the church given by the holy spirit is meant to build up the
 
-in the church that thankfully we have First Corinthians to tell us about otherwise we would be left really asking a lot of questions like what in the world is their main roles in the church other than just talking about the future
+church we can see later in the same chapter in verse 25 just look a little bit further on there with the prophets the secrets of the hearts are disclosed especially if unbelievers and here he says the secrets of his heart of the unbelievers heart is disclosed and
 
-and bearing witness to Jesus Christ we actually have a lot more that are vealed to us and I want you to see them in 1 Corinthians specifically in chapter 11 and chapter 14 in chapter 11 we have verses four
+so falling on his face he will worship God and declare that God is really among you this includes one of the responsibilities of all prophets from Moses onwards and that is a convicting and a calling to
 
-and five saying every man who prays or prophesies with his head uncovered ishonors his head but every wife who prays or prophesies with her head uncovered dishonors her head since it is the same as if her head were shaven
+repentance convicting and calling them to account these types of things is the main role of prophets Old Testament and New Testament alike that is here is what will happen here is what God has promised therefore repent and follow him this is the same thing that John the
 
-now I'm not going to get into head coverings and things like this that's not what we're here for only to say that the same thing that we just saw in Acts chapter 21 both men
+Baptist pointed out it's the same thing he preached repent for the Kingdom of Heaven is at hand is the same message that Jesus gave John the Baptist speaks to the Pharisees and saying you do not have fruit in keeping with repentance Jesus commands repent and believe in the
 
-and women are a part of this leadership structure prophets could be made up of either men or women in the New Testament ERA this is a fascinating thing because one we are told that explicitly in Joel chapter 2 it is quoted by
+gospel for the Kingdom of Heaven is at
 
-Paul in Acts chapter 2 on the day of Pentecost that this is going to be something that goes beyond this expectation of just your men's ervants but also on your female servants as well there's there's a specific way in which
+hand he reiterates in verse 31 that all of them are to take turns prophesying so that all may learn and all may be encouraged again reiterating that encouragement learning consolation upbuilding convicting repentance revealing the secrets of unbelievers hearts these are the primary roles of the New Testament prophets also future
 
-the spirit at the beginning here is going to work and so what do we have we have not only Philip the angelist daughters but we also have here in 1 Corinthians chap 11 you actually have a whole
+telling is part of this when the Lord says something about the future the prophets pass it along that's what they do and the Lord doesn't say something about the future they do speak to people about the ramifications of their current path if you keep going down this path
 
-bunch of women who are prophesying in fact so many men and women were prophesying in the church in Corinth that Paul just basically shuts everyone down and says look everyone stopped talking everyone stopped prophesying
+you will face the Judgment of God the Judgment of God is Promised in the Holy scriptures but I want to give you something that I have never seen argued and maybe that is because I have just been blind to it or whatnot
 
-and one at a time and he ven had to shut down all the women in chapter 14 and just say okay no body speak over here at all one man at a time one man at a time one other wise we have chaos
+but to my mind one of the most significant roles of the New Testament prophets is found here at the tail end of 1 Corinthians chapter
 
-right and so you see that bear out as well in 1 Corinthians 14 we start to see this expression here now I'm not going to talk about all the speaking in tongues
+14 1 Corinthians chapter 14 ends at verse 40 but I want you to back up a couple of
 
-and everything like that because I'm not here for that right now but I do want you to see that there is something specific to the gifting of the prophets to the New Testament we know it's an office in the
+saying here from verse 36 to verse 39 was it from you that the word of God came or are you the only ones it has reached if anyone thinks he is a prophet or spiritual he should acknowledge that the things I am writing to you are a
 
-original in the original church and we also know that it died away soon after the New Testament was written I want you to see why that is in 1 Corinthians 14 we start in verse one pursue love
+command of the Lord if anyone does not recognize this he is not recognized so my brothers earnestly desire to prophesy and do not forbid speaking in tongues but all things should be done decently and in order if you missed it there will be consistency between true prophets and the true Apostolic
 
-and earnestly desire the spiritual gifts especially that you may prophesy for one who speaks in a tongue speaks not to men but to God for no one understands him for he utters the mysteries of the spirit on the other hand the one who
+writings I am going to argue from these verses that one of the most significant and long lasting effects of the New Testament prophets role is in recognizing the authority of the New Testament documents as they were being written there's going to be consistency Paul says between true prophets and the
 
-prophesies speaks to people now we see the purpose for their up building encouragement and consolation the one who speaks in a tongue builds up himself but the one who prophesies builds up the church here is one of the reasons
+writings that Paul is literally Penning to them right now before the ink is dry he is telling them that there's going to be those who recognize that what he is writing to them is inspired why because God is always consistent with his own Revelation the same God the same Spirit
 
-why prophesying is more significant and being a new testament Prophet here at the tail end of the Old Testament prophets just the prophets of God why that is more significant than speaking in tongues speaking in tongues by the way is a remarkable thing
+of the prophets is the Same Spirit who is inspiring the very pen of Paul at that moment while he was writing 1 Corinthians CH 14 verse 37 if he thinks he's a PO a prophet or spiritual you should acknowledge that the things I am writing to you are a
 
-we saw it in Acts chapter 2 and as it Carries On fascinating stuff again topic for another day excuse me but here prophesying is een as something much greater why because it is there for the edification of the church just like the other
+command of the Lord this is not just Paul writing and true prophets in the New Testament will recognize this means that we actually have testimony here from the apostles own hand that the New Testament prophets had at least some role in recognizing the authority of the New Testament documents for the
 
-original first church offices it is there to up build to edify to encourage and to console specifically encouragement now this isn't just hrough foreshadowing or telling the future the proph consistently call people to submission to the scriptures the word of God this
+church what the extent of that role is and how broad it was we can only guess but we do have this clear reference to it right here meaning that there will be consistency between true prophets in the New Testament era and true Apostolic writings which means quite a lot for the
 
-is what the Lord says that's what true prophets do thus ays the Lord because the Lord has said that and so their focus on the word of God is going to be Central to their entire Ministry
+identification of the Canon early on by the way which is one of the reasons why the vast majority of the New Testament is never held in any contention between anyone who is not obviously recognized heretic who disagrees with the Old Testament like marcian for instance
 
-and specifically to this the scriptures are able to encourage Us things and the New Testament prophets pecifically had this role of encouragement we actually see it multiplied in reference in the book of First Corinthians they have this responsibility of consolation
+but if you hold to the Old Testament you're going to see the consistency of the New Testament this is I would argue one of the clearest expressions of the fact that there was a role of leadership in the early church for identifying the inspiration of apostolic writings because here's the fun thing right Paul
 
-and I would argue that whatever oral things God was handing down through these prophets that we don't fully have Testament to though we see the references to it we see agabus obviously having been given a message of God that is not recorded for
+actually did not just write two letters to the church in Corinth but actually wrote four two of them were inspired two of them weren't how did the early church know I argue one of the ways that they knew was not just merely recognizing their Authority there was an office in
 
-us when that was given we just have him coming and isplaying something we just have him coming and telling Paul the outcome of these things
+the New Testament Church specifically here mentioned in the church in Corinth that recognized which ones were commands of the Lord now I'd like to put that one out there I'd certainly love some thoughts on it
 
-but the normative role of the New Testament prophets was for the dification of the church the same as the apostles the same as the evangelists and the pastors and the teachers it was to edify the church
+but that one's pretty clear here with regards to this because again what does he say if anyone does not recognize this he is not recognized meaning by the Lord if there is not consistency between the person claiming to be a prophet and the inspiration of God in his scriptures writings specifically here with this
 
-so that they would do the work of the ministry it was to equip the church their up building their encouragement heir consolation this is why he says in verse 5 here in 1 Corinthians 14 now I want you all to speak in tongues
+writing of Paul he is giving them a litmus test to understand which true prophets there are and their recognition of the inspiration of God's writings here is one of them means there's going to be consistency across the board and there's redundancy built in and this is the way God does almost everything in
 
-but even more to prophesy the one who prophesies is greater than the one who speaks in tongues unless someone interprets so that the church may be built up and again you have every spiritual gift every spiritual office every role in the church
+the New Testament era redundancy speaking of which as we continue on into the different off of the church as we were in Ephesians 4:1 we heard he gave Apostles and Prophets evangelist Shepherds elders and teachers are specifically mentioned as we already read in Acts 13:1 there were in the Church of Antioch prophets and
 
-given by the holy spirit is meant church we can see later in the same chapter in verse 25 just look a little bit further on there with the prophets the secrets of the hearts are disclosed especially
+teachers Saul is one of these originally now again Saul is also an apostle Saul is also a teacher multiple people fill multiple roles we've seen this before we'll see it with Peter with regards to calling himself an elder and we'll see it with Philip the Evangelist who was actually a deacon also
 
-if unbelievers and here he says the secrets of his heart of the unbelievers heart is disclosed and so falling on his face he will worship God and declare that God is really among you this includes one of the responsibilities of
+there's significant overlaps at times this is why there is there is a simplifying of this going forward I would argue but here we have in Acts 13 verse1 the reference that there are prophets and teachers and I would argue in accordance with Ephesians 4:11 this was one of the offices of the church
 
-all prophets from Moses onwards and that is a repentance convicting and calling them to account these these types of things is the main role of prophets Old Testament and New Testament alike that is here is what will happen here
+there are those who hold that Ephesians 4:11 is referring to four different offices Apostles prophets evangelists and Shepherd teachers I disagree the these are five clearly denoted it out Apostles prophets evangelists Elders teachers and the teachers here specifically are those who in the early church before the rise of the clarity
 
-is what God has promised therefore repent and follow him this is the same thing that John the Baptist pointed out it's the same thing he preached repent for the Kingdom of Heaven is at hand is the same message that Jesus gave John the
+that came afterwards during the time of the Apostles you had an over AB of things like prophets and teachers and evangelists and things like this things that are later all folded into the responsibility of the eldership
 
-Baptist speaks to the Pharisees and saying you do not have fruit in keeping with repentance Jesus commands repent and believe in the hand he reiterates in verse 31 that all of them are to take turns prophesying
+but I want you to see first of all what happens here you have teachers in Acts chap 13:1 you have them showing up as one of the offices originally given to the church in Ephesians 4:11 you also have 1 Timothy 2: 7 Saul again we had his list
 
-so that all may learn and all may be encouraged again reiterating that encouragement learning consolation upbuilding convicting repentance revealing the secrets of unbelievers hearts these are the primary roles of the New Testament prophets also future telling is part of this
+now he's Paul writing to Timothy we had him in the list of acts 131 and we have him referring to that in 1 Timothy 2:7 he says for this I was appointed a preacher and an apostle I am telling the truth I am not lying a teacher of
 
-when the Lord says something about the future the prophets pass it along that's what they do and the Lord doesn't say something about the future they do speak to people about the ramifications of their current path
+the Gentiles in faith and truth and there you have the exact same terminology a dcals this is something this would be an earliest Office of the church that is a teacher of those there
 
-if you keep going down this path you will face the Judgment of God the Judgment of God is Promised in the Holy scriptures but I want to give you something that I have never seen argued
+now again at the very beginning what is it that teach teachers do they're going to do something very similar to the prophets this is more redundancy built in what are they teaching they're teaching what Jesus said what are they sharing what is the gospel what is it that the apostles
 
-and maybe that is because I have just been blind to it or whatnot but to my mind one of the most significant roles of the New Testament prophets is found here at the tail end of 1 4 1 Corinthians chapter 14 ends
+are teaching what is it that the apostles are orally teaching before they're writing down the New Testament the this kind of role in fact you have here Paul before he was even called Paul back when he was Saul in the church he is one of the teachers he specifically is a teacher of the
 
-at verse 40 but I want you saying here from verse 36 to verse 39 was it from you that the word of God came or are you the only ones it has reached if anyone thinks he is a prophet or spiritual he should
+Gentiles in faith and Truth you have him refer to it again when he writes to Timothy once again in 2 Timothy chapter 1 verse 11 he says for which I was appointed a preacher and an apostle and
 
-acknowledge that he things I am writing to you are a command of the Lord if anyone does not recognize this he is not recognized so my brothers earnestly desire to prophesy and do not forbid speaking in tongues
+teacher he fulfills one of the roles very similar to that of what we would know as a pastor or an elder simply because we understand that these things were all Consolidated into something a little bit later on you'll see this in a second let's go on to the next one right
 
-but all things should be done decently and in order if you missed it here will be consistency between true prophets and the true Apostolic writings I am going to argue from these verses that one
+when we're in Ephesians 4:11 we have yet again another reference to this so when you open up Ephesians 4:11 you see it we've talked about it Apostles we've talked about the prophets
 
-of the most significant and long lasting effects of the New Testament prophets role is in recognizing the authority of the New Testament documents as they were being written there's going to be consistency Paul says between true prophets
+now evangelists what were the evangelists we don't have a whole lot of references to them by the way we only have a couple of them and that is this you have Acts CH 21:8 you have one of the original Seven deacons Phillip by name is called an evangelist Philip the
 
-and the writings that Paul is literally Penning to them right now before the ink is dry he is telling them that there's going to be those who recognize that what he is writing to them is inspired why
+Evangelist that he actually has this role as one of the leaders in the church as a deacon he also fulfills one of the offices or responsibility I don't know if you can really call them offices one of the responsibility of the evangelists the Holy Spirit specifically gave certain people these types of focuses
 
-because God is always consistent with his own Revelation the same God the same Spirit of the prophets is the Same Spirit who is inspiring the very pen of Paul at hat moment while he was writing 1 Corinthians CH 14 verse 37
+them Philip making this role to this demonstrates for us one of the focuses of the Evangelist and that is the sharing of the Gospel to everyone regardless of where they were regardless of their town he would travel constantly through these towns we see him after the salvation of
 
-if he thinks he's a PO a prophet or spiritual you should acknowledge that he things I am writing to you are a command of the Lord this is not just Paul writing and true prophets in the New Testament will recognize this means that
+the Ethiopian unic we see him finding his way to ashdod by the Holy Spirit basically just putting him there and then going along the Sea Coast all the way up to cesaria by the Sea and visiting every single town and sharing with them the good news of Jesus Christ
 
-we actually have testimony here from the apostles own hand that the New Testament prophets had at least some role in recognizing the authority of the New Testament documents for the church what the extent of that role is
+This is a fascinating thing and one that really shouldn't be lost on us that he was then setting up shop in Samaria because that was one of the goals of the early church was from Jerusalem to Judea to Samaria and
 
-and how broad it was we can only guess but we do have this clear reference to it right here meaning that there will be consistency between true prophets in the New Testament era
+then as a launching point to the uttermost parts of the world the gospel was going to go we see that it is not only an office in the early church as expressed in Ephesians 4:11 or at least a role a very distinct role in the church not only in
 
-and true Apostolic writings which means quite a lot for the identification of the Canon early on by the way which is one of the reasons why the vast majority of the New Testament is never held in any contention between anyone who is not
+the life of Philip the Evangelist we see it spelled out in Ephesians 4:11 they have the same goal again to equip the Saints for the work of the ministry the edification of the body of Christ is always the focus of these roles from Apostle all down I mentioned that this is one of
 
-obviously recognized heretic who disagrees with the Old Testament like marcian for instance but if you hold to the Old Testament you're going to see the consistency of the New Testament this is I would argue one of the clearest expressions of the
+those things kind of like teachers that gets folded into the elders later on and that's we'll see that in 2 Timothy 4: 5 just in case I forget to make mention of that later which I probably will forget this
 
-fact hat there was a role of leadership in the early church for identifying the inspiration of apostolic writings because here's the fun thing right Paul actually did not just write two letters to the church in Corinth
+so let's listen to it now second Timothy Chapter 4: 5 he speaks to a young Elder in the church in Ephesus named Timothy and he warns them of the fact that there will come along those who teach false things they want false teachers right instead of the teachers that Paul once
 
-but actually wrote four two of them were inspired two of them weren't how did the early church know I argue one of the ways that they knew was not just merely recognizing their Authority there was an office in the New Testament Church specifically
+was who he was designated a preacher an apostle and a teacher instead of paying attention to the true teachers they will atten pay attention to false teachers something that second Peter actually warns us just like there was false prophets there's in the age to come going to be false teachers
 
-here mentioned in the church in Corinth at recognized which ones were commands of the Lord now I'd like to put that one out here I'd certainly love some thoughts on it but that one's pretty clear here with regards to this
+something that we always have to be on the lookout for and judge them by Holy Scripture here we see an early Elder named Timothy a young Elder named Timothy being encouraged he says in 2 Timothy chap 4: 3-5 listen to this for the time is coming this is Paul
 
-because again what does he say if anyone does not recognize this he is not recognized meaning by the Lord if there is not consistency between the person claiming to be a prophet and the inspiration of God in his scriptures writings specifically here with
+speaking to Timothy when people will not endure sound teaching but having itching ears they will accumulate for themselves teachers to suit their own passions and will turn away from listening to the truth and wander off into myths as for you always be sober minded enduring suffering do the work of an evangelist
 
-this writing of Paul he is giving them a litmus test to understand which true prophets there are and their recognition of the inspiration of God's writings here is one of them means there's going to be consistency across the board
+and fulfill your ministry the work of an evangelist is something that gets rolled into at least in this instance if not in all instances specifically into the role of the Elders of the church
 
-and there's redundancy built in and this is the way God does almost everything in the New Testament era redundancy speaking of which as we continue on into the different off of the church as we were in Ephesians 4:1 we heard he gave Apostles
+now second Timothy is written very late in the apostolic era so we're not going to read it in the same sense as acts chap 218 or even Ephesians 4
 
-and Prophets evangelist Shepherds elders and teachers are specifically mentioned as we already read in
+but we will understand that Paul here is saying that one of the responsibilities of the New Testament eldership is going to be the work of the evangelists this is something that a transition is made later on I wanted to make sure I don't forget it and
 
+so I was referring to it there now having said that let's go back to this whole list now we have Apostles prophets New Testament prophets teachers evangelists and Pastor Elder Shepherds whatever you want to call them they are called all sorts of things they are used interchangeably on
 
-## 1 Timothy Chapter 3
+purpose because they have the most responsibilities of any other office in the New Testament except maybe Apostles the elders Shepherds if you will the pastors we're going to discuss the details about this here in just a second
 
-Acts 13:1 there were in the Church of Antioch prophets and teachers Saul is one of these originally now again Saul is also an apostle Saul is
+but specifically the Apostles and their delegates in the book of Acts are appointed by the apostles directly excuse me the apostles and their delegates made a habit of appointing Elders in every church one of the things I want you to see here there is always without exception a plurality of
 
-also a teacher multiple people fill multiple roles we've seen this before we'll see it with Peter with regards to calling himself an elder and we'll see it with Philip the Evangelist who was actually a deacon
+Elders always even in the Church of Jerusalem even when it is Prim arily led by James the brother of Jesus yes the brother of Jesus we're going to spend a whole night on that who took a leadership role in the Church of Jerusalem not even being an apostle himself the leadership there in the
 
-also there's significant overlaps at times this is why there is there is a simplifying of this going forward I would argue but here we have in Acts 13 verse1 the reference that there are prophets and teachers
+Church of Jerusalem is still among the Elders of the church in Jerusalem you can see that in Acts chap 21:8 that James and all the elders were present this structure actually comes straight out of Judaism and the apostles adapt it straight to the church the Elders of the people
 
-and I would argue in accordance with Ephesians 4:11 this was one of the offices of the church there are those who hold that Ephesians 4:11 is referring to four different offices Apostles prophets evangelists and Shepherd teachers I disagree the se These are five
+become the Elders of the church not that the same people I'm saying this kind of concept that there's not one person in charge of everything but the elders here are actually in charge of these things we do not have ever I want to Simply point out ever appointed by an apostle
 
-clearly denoted it out Apostles prophets evangelists Elders teachers and the teachers here specifically are those who in the early church before the rise of the clarity that came afterwards during the time of the Apostles you had an
+anywhere a single Bishop over a church that is something that comes up in the second century here in the scriptures here in the New Testament era here in the apostolic church and the post-apostolic church we do not have Bishops over a single City that's something that comes up in the second
 
-over AB of things like prophets and teachers and evangelists and things like this things that are later all folded into the responsibility of the eldership but I want you to see
+century here what we have is as acts chap 14 verse 23 says the apostles and their delegates were appointing Elders in every church when I say the delegates I do mean people like Titus for instance who was who was tasked by Paul personally to go to create and to settle
 
-first of all what happens here you have teachers in Acts chap 13:1 you have them showing up as one of the offices originally given to the church in Ephesians 4:11 you also have 1 Timothy 2: 7 Saul again we had his list
+out which towns which elders and set up Elders in every church that whole structure is always with redundancy built in this is something I'm going to argue here the eldership of the church was always intended for redundancy and correction that there would never be a singular person in charge of things without corrective
 
-now he's Paul writing to Timothy we had him in the list of acts 131 and we have him referring to that in 1 Timothy 2:7 he says for this I was appointed a preacher and an apostle I am telling the truth I am
+force that was true amongst the apostles who we saw in the disagreement between Paul and Peter where Peter was wrong there's always redundancy in these offices to self-correct this is the only way you can lead with fallible people including Apostles right we are all sinful we are all wrong on some level or another
 
-not lying a teacher of the Gentiles in faith and truth and there you have the exact same terminology a dcals this is something this would be an earliest Office of the church that is a teacher of those
+but if you have one person that's in charge of everyone else there's no one who can correct them was one of the reasons why conciliarism later on in church history comes up and tries to deal with popes and things like this because you're having all the authority be brought
 
-there now again at he very beginning what is it that teach ers do they're going to do something very similar to the prophets this is more redundancy built in what are they teaching they're teaching what Jesus said what are they sharing what is
+together into one person how who can possibly correct them when they go Haywire well this is why that entire structure is absent from the church and utterly unknown to the apostles the apostles always appointed multiple Elders in every Church even if there was multiple churches in the city there was always multiple Elders
 
-the gospel what is it that the apostles are teaching what is it that the apostles are orally teaching before they're writing down the New Testament he this role in fact you have here Paul before he was even called Paul back
+## Theological Significance
 
-when he was Saul in the church e is one of the teachers he specifically is a teacher of the you have him refer to it again when he writes to Timothy once again in 2 Timothy chapter 1 verse 11 he
+throughout there's also another one office that is the old of these ones that still continue on and that is the deacons not technically a leadership structure in the church
 
-says for which I was appointed a teacher he fulfills one of the roles very similar to that of what we would know as a pastor or an elder simply because we understand that these things were all Consolidated into something a little bit later
+but it is a service oriented thing they do have a specific responsibility and I will just mention in the first church before we ever get to the 1 Timothy chapter 3 qualifications we're going to leave that off until we get into the post-apostolic church here we're dealing
 
-on you'll see this in a second let's go on to the next one right when we're in Ephesians 4:11 we have yet again another reference to this so when you open up Ephesians 4:11 you see it we've talked about it
+with the time of the Apostles there was only three original qualifications and it's found in Acts chapter 6 there were to be men of good repute full of the spirit and full of wisdom that's it they were there to free the apostles up in the Practical management of the
 
-Apostles we've talked about the prophets now evangelists what were the vangelists we don't have a whole lot of references to them by the way we only have a couple of them and that is this you have Acts CH 21:8 you have one of
+church in Jerusalem and I want you to see the count of them was only seven for thousands of Christians so their role while it was while it was helpful and service oriented towards the church was very administrative not highly personal and it was there primarily to assist the apostles
 
-the original Seven deacons Phillip by name is called an evangelist Philip the Evangelist that he actually has this role as one of the leaders in the church as a deacon he also fulfills one of the offices or responsibility I don't know
+but this is one of those fascina things where all these other offices and roles have died away or have gotten Consolidated into the role of the eldership but the deacons consider continue on and led their lead their service to the church in very practical means even today the post-apostolic leaders
 
-if you can really call them offices one of the responsibility of the evangelists the Holy Spirit specifically gave them Philip making this role to this demonstrates for us one of the focuses of the Evangelist and that is the sharing of the Gospel to
+now here's where I want you to see this and why we laid some of the groundwork earlier for that of the prophets and the apostles
 
-everyone regardless of where they were regardless of their town he would travel constantly through these towns we see him after the the salvation of the Ethiopian unic we see him finding his way to ashdod by the Holy Spirit basically just putting him there
+in my world in the world of the reformed Baptists and things like this it is typically said that there are two offices of the church elders and deacons it is true there are two offices of the post-apostolic church those offices however are not the end of the story they weren't the beginning of the
 
-and then going along the Sea Coast all the way up to cesaria by the Sea and visiting every single town and sharing with them the good news of Jesus Christ This is a fascinating thing and one that really shouldn't be lost on us
+story either how much have we seen the apostles weren't the beginning of the story they were continuation the New Testament prophets weren't the beginning of the prophetic Ministry they were continuation of the Old Testament as
 
-that he was then setting up shop in Samaria because that was one of the goals of the arly church was from Jerusalem to Judea to Samaria and then as a launching point o the uttermost parts of the
+well all of these things are continuation because the Old Testament is directly a part of the New Testament Church it is their Scriptures it is the apostles are appealing the scriptures when they're on the day of Pentecost they're quoting scripture wherever they go They're constantly reminding that the prophets have talked about this Jesus
 
-world the gospel was going to go we see that it is not only an office in the early church as expressed in Ephesians 4:11 or at least a role a very distinct role in the church not only in the life of Philip the
+has fulfilled it now we preach it's kind of a remarkable thing that this gets turned over pretty quick just because there's two offices in the church now elders and deacons doesn't mean that's all the leadership that there is I would argue there's mo more than that the first of which is the same that
 
-Evangelist we see it spelled out in Ephesians 4:11 they have the same goal again to equip the Saints for the work of the ministry the dification of the body of Christ is always the focus of these roles from Apostle all down I mentioned
+the apostles had the Old Testament prophets meaning the Hebrew scriptures they are one of our sources of leadership the Old Testament prophets meaning all the writers of the Hebrew scriptures their writings the Hebrew scriptures are still directly authoritative to the church
 
-that this is one of those things like teachers that gets folded into the elders later on and that's we'll see that in 2 Timothy 4: 5 just in case I forget to make mention of that later which I probably will forget this
+now these must be interpreted properly it must be understood we are not Israel these things do not apply in the same way but the Old Testament scriptures are still our scriptures in fact they are 77% of our scriptures and they are enormously important to us not because we agree with them
 
-so let's listen to it now second Timothy Chapter 4: 5 he speaks to a young Elder in the church in Ephesus named Timothy and he warns them of the fact hat there will come along those who teach
+but because they are the revelation of God they are part of the story just because they're the last chapter before us doesn't mean that somehow it's not applicable they are applicable directly it doesn't mean that we moralize them they are our scriptures they are spoken by our God they are given to our
 
-false things they want false teachers right instead of the teachers that Paul once was who he was designated a preacher an apostle and a teacher instead of paying attention to the true teachers they will atten pay
+ancestors in the faith and they are our scriptures and so everything that applied earlier of the Old Testament prophets leadership for the apostles where the bereans were searching these things to see if the apostles were true we still do that today not just the leaders of the church not just pastors like myself all
 
-attention to false teachers omething that second Peter actually warns us just like there was false prophets there's in the age to come going to be false teachers omething that we always have to be on the lookout for
+Christians are to search the scriptures to see if these things are so test your leaders test your Bishops test your popes test everything by scripture test the
 
-and judge them by Holy Scripture here we see an early Elder named Timothy a young Elder named Timothy being encouraged he says in 2 Timothy chap 4: 3-5 listen to this for the time is coming this is Paul speaking to Timothy
+apostles because what you're going to find is that there is consistency between those who are true those who are true to the scriptures those who are true to the apostles and those who are true to the rest of the scriptures and
 
-when people will not endure sound teaching but having itching ears they will accumulate for themselves teachers to suit their own passions and will turn away from listening to the truth and wander off into myths as for you always be sober minded enduring suffering
+so the leadership of the church excuse me must include the Old Testament prophets in their writings the Hebrew scriptures but now in the post-apostolic era as the apostles began dying one of the things that they do is their Authority is codified in writings we are going to spend an entire
 
-do the work of an evangelist and fulfill your ministry the work of an evangelist is something that gets rolled into at least in this instance if not in all instances specifically into the role of the Elders of the church
+evening I already have it written because of something that I would love to talk about but we're not quite right there yet an entire evening entitled The Inevitable New Testament there is something expected the apostolic leadership is going to die away and
 
-now second Timothy is written very late in the apostolic era so we're not going to read it in the same sense as acts chap 218 or even Ephesians 4 but we will understand that Paul here is saying that one
+so we need something very similar to what the Old Testament prophets did they wrote these things down why because they were going to die Daniel himself has told about these things write these things down you're going to lie with your fathers to the apostles the same thing you're going to die and
 
-of the responsibilities of the New Testament eldership is going to be the work of the vangelists this is something that a transition is made later on I wanted to make sure I don't forget it and so I was referring to it there
+then you're going to have to write these things down and they do and while they're writing these things down the apostles are giving testimony and wait to the authenticity of the other writings you have Paul quoting from the Gospel of Luke in the early 60s calling it scripture compare lining it right up with
 
-now having said that let's go back to this whole list now we have Apostles prophets New Testament prophets teachers evangelists and Pastor Elder Shepherds whatever you want to call them they are called all sorts
+Deuteronomy right you have these types of references you have Peter referring to Paul's writings of scripture these types of things are still alive during the apostolic era there's redundancy between the apostles you have one of the roles of the New Testament prophets is an identify what is inspired and what is
 
-of things they are used purpose because they have the most responsibilities of any other office in the New Testament except maybe Apostles the elders Shepherds the pastors we're going to discuss the details about this here in just a second
+not these things are severely important to us and so in the post-apostolic church as the apostles are dying out you have a change over in the role of the Apostles As Leaders into the church and it is codified in the New Testament the same way the Old Testament prophets were codified in the Old
 
-but specifically the Apostles and their delegates in the book of Acts are appointed by the apostles directly excuse me the apostles and their delegates made a habit of appointing Elders in every church one of the things I want you to see here there
+Testament the apostles teachings are cified in the New Testament in fact we do not have a single syllable from the prophets from the apostles and from Jesus that does not find its home in scripture all of them come from the scriptures we have nothing outside of them that is authoritative on that level
 
-is always without exception a plurality of Elders always even in the Church of Jerusalem even when it is Prim arily led by James the brother of Jesus yes the brother of Jesus we're going to spend a whole night on that who took a
+at all it doesn't mean there's not authorities in addition to scripture that are secondary and Prim and tertiary and all that stuff scripture now in the post-apostolic era after the apostles die out is primary Authority for us why because everything else has to be weighed by it everyone else and the same
 
-leadership role in the Church of Jerusalem not even being an apostle himself the leadership there in the Church of Jerusalem is still among the Elders of the church in Jerusalem you can see that in Acts chap 21:8 that James
+way that the bereans search the scriptures to judge the teaching of the Apostles Christian it is on you to verify in the scriptures the ones that are teaching you I don't care who they are or what their claim to Authority structure is or anything else or how old their church is or anything
 
-and all the elders were present this structure actually comes straight out of Judaism and the apostles adapt it straight to the church the Elders of the people become the Elders of the church not that he same people I'm saying this concept that
+if it does not line up with and is consistent have its origin in scripture you got a problem you got a pretty big problem actually their writings the apostles writings the Greek New Testament are still directly authoritative in the church just like the Old Testament scriptures are we have the same Noble
 
-there's not one person in charge of everything but the elders here are actually in charge of these things we do not have ever I want to Simply point out ever appointed by an apostle anywhere a single
+task as the bereans to search the New Testament and now the Old Testament as well to see if the claims of our leaders are true or false are they consistent with the scriptures are they
 
-Bishop over a church that is something that comes up in the second century here in the scriptures here in the New Testament era here in the apostolic church and the post-apostolic church we do not have Bishops over a single City that's omething
+so much talk has had about Apostolic succession being attached to a special monarchical Bishop of a city like this bishop of this city or Bishop of that City that concept does not exist in the first century it does not exist in the second generation of the church or the
 
-that comes up in the second century here what we have is as acts chap 14 verse 23 says the apostles and their delegates were appointing Elders in every church when I say the delegates I do mean people like Titus for instance who was
+third when we talk about these things those are later things that crop up in some areas and tend towards that and take over everything by the end of the second century
 
-who was tasked by Paul personally to go to create and to settle out which towns which elders and set up Elders in every church that whole structure is always with redundancy built
+but that is not the original way it is set up and I would actually argue that's not even what Apostolic succession means true Apostolic succession is an authority born by all leaders of the church when they teach what the apostles and Prophets taught meaning the scriptures outside of that
 
-in this is something I'm going to argue here the eldership of the church was always intended for edundancy and correction that there would never be a singular person in charge of things without corrective force that was true amongst the apostles who we saw
+they do have the secondary authorities denoted by the limits of their offices oversight care Direction worship things like this but it must always be done consistently with the scriptures it must be and
 
-in the disagreement between Paul and Peter where Peter was wrong there's always redundancy in these offices to self-correct this is the only way you can lead with fallible people including Apostles right we are all sinful we are all wrong on some level or
+so with that those are the two main sources of leadership in the church what you and I would call in shorthand the Bible the Old and New Testament together make up the two main leadership structures of the church and
 
-another but if you have one person that's in charge of everyone else there's no one who can correct them was one of the reasons why conciliarism later on in church history comes up and tries to deal with popes
+now we have the offices elders in the post-apostolic era are a conglomerate responsibilities of the Shepherds the teachers the evangelists they are the catchall for everything they are literally called
 
-and things like this because you're having all the authority be brought ogether into one person how who can possibly correct them when they go Haywire well this is why that entire structure is absent from the church
+so many different terminologies in scripture episcopo presbyteros pain meaning Shepherd or Pastor and then even generally in Hebrews 13 as hug menos meaning leaders or rulers it they have
 
-and utterly unknown to the apostles the apostles always appointed multiple Elders in every Church even if there was multiple churches in the city there was always multiple Elders throughout there's also another one office that is the old of these ones that still continue
+so many different titles but they're all the same thing whe whether Bishops or Elders overseers pastors Shepherd teachers whatever you want to call it if it's one office that office is always notice the S on the end of Elders always plural always there is no exception to that in
 
-on and that is the deacons not technically a leadership structure in the church but it is a service oriented thing they do have a specific responsibility and I will just mention in the first church before we ever get to the
+the New Testament I just I could keep pointing that out because people forget that as time goes on and I want to talk to you a little bit about the responsibilities of the elders first what were the responsibilities there's two main passages that we can see for this and
 
+that is First Peter chapter 5 I want to read that verses 1-4 and Acts chapter 20 we'll get there so let's do 1 Peter 5 1 what does he say he says
 
-## 1 Timothy 3
+so I exhort the elders among you as a fellow Elder and a witness by the way here is Peter the Apostle referring to himself as a fellow Elder do you notice the attitude of collegiality do you notice his submission to other Elders in the church do you notice his attention to this as
 
-1 Timothy chapter 3 qualifications we're going to leave that off until we get into the post-apostolic church here we're dealing with the time of the Apostles there was only three original qualifications and it's found in Acts chapter 6 there were to be men
+he calls himself a fellow Elder and the witness and a witness of the sufferings of Christ as well as a partaker in the glory that is going to be revealed what is it that Elders do they shepherd the flock of God that is among you exercising oversight you're not to do this under
 
-of good repute full of the spirit and full of wisdom that's it they were there to free the apostles up in the Practical management of the church in Jerusalem and I want you to see the count of them was only seven for thousands
+compulsion you're to do it willingly as God would have you it is not for money or and shameful game no you do it eagerly not domineering over those in your charge
 
-of Christians so their role while it was while it was helpful and service oriented towards the church was very administrative not highly personal and it was there primarily to assist the apostles
+but being examples to the flock this is how you do it you do not insist on your own authority left and right what you do is you are a good example why because you are not the chief shepher there is a chief Shepherd that is Christ we've already talked
 
-but his is one of those fascina things where all these other offices and roles have died away or have gotten Consolidated into the role of the ldership but the deacons consider continue on and led their lead their service to the church
+about Christ the head of church history you will receive the unfading Crown of Glory we learn a lot about Elders in that passage most of it stands on its own and I would encourage you to see that Elders operate with the concept again elders presbyteros these presbuteros rather they emphasize maturity and Leadership the
 
-in very practical means even today the post-apostolic leaders now here's where I want you to see this and why we laid some of the groundwork earlier for that of the prophets
+term episcopo here oversight overseer this is this is what Bishops again plural emphasizing their overs overseeing responsibilities you are a Shepherd it emphasizes their care and guidance like there's
 
-and the apostles in my world in the world of the reformed Baptists and things like this it is typically said that there are two ffices of the church elders and eacons it is true there are two offices of the post-apostolic hurch
+so many aspects of this we already saw Timothy being called to do the work of an evangelist that you are supposed to be able to teach if you are an elder all of these things will come out you can see in Acts chap 20: 28-31 where Paul is talking to the
 
-those offices however are not the end of the story they weren't the beginning of the story either how much have we seen the apostles weren't the beginning of the story they were continuation the New Testament prophets weren't the beginning of the prophetic Ministry
+Elders of Ephesus again plural always he says to them pay careful attention to yourselves and to all the flock in which the Holy Spirit has made you again overseers Elders that are
 
-they were continuation of the Old Testament as well all of these things are continuation because the Old Testament is directly a part of the New Testament Church it is their Scriptures it is the apostles are appealing
+now also overseers to care for the Church of God which he obtained with his own blood now that's that's kind of their main responsibility to care for the church he says I know that after my departure Fierce wolves will come in among you not sparing the flock and
 
-the scriptures when they're on the day of Pentecost hey're quoting scripture wherever they go They're constantly reminding that the prophets have talked about this Jesus has fulfilled it now we preach it's a remarkable thing that this gets turned over pretty quick just
+then he describes there's going to be Elders that will speak Twisted things from among your own selves will arise men speaking Twisted things to draw away the disciples the Christians after them therefore be alert remembering that for three years I did not cease night and day to admonish everyone with tears here
 
-because there's two offices in the church now elders and deacons doesn't mean that's all the leadership that here is I would argue there's mo more than that the first of which is the same that he apostles had
+we have Paul warning that there's going to be evil false elders false Bishops they are speaking Twisted things and they're going to lead disciples away after them it is the responsibility of true Elders to warn the
 
-the Old Testament prophets meaning the Hebrew scriptures they are one of our sources of leadership the Old Testament prophets meaning all the writers of the Hebrew scriptures their writings the Hebrew scriptures are still directly authoritative to the church
+flock and to protect the flock and to care for the Church of God just because somebody is in an office of elder or bishop or anything else does not in any way make them infallible period regardless of what some Churches claim fallibility is always on the table when it comes to anyone fulfilling
 
-now these must be interpreted properly it must be understood we are not Israel these things do not apply in the same way but he Old Testament scriptures are still our scriptures in fact they are 77% of
+any office the office does not perfect it does not change you it does not ontologically change who you are or anything like this no we have direct reference here to the idea that just because somebody is an office does not mean that it is protecting them in any
 
-our scriptures and they are enormously important to us not because we agree with them but because they are the revelation of God they are part of the story just because they're the last chapter before us doesn't mean that
+way at any point from speaking Twisted things and so we have to all give attention to our maturity and Clarity and so that is why for the church we are never just to look at what somebody says and that's the end of the story we also have to weigh their lives
 
-somehow it's not applicable they are applicable directly it doesn't mean that we moralize them they are our scriptures they are spoken by our God they are given to our ancestors in the faith and they are our scriptures
+and that is why the qualifications of Elders is not a whole bunch of right theology but instead the outcome of these things in their lives 1 Timothy 3 and Fir and Titus Chapter 1 give a direct outline of the qualifications of Elders I'm not going to read that at
 
-and so everything that applied earlier of the Old Testament prophets leadership for the apostles where the bereans were searching these things to see if the apostles were true we still do that oday not just the leaders of
+length because almost everybody is aware of that just to say it's 1 Timothy 3 1-7 oh let me just read through them I'm just not going to pick them apart 1 Timothy 3 1-7 the saying is trustworthy if anyone aspires to the office of overseer he desires a noble task therefore an
 
-the church not just pastors like myself all Christians are to search the scriptures to see if these things are so test your leaders test your Bishops test your popes test everything by scripture test he apostles because what you're going to find is that
+overseer must be above reproach a husband of one wife sober mind yeah there is no yeah there is there is no single Elders in the church doesn't work like that sober-minded self-controlled respectable hospitable able to teach not a drunkard not violent
 
-there is consistency between those who are true those who are true to the scriptures those who are true to the apostles and those who are true to the rest of the scriptures and so the leadership of the church excuse me must include the
+but gentle not quarrelsome not a lover of money he must manage his own household well with all dignity keeping his children submissive for if someone does not know how to manage his own household how will he care for God's church he must not be a recent convert
 
-Old Testament prophets in their writings the Hebrew scriptures but now in the post-apostolic era as the apostles began dying one of the things that they do is their Authority is codified in writings we are going to spend
+or he may become puffed up with conceit and fall into the condemnation of the devil moreover he must be well thought of by Outsiders so that he may not fall into disgrace into a snare of the devil we learn a lot of aspects about this they have to be married they have
 
-an entire vening I already have it written because of something that I would love to talk about but we're not quite right here yet an entire evening entitled The Inevitable New Testament
+to if they have children those children need to be raised in a certain manner their household needs to be controlled well and managed well there needs to be an outcome of faith in his life that is consistent again there's that terminology with all of the scriptures Titus 1 where Paul is writing to Titus
 
-there is something expected the apostolic leadership is going to die away and so we need something very similar to what the Old Testament prophets did they wrote these things down why because they were going to die Daniel himself has told
+who is by the way not an elder he is a sent one from the apostles I don't know what exact official title you would say this other than an Apostles delegate he says to him this is why I left you in cre
 
-about these things write these things down you're going to lie with your fathers to the apostles the same thing you're going to die and then you're going to have to write these things down
+so that you might put what remained into order and appoint Elders in every town as I directed you again plural always if anyone is above reproach the husband of one wife look again very similar list here his children are believers not open to the charges of debauchery or insubordination
 
-and they do and while they're writing these things down the apostles are giving testimony and wait to the authenticity of the other writings you have Paul quoting from the Gospel of Luke in the early 60s calling it scripture compare lining it right up
+for an overseer as God's Steward must be above reproach he must not be arrogant or quick-tempered or a drunkard or violent or greedy for gain but hospitable a lover of good self-controlled upright holy and disciplined he must hold firm to the trustworthy word is taught again his relationship to scripture is Paramount
 
-with Deuteronomy right you have these types of references you have Peter referring to Paul's writings of scripture these types of things are still alive during the apostolic era there's redundancy between the apostles you have one of the roles of the New Testament prophets
+so that he may be able to give instruction and sound Doctrine and also to rebuke those who contradict it in other words the trustworthy word as taught is all of the scriptures that God inspired regardless of what age you are in if you are in a th000 BC your scriptures is
 
-is an identify what is inspired and what is not these things are severely important o us and so in the post-apostolic hurch as the apostles are dying out you have a change over in the role of the Apostles As Leaders into the church
+going to be much shorter than the ones we have now today in the year 2024 the trustworthy word is taught is all of the scriptures from Genesis through Revelation why do we do this because there's no other way to rebuke false teachers false Elders speaking Twisted things
 
-and it is codified in the New Testament the same way the Old Testament prophets were codified in the Old Testament the apostles teachings are cified in the New Testament in fact we do not have a single syllable from the prophets from the apostles
+but the scriptures the church fathers will not save you here they disagree with each other very often as well the scriptures alone are able to do this and that's why we hold firm to them and nothing else not on that level anyway
 
-and from Jesus that does not find its home in scripture all of them come from the scriptures we have nothing outside of them that is authoritative on that level at all it doesn't mean there's not authorities in addition to scripture that are secondary
+that brings us to the second of the offices
 
-and Prim and tertiary and all that stuff scripture now in the post-apostolic era after the apostles die out is primary Authority for us why because everything else has to be weighed by it everyone else
+deacons the office of deacons as we saw last time is the oldest of the current offices they existed before the elders again Deacons are always referred to in plural we see that in the in the opening to The Book of Philippians they are greeted there specifically again dionos
 
-and the same way that the bereans search the scriptures to judge the teaching of the Apostles Christian it is on you to verify in the scriptures the ones that are teaching you I don't care who they are or what their claim to Authority
+is always we have the plural form of it showing up with these things when regards to an entire church the church in Jerusalem had at least seven of them
 
-structure is or anything else or how old their church is or anything if it does not line up with and is consistent have its origin in scripture you got a problem you got a pretty big problem actually their writings the apostles
+but it seems that Philip didn't stay around very long which is a really interesting part of that story they ensure I'll put this it's really hard to codify the role of deacons in the New Testament
 
-writings the Greek New Testament are still directly authoritative in the church just like the Old Testament scriptures are we have the same Noble task as the bereans to search the New Testament and now the Old Testament as
+so I'm going to put mine out here I would say that they are the most practically adaptable of the two churches offices because the Elder's role and responsibility is really clearly spelled out deacons not
 
-well to see if the claims of our leaders are true or false are they consistent with the scriptures are they so much talk has had about Apostolic succession being attached to a special monarchical Bishop of a city like this bishop of this city
+so much they ensure smooth operation of the church and that nobody has overlooked that's how I'm going to explain them right the requirements or the qualifications if you will of deacons is found in 1 Timothy 3 8-13 Deacons likewise must be dignified not double tonged not addicted to much wine not
 
-or Bishop of that City that concept does not exist in the first century it does not exist in the second generation of the church or the third when we talk about these things those are later things that crop up in
+greedy for dishonest gain they must hold the mystery of the Faith with a clear conscience and let them be tested first and then let them serve as deacons if they prove themselves blameless again blameless is a high bar here their wives likewise must be dignified not slanderers
 
-some areas and tend towards that and take over everything by the end of the second century but that is not the original way it is set up and I would actually argue that's not even what Apostolic succession means true Apostolic succession
+but sober minded and faithful in all things let deacons each be the husband of one wife managing their children and their own households well for those who serve well as deacons gain a good standing for themselves and also great confidence in the faith that is in Christ Jesus remarkable promise to
 
-is an authority born by all eaders of the church when they teach what the apostles and Prophets taught meaning the scriptures outside of that hey do have the secondary authorities denoted by the limits of their offices oversight care
+deacons and those who fill the one of the more important roles in the New Testament Church all of that to say no specific goal or specific role are we found for deacons other than they ensure the operation of the church runs smoothly and nobody's overlooked I would say that would be the most
 
-Direction worship things like this but it must always be done consistently with the scriptures it must be and so with that those are the two main sources of leadership in the church what you and I would call in shorthand the Bible the Old
+direct description of the deacon position the office of Deacon in the New Testament specifically the word Deacon just comes from the Greek word to serve and so obviously it is part of that they are Servants of the church it is an office they are specific to that I
 
-and New Testament ogether make up the two main leadership structures of the church and now we have the offices elders in the post-apostolic era re a conglomerate responsibilities of the Shepherds the teachers the evangelists they are the catchall for everything they are
+would I would say they have to be elected to that because there is a consent of the church mentioned specifically for this and you will find you will find that in Acts chapter 6 even the apostles did not did not choose these men the people of the church chose these men right you
 
-literally called so many different terminologies in scripture piscopo presbyteros pain meaning Shepherd or Pastor and then even generally in Hebrews 13 as hug menos meaning leaders or rulers it they have so many different titles but they're all the same thing whe whether Bishops
+can see that in Acts chap 6: 1-6 if you want to go back to that we talked about that a little bit longer last time we were together when we talked about the first two deacons being step and Phillip there's a couple of notable absences by the way here from this we find that
 
-or Elders overseers pastors Shepherd teachers whatever you want to call it if it's one office that office is always notice the S on the end of Elders always plural ways there is no exception to that in the New Testament I
+we find that there is no monarchical Bishop you'll notice there's no priests there's no archbishops there's no any of this those things are later with regards to the close of the New Testament and the close even of the first century including everything we have reference to the diday first Clement you
 
-just I could keep ointing that out because people forget hat as time goes on and I want to talk to you a little bit about the responsibilities of the elders first what were the responsibilities there's two main passages that we can see for
+what you have is references to multiplicity of Elders everywhere every city had multiple Elders every single Town had multiple Elders every church had multiple Elders everywhere it doesn't mean that there wasn't one who was the primary teacher we do that
 
-this and that is First Peter chapter 5 I want to read that verses 1-4 and Acts chapter 20 we'll get there so let's do 1 Peter 5 1 what does he say he says so I exhort the elders among you as a fellow
+now even in Elder Le churches it means though that with authority with responsibility with oversight of the church it is always a shared Authority period there is no exception to that I want to emphasize that over and over and over again because the concept of authority is going to be one of the most
 
-Elder and a witness by the way here is Peter the Apostle referring to himself as a fellow Elder do you notice the attitude of collegiality do you notice his ubmission to other Elders in the church do you notice his attention to this as
+divisive things in the church going forward in the church's history as well as in our modern day as well and so with that I hope this has been helpful to you to be able to see the apostolic church that first generation of the church with the apostles with the Old Testament
 
-he calls himself a fellow Elder and the witness and a witness of the sufferings of Christ as well as a partaker in the glory that is going to be revealed what is
+prophets with the evangelists and the teachers and the New Testament prophets the elders and the deacons and then we've have it codified down in the post-apostolic churches once the apostles begin dying out we and they come to the end of their lives we see that the apostles left to the church the
 
-it that Elders do they shepherd the flock of God that is among you exercising oversight you're not to do this under compulsion you're to do it willingly as God would have you it is not for money or
+Old Testament prophets in the Hebrew scriptures the New Testament Apostles in the New Testament scriptures meaning the Bible and then elders and deacons it is what we have you can see the very way that this is discussed Peter talks about it in 1 Peter 2 saying that the church was
 
-and shameful game no you do it eagerly not domineering over those in your charge but being examples to the flock this is how you do it you do not insist on your own authority left and right what you do is you are a
+founded on the foundation stone runs of the prophet and the apostles Christ himself being the Cornerstone and all of us are being built up as living stones a temple a holy priesthood a temple in which a spiritual sacrifices are demate sacrifices of Praise sacrifices of Thanksgiving remarkable language and as
 
-good example why because you are not the chief shepher there is a chief Shepherd that is Christ we've already talked about Christ the head of church history ou will receive the unfading Crown of Glory we learn a lot about Elders in that passage
+## Main Discussion
 
-most of it stands on its own and I would encourage you to see that Elders operate with the concept again elders presbyteros these presbuteros rather they emphasize maturity and Leadership the term episcopo here oversight overseer this is this is what Bishops again
+we work through church history I want you to have this as your background regarding the leadership that was given to us the structure that was given to us in the Holy scriptures with that we're going to close out this study and I will say as we look forward to the coming weeks
 
-plural emphasizing their overs eeing responsibilities you are a Shepherd it emphasizes their care and guidance like there's so many aspects of this we already saw Timothy being called to do the work of an evangelist that you are supposed to be able to
-
-teach if you are an elder all of these things will come out you can see in Acts chap 20: 28-31 where Paul is talking to the Elders of Ephesus again plural always he says to them pay careful attention to yourselves
-
-and to all the flock in which the Holy Spirit has made you again overseers Elders that are now also verseers to care for the Church of God which he obtained with his own blood now that's that's their main responsibility to care for the
-
-church he says I know that after my departure Fierce wolves will come in among you not sparing the flock and then he describes there's going to be Elders that will speak Twisted things from among your own selves will arise men speaking Twisted things
-
-to draw away the disciples the Christians after them therefore be alert remembering that for three years I did not cease night and ay to admonish everyone with tears here we have Paul warning that there's going
-
-to be evil false elders false Bishops they are speaking Twisted things and they're going to lead disciples away after them it is the responsibility of lock and to protect the flock and to care for the Church of God just
-
-because somebody is in an office of elder or bishop or anything else does not in any way make them infallible period regardless of what some Churches claim fallibility is always on the table when it comes to anyone fulfilling any office the office does
-
-not perfect it does not change you it does not ontologically change who you are or anything like this no we have direct reference here to the idea that just because somebody is an office does not mean that it is protecting them in any
-
-way at any point from speaking Twisted things and so we have to all give attention to our maturity and Clarity and so that is why for the church we are never just to
-
-look at what somebody says and that's the end of the story we also have to weigh their lives and that is why the qualifications of Elders is not a whole bunch of right heology but instead the outcome of these things in
-
-their lives 1 Timothy 3 and Fir and Titus Chapter 1 give a direct outline of the qualifications of Elders I'm not going to read that at length because almost everybody is aware of that just to say it's 1 Timothy 3 1-7
-
-oh let me just read through them I'm just not going to pick them apart
-
-1 Timothy 3 1-7 the saying is trustworthy if anyone aspires to the office of overseer he desires a noble task therefore an overseer must be above reproach a husband of one wife sober mind yeah
-
-there is no yeah there is there is no single Elders in the church doesn't work like that sober-minded self-controlled respectable hospitable to teach not a drunkard not violent but gentle not quarrelsome not a lover of money he must manage his own household
-
-well with all dignity keeping his children submissive for if someone does not know how to manage his own household how will he care for God's church he must not be a recent convert or he may become puffed
-
-up with conceit and fall into the condemnation of the devil moreover he must be well thought of by Outsiders so that he may not fall into disgrace into a snare of the devil we learn a lot of aspects about his they have to
-
-be married they have to if they have children those children eed to be raised in a certain manner their household needs to be controlled well and managed well there needs to be an outcome of faith in his life
-
-that is consistent again there's that erminology with all of the scriptures Titus 1 where Paul is writing to Titus who is by the way not an elder he is a sent one from the apostles I don't know what exact official title you would
-
-say this other than an Apostles delegate he says to him this is why I left you in cre so that you might put what remained into order and appoint Elders in every town as I directed you again plural always
-
-if anyone is above reproach the husband of one wife look again very similar list here his children are believers not open to the charges of debauchery or insubordination for an overseer as God's Steward must be above reproach he must not be arrogant or
-
-quick-tempered or a drunkard or violent or greedy for gain but hospitable a lover of good self-controlled upright holy and isciplined he must hold firm to the trustworthy word is taught again his relationship
-
-to scripture is Paramount so that he may be able to give instruction and sound Doctrine and also to rebuke those who contradict it in other words the trustworthy word as taught is all of the scriptures that God inspired regardless of what
-
-age you are in if you are in a th000 BC your scriptures is going to be much shorter than the ones we have now today in the year 2024 the trustworthy word is taught is all of the
-
-scriptures from Genesis through Revelation why do we do this because there's no other way to rebuke false teachers false Elders speaking Twisted things but the scriptures the church fathers will not save you here they disagree with each
-
-other very often as well the scriptures alone are able to do this and that's why we hold firm to them and nothing else not on that level anyway that brings us to the second of
-
-deacons the office of deacons as we saw last time is the oldest of the current offices they existed before the elders again Deacons are always referred to in plural we see that in the in the opening to The Book of Philippians they are
-
-greeted there specifically again dionos is always we have the plural form of it showing up with these things when regards to an entire church the church in Jerusalem had at least seven of them but it seems that Philip didn't stay around very long
-
-which is a really interesting part of that story they ensure I'll put this it's really hard to codify the role of deacons in the New Testament so I'm going to put mine out here I would say that they are the
-
-most practically adaptable of the two churches offices because the Elder's role and responsibility is really clearly spelled out deacons not so much they ensure smooth operation of the church
-
-and that nobody has overlooked that's how I'm going to explain them right the requirements or the qualifications of deacons is found in 1 Timothy 3 8-13 Deacons likewise must be dignified not double tonged not addicted to much wine not greedy for dishonest gain
-
-they must hold the mystery of the Faith with a clear conscience and let them be tested first and then let them serve as deacons if they prove themselves blameless again blameless is a high bar here their wives likewise
-
-must be dignified not slanderers but sober minded and faithful in all things let deacons each be the husband of one wife managing their children and their own households well for those who serve
-
-well as deacons gain a good standing for themselves and also great confidence in the faith that is in Christ Jesus remarkable promise to deacons and those who fill the one of the more important roles in the New
-
-Testament Church all of that to say no specific goal or specific role are we found for deacons other than they ensure the operation of the church runs smoothly and nobody's overlooked I would say that would be the the most direct description of
-
-the deacon position the office of Deacon in the New Testament specifically the word Deacon just comes from the Greek word to serve and so obviously it is part of that they are Servants of the church it
-
-is an office they are specific to that I would I would say they have to be lected to that because there is a consent of the church mentioned specifically for this and you will find you will find that in Acts chapter 6 even
-
-the apostles did not did not choose these men the people of the church chose these men right you can see that in Acts chap 6: 1-6 if you want to go back to that we talked about that a little bit
-
-longer last time we were together when we talked about he first two deacons being step and Phillip there's a couple of notable absences by the way here from this we find that we find that there is no monarchical Bishop
-
-you'll notice there's no priests there's no archbishops there's no any of this those things are later with regards to the close of the New Testament and the close even of the first century including everything we have reference to the
-
-diday first Clement you what you have is references to multiplicity of Elders everywhere every city had multiple Elders every single Town had multiple Elders every church ad multiple Elders everywhere it doesn't mean that there wasn't one who was the primary teacher we do
-
-that now even in Elder Le churches it means though that with authority with responsibility with oversight of the church it is always a shared Authority period there is no exception to that I want to emphasize that over
-
-and over and over again because the concept of authority is going to be one of the most divisive things in the church going forward in the church's history as well as in our modern day as well
-
-and so with at I hope this has been helpful to you to be able to see the apostolic church that first generation of the church with e apostles with the Old Testament prophets with the evangelists and the teachers
-
-and the New Testament prophets the elders and the deacons and then we've have it codified down in the post-apostolic churches once the apostles begin dying out we and they come to the end of their lives we see that
-
-the apostles left to the church the Old Testament prophets in the Hebrew scriptures the New Testament Apostles in the New Testament scriptures meaning the Bible and then elders and eacons it is what we have you can see the very
-
-way that this discussed Peter talks about it in 1 Peter 2 saying that the church was founded on the foundation stone runs of the prophet and the apostles Christ himself being the Cornerstone
-
-and all of us are being built up as living stones a temple a holy priesthood a temple in which a spiritual sacrifices are demate sacrifices of Praise sacrifices of Thanksgiving remarkable language and as we work through church history I want you to have
-
-this as your background regarding the leadership that was given to us the structure that was given to us in the Holy scriptures with that we're going to close out this study and I will say as we look forward to the coming weeks may
-
-God bless you I really look forward to peeling apart the next sections of this early first century walkthrough Lord's blessings to you all
-
+may God bless you I really look forward to peeling apart the next sections of this early first century walkthrough Lord's blessings to you all
 
 ## Closing
