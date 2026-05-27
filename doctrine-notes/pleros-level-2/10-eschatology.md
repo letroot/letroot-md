@@ -1,6 +1,6 @@
 # Eschatology
 
-**00:00 \- Introduction to Eschatology and the Believer's Perspective**
+## Introduction to Eschatology and the Believer's Perspective
 
 We are looking at eschatology. It is still level two, and now we are on the ninth teaching out of the ten-part outline of doctrine that Paul told us about. This one is eschatology. You can say the study of the last things, the study of the last days, or the study of the latter times. There are many descriptions you can use for this teaching. We must not teach eschatology as the only thing to understand about Christianity. You will find Christians whose only understanding of Christianity is eschatology. It is unfortunate that there are believers who think the Christian life is only about eschatology, thinking that after salvation, they have to make heaven, so they are living in dangerous times trying their best to ensure they make heaven. There are also those who have no care about the Bible truth on eschatology.
 
@@ -8,7 +8,7 @@ A believer that is not eschatological is likely going to be worldly, because esc
 
 In this level two, we are doing doctrinal summaries. Summaries should be an anchor of what to believe on that subject matter. It is never going to take the place of level five eschatology, which delves into details that are impossible to do in one session. You can't teach the book of Revelation in one session, let alone the eschatological details from the book of Daniel. Eschatology begins from Genesis 1\. Understanding the millennium requires understanding Genesis 1, Psalm 90, and the rest of scripture to make sense of why John in Revelation spoke about the millennium. You cannot afford ignorance or not to listen to the whole teaching if you want a full understanding, but this session will only attempt to give you the Christian anchor on eschatology. Another challenge with this session is I will not give you as much evidence for the conclusions. It is like when Paul was writing Ephesians 1; he said a lot of things in conclusion without giving detailed explanation and evidence because it is a summary. Life is in phases; men are in sizes. This is level two, so we have to cut our coat according to our size.
 
-**05:00 \- Discipleship, Growth, and the Seal of the Spirit**
+## Discipleship, Growth, and the Seal of the Spirit
 
 We have been studying what should follow after we are saved and have received God's purpose. My next goal is to fulfill God's purpose, but I realize that to fulfill it, I need to grow to that place in stature where I am able to fulfill that purpose. I have two goals: to fulfill God's purpose, and to grow so that I can fulfill that purpose. That growth, the Lord Jesus told us, happens by discipleship. He that is perfectly trained will be as the master. Paul repeats the same thing in Ephesians 4; he says what you need is the perfecting of the saints. The perfecting of the saints happens by two things. First, it will bring you to the unity of the faith, the knowledge of the Son of God. We must be careful not to misunderstand what unity of the faith means. It means the wholesome message of what we have believed. Second, you need to arrive at the perfect man, the measure of the stature of the fullness of Christ. That is the actual growth that the knowledge should bring when you respond by faith stand. It is a continuous stand that makes for that reality.
 
@@ -18,7 +18,7 @@ The summary can be found in Ephesians 1 from verses 3 to 14\. The first part was
 
 Those of us who have believed in what Christ has done have been sealed with the Holy Spirit of promise. The way he describes the reality of the new creation is in an eschatological sense by using the word "sealed." A seal is with the idea of something being preserved for a later goal, a later use, or a later outcome. Imagine Coca-Cola is producing Coke. They bring the bottles, pour the content, and then they seal it. Someone is going to open it and drink it; that is the later outcome. It is sealed for that end. We are told you are sealed. A seal always has the idea of preservation with an intended outcome. It can be preservation for a particular purpose just so that you are safe from every other thing, but usually, it is with an intended outcome. A seal means there is something that is to be accomplished. Verse 14 makes sense of this: "who is the guarantee of our inheritance until the redemption of the purchased possession."
 
-**10:00 \- The Guarantee (Arrabon) and the Timeline of Redemption**
+## The Guarantee and the Timeline of Redemption
 
 The Holy Spirit is the guarantee. That word is *arrabon*. Scholars explain *arrabon* as an engagement ring, but an engagement ring does not fully capture the idea. The idea of a guarantee or *arrabon* is any form of collateral that is weighty enough to cover for what will subsequently happen. If someone is seeking a loan and they ask for collateral, the person likely wants to use a piece of land because it is worth more than what they need, but they need liquid capital. The collateral is worth more. The word *arrabon* develops directly from the Hebrew equivalent. The first time we see the Hebrew equivalent was in Genesis 38, in the incident of Judah and Tamar. Judah asked for a collateral or guarantee, giving something worth way more than what he needed to pay her, with the absolute assurance that he would get back what he needed eventually.
 
@@ -26,7 +26,7 @@ The seal of the Holy Ghost is a guarantee of that which we are to receive. It is
 
 We have been sealed with the Holy Spirit of promise, who is the guarantee of our inheritance until the redemption of the purchased possession to the praise of His glory. Notice the word "until." There is a timeline between having the Spirit and the redemption of the purchased possession—of what God now owns. The inheritance we have found from our other studies is the entirety of creation. There is the inheritance of our bodies, found in 1 Corinthians 6:20: "Therefore glorify God in your body and in your spirit, which are God's." Creation has been taken under corruption and now belongs to the reign of sin, death, and darkness. But God purchases it back by what Christ has done, though He has not yet redeemed what He has purchased. He has not yet taken full grasp and ownership of what He has purchased. From the point that you have the Spirit that is able to execute that work of redeeming creation—including your mortal body—until the point where that work is done, there is a distance. He has given you the guarantee until the redemption.
 
-**15:00 \- Defining the Last Days**
+## Defining the Last Days
 
 That distance between when you have the Spirit until the redemption is what the scriptures will describe as the last days. The period from when the purchasing has been done and the deliverance has been done, until the full consummation of that redemption—the redemption of the purchased possession—is the last day. Do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption. That is talking about the redemption of the material world, the creation, and our mortal bodies being redeemed.
 
@@ -34,7 +34,7 @@ There is a distance between this point where Christ has accomplished redemption 
 
 There is a time between the redemption Christ has done and the consummation of His redemption. The very first text we should look at to understand this timeline is Acts 2\. In Peter's preaching, he reckons his preaching as an inauguration of the last days. This period we are in is pointing us to the last days. In Acts 2, Peter was preaching on the day of Pentecost. The people gathered and said the disciples were drunk. Peter said these men are not drunk as you suppose. This is what was spoken by the prophet Joel: "It shall come to pass in the last days, says God, that I will pour out My Spirit on all flesh." Peter is saying something just happened, and it is a reflection that we are in the last days. What is going on is within the timeline of the last days. The start of the last days is a debate. Should we say it started on this day, or is this day part of what features within the last days? It means the last days were already at play when Peter was speaking. What has been fulfilled is what Prophet Joel said would happen in the last days. The last days are not some far-off time; they include what was witnessed in Acts 2\.
 
-**20:00 \- Biblical Evidence of Living in the Last Days**
+## Biblical Evidence of Living in the Last Days
 
 Paul in Ephesians 1 talks about a timeline that flows from when Jesus accomplishes redemption to the redemption of the purchased possession. Peter describes that timeline as the last days. You will start to realize that this concept of using "last days" to describe that timeline is very common in scripture. Hebrews 1:2 says, "Has in these last days spoken to us by His Son." The writer of Hebrews is saying the last days have something to do with the arrival of the Son. The arrival of the Christ is at the center of what they were all expecting.
 
@@ -46,7 +46,7 @@ James 5:3 says, "Your gold and silver are corroded, and their corrosion will be 
 
 1 John 2:18 says, "Little children, it is the last hour; and as you have heard that the Antichrist is coming, even now many antichrists have come." People are saying there will be one specific figure they are expecting. Peter is saying it is ready; it could happen anytime. The Antichrist will first appear, but how many days is it going to take? John says there are already many antichrists. It is a timeline.
 
-**25:00 \- The Nature of the Last Days: Good and Bad**
+## The Nature of the Last Days: Good and Bad
 
 The last days are a very funny teaching because there are all sorts of ideas people have. We will fully explain that in level five, but I will give you the teasers here. 2 Timothy 3:1 says, "But know this, that in the last days perilous times will come." We are seeing both good and bad stuff said about the last days. The wealthy will be corrupt, more evil will happen, there will be scoffers. But we also see it is the time of the Spirit, a time of good things. We must understand how to balance these realities.
 
@@ -58,7 +58,7 @@ You must have a Christ perspective toward the times. Guard your heart against a 
 
 The reality of the last days is the time from the presence of Christ and His fulfillment of redemption until the consummation of that redemption. If you understand this basic framework, you realize we are living in the last days. It is not just about a specific future timeline; it is because of the dynamics of God's purpose and plan. Redemption has been fulfilled by Christ, and we are walking toward its consummation.
 
-**30:00 \- The Order and Pattern of the Last Days**
+## The Order and Pattern of the Last Days
 
 This brings us to the second major point: the order of the last days. We want to outline the timeline in God's purpose and plan to appreciate how to situate the last time. The order of the last days begins this way:
 
@@ -77,7 +77,7 @@ Minor eschatological patterns will feature a day of the Lord as a time of judgme
 
 The entire distance until the consummation of the Christ is the last days. This timeline is what is scripturally defined as the last days. It is repeatedly said, and there is no room found for talking about the last days as only a future event. Every time we read of the last days, it was a time present to the believer because the Christ had come. We are going to see patterns of the last days before the Christ came, where different "christs"—people who played the roles of deliverers, saviors, judges, and anointed leaders—functioned in similar patterns. But now we are living in the actual last days, where the Christ has come, fulfilled redemption, and a pattern is playing out until the consummation. The major thing you need to understand is that this pattern has been fulfilled and it can happen at any time. It is up to God when He considers His purpose and plan fulfilled across all nations and generations.
 
-**35:00 \- The Millennium and the Sevenfold Reign of Sin and Death**
+## The Millennium and the Sevenfold Reign of Sin and Death
 
 The only way we can explain the concept of the millennium, the way John used it, is from the available text of scripture. Psalm 90 is a prayer of Moses, the man of God. Genesis is Moses' rendition of God's revelation to him. In Psalm 90, he is talking about God's revelation, stating that God has been our dwelling place in all generations. Before the mountains were brought forth, or ever He had formed the earth and the world, from everlasting to everlasting, He is God. He turns man to destruction and says, "Return, O children of men." For a thousand years in His sight are like yesterday when it is past, and like a watch in the night. Moses uses the idea of a thousand years being like a day to God. Peter takes that idea in 2 Peter 3 in his eschatological discussions, taking a text from Moses who was teaching eschatology as well. What Moses thought about days was the concept of six days leading to a seventh day of rest. If Peter is using that text in that manner, it is not unfounded that he is using it to frame the eschatological timeline.
 

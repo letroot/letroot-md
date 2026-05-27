@@ -1,6 +1,6 @@
 # God and His Eternal Purpose
 
-### **00:00 – God and His Eternal Purpose**
+## God and His Eternal Purpose in the Doctrinal Outline
 
 All right brothers and sisters, we are on level two. We are looking at God and His eternal purpose. In this subject matter in the systematic theology of different people, they may call it theology proper because theology is taken as the entire subject matter of scripture, the study of God. But the study of God Himself is often called theology proper. We just call it God and His eternal purpose because we are teaching for everybody's understanding, and we are not trying to be overly technical.
 
@@ -12,7 +12,7 @@ If you have listened to the introduction to doctrinal summaries, you will recall
 
 Ephesians chapter 4 says the leaders of the church are given to perfect the saints so that the saints will fulfill God's purpose. They are to perfect the saints till they arrive at this knowledge that God wants them to have: this unity of the faith, this knowledge of the Son of God, which results in the perfect man, the measure of the stature of the fullness of Christ.
 
-### **05:00 – The Authority of Scripture and the Reality of God**
+## The Authority of Scripture and the Reality of God
 
 We have looked at bibliology because we saw in 2 Timothy chapter 3 that the first thing the student of God's word ought to know is how to defend the source or the authority of the doctrine. The doctrine is from the Old Testament text and the apostles who make up the New Testament text. The student of God's word must be able to say clearly why they respect and hold the Bible as authoritative. Sometimes some of us hold the Bible as authoritative simply because we were brought up to do so out of a dogmatic stance. We hold the Bible as authoritative because of the authority of truth that finds itself in the person of Jesus, who then validated the Old Testament text as well as the New Testament text.
 
@@ -24,7 +24,7 @@ The doctrine of Paul, which we call the unity of the faith, starts with the real
 
 He describes it as the good pleasure of His will. That purpose is called out in Ephesians chapter 3 and verse 9: "And to make all see what is the fellowship of the mystery, which from the beginning of the ages has been hidden in God." The idea of the fellowship of the mystery means everybody is supposed to be part of what we saw with the Israelites. Every kind of human is supposed to see the commonness of the mystery. The mystery is sonship. God created all things through Jesus Christ to the intent that now the manifold wisdom of God might be made known by the church to the principalities and powers in heavenly places, according to the eternal purpose which He has accomplished in Christ Jesus our Lord.
 
-### **10:00 – Defending the Faith and Understanding Evidence**
+## Defending the Faith and Understanding Evidence
 
 We call this first part of the doctrine "God and His Eternal Purpose." All these things are necessary to build your conviction so that you can have the requisite persuasion to fulfill God's purpose. When your conviction is shaky, your commitment to God's will and purpose will equally be shaky. Imagine having doubts about the Bible because you have not studied bibliology. Someone throws a spanner into your beliefs, calling the Bible a tool of manipulation or claiming someone just sat down somewhere and wrote it. If you are not with firm conviction, your faith can be shaken.
 
@@ -34,7 +34,7 @@ The Bible answers the metaphysical question: Why are we here? How could we even 
 
 Go to Romans chapter 1\. "For I am not ashamed of the gospel of Christ, for it is the power of God to salvation to everyone who believes, for the Jew first and also for the Greek. For in it the righteousness of God is revealed from faith to faith." When people believe, the righteousness of God is revealed to them. Look at verse 18: "For the wrath of God is revealed from heaven against all ungodliness and all unrighteousness of men who suppress the truth in unrighteousness." Why are some people seeing the wrath of God revealed to them? Because of their response. The wrath of God is revealed to those who suppress the truth. This implies that the gospel is the truth, and it is obvious or evident to them. It is something they can see, but they add other things to reject it.
 
-### **15:00 – Observation, Reason, and the Contingent World**
+## Observation, Reason, and the Contingent World
 
 Look at verse 19: "Because what may be known of God is manifest in them." It is manifest in their minds. It is manifest in them because God has shown it to them. They know it by observation and reason. Their observation and senses have caught a glimpse of it and gotten the requisite data to arrive at that conclusion. By observation and reason, we can arrive at the conclusion of truth. This is true about any subject matter. If someone asks what color of shirt a person is wearing, you look at what the person is wearing. You think about it because you know colors and labels, and you arrive at a conclusion.
 
@@ -46,7 +46,7 @@ The only way we can explain the finite, contingent world is a cause equal or gre
 
 The evidence for who He is is already available. People are simply raising the bar to reject the conclusion they are naturally led to by the evidence. You are requiring the standard of science—empirical evidence—for someone not bound by that. This is a metaphysical issue. If God appeared in a vision, people would say they were hallucinating, because any appearance in time, space, and matter is an apparition, a rendition. The reality of the person cannot be bound by time, space, and matter.
 
-### **20:00 – God's Status and Absolute Sovereignty**
+## God's Status and Absolute Sovereignty
 
 The evidence of this natural world leads us to the conclusion that God is the most rational, sound, and probable conclusion about our existence. Something finite and contingent calls for a cause that is equal or greater to it. This must be an infinite, non-contingent cause that has intelligence and character. Once we see an entity with such ability, intelligence, and character, we are talking about a personal being. Thus, the conclusion is God.
 
@@ -58,7 +58,7 @@ The next step is to know His status. We all have status relative to something el
 
 Sovereignty is a subject matter in the church that has been an issue. People have different angles and opinions on it. But one thing is undebatable: God is sovereign. We must establish that God is sovereign absolutely. When we talk about the sovereignty of nations today, a supposedly sovereign nation might have another nation intervene and kidnap its president. The United States exercising a form of sovereignty over another nation is an action people sometimes wrongly attribute to God's style of sovereignty. When we talk about the sovereignty of God, He is sovereign absolutely in the sense that He could have determined whatever He wants.
 
-### **25:00 – Free Will and God's Character**
+## Free Will and God's Character
 
 By His status, He has the right to do whatever He wants to do. Whatever we find as created existence is His choice. He is self-existent to have done anything. His sovereignty is not just a matter of what He did, but who He is. Because He is self-existent, He could have created a world where there is no free will whatsoever. That is the nature of His sovereignty. He is at liberty. What could have happened is anything possible to Him.
 
@@ -70,7 +70,7 @@ Some people say He has both light and darkness. But He cannot have both, because
 
 There are things we can never fully resolve, particularly the problem of evil. But we must be honest and say that evil is not of His character. In His sovereignty, we can attribute everything to Him, even things He did not directly want, simply because He set up the system. But we must have a clear philosophical and biblical theology to make the right conclusions about His character.
 
-### **30:00 – God's Abilities and Eternal Purpose**
+## God's Abilities and Eternal Purpose
 
 We also look at the ability of God. In the light of His status and character, His ability is that He can do everything that aligns with His character. We must be careful when we say God is omnipotent and can do all things. Can He lie? Hebrews chapter 6 clearly states it is impossible for God to lie. His ability is bounded by His character. He cannot do what contradicts His nature.
 

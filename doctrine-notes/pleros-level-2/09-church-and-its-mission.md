@@ -1,6 +1,6 @@
 # Church and Its Mission
 
-**00:00**
+## The Church as God's Purpose Fulfilled in a People
 
 We are looking at the Church and its mission. Before I go to any text, we will be looking at Ephesians 3 before we look at Ephesians 1\. We speak about God's purpose as we have been studying as sonship, but we can have a very individualistic sense to it that betrays the intention that was on the heart of God. If we say God's purpose is sonship, you could as well say God's purpose is one person being His child and being His heir. But if we look at what was on His heart, it was more than one person. When He said we have the spirit of sonship, the Spirit bears witness with our spirit that we are children. It is very clear that His intention is this plural reality—a collective, a people that have this reality of sonship.
 
@@ -12,7 +12,7 @@ You can think about it as the angels are seeing what God always wanted. But you 
 
 I will read verse 10 again, then read to verse 11 to make that simple point: the church is really what God's purpose is. When we say sonship, it is not sonship of an individual; it is sonship of a people that is the church. "To the intent that now the manifold wisdom of God might be made known by the church to the principalities and powers in heavenly places, according to the eternal purpose which He accomplished in Christ Jesus our Lord." What they are seeing of God's wisdom is in the light of His eternal purpose. What is seen in the church is the fulfillment of God's purpose. The church reflects the fulfillment of God's purpose.
 
-**05:00**
+## Sonship Belongs to a People
 
 To make this clear, let us look at Romans 9:3. Paul says, "For I could wish that I myself were accursed from Christ for my brethren, my countrymen according to the flesh, who are Israelites." He so desires their salvation that even if it is at the cost of his own damnation, he doesn't mind. The Lord gave up Himself for our salvation; Paul is saying, "I wish I could be sacrificed for the sake of their salvation." Verse 4 says, "Who are Israelites, to whom pertain the adoption." That is the same word *huiothesia*, which is sonship. Ephesians 1:5 calls it God's purpose.
 
@@ -26,7 +26,7 @@ One could have said humanity is what God wants, and you would almost be correct.
 
 It is a serious matter when we are discussing the church. You can't go it on your own when you are walking in God's will. If God's will is the church, it is not something that can be lived out just personally. It is something that involves this community that He ever wanted. I mentioned in Romans 9 that to Israel pertains sonship, which we have well established as God's purpose. You will find that Israel was also described as a church. To Israel pertains sonship, the glory, the covenants, the giving of the law, the service of God. This Israel is also described as a church.
 
-**10:00**
+## Israel as the Foreshadowed Church
 
 Let's look at Acts 7:37 for a direct description of Israel as the church. Here, we see Stephen preaching. "This is that Moses who said to the children of Israel, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear.' This is he who was in the congregation in the wilderness." Some translations say "the church in the wilderness." Moses was amongst the people of God in the wilderness, and he calls them the church. That word "church" used there is the exact same word used for the church everywhere else. The book of Acts uses "church" for the church from the resurrection. Translators will prefer to change it to "congregation" in this context, but it is the same word, *ecclesia*.
 
@@ -38,7 +38,7 @@ If you read the earlier portions of the book, you understand what is calling the
 
 Despite the report they obtained because of the faith they had that redemption would be fulfilled, verse 40 tells us, "God having provided something better for us, that they should not be made perfect apart from us." And all these, having obtained a good testimony or report through faith, did not receive the promise. They were made just, they were made righteous by faith, but they didn't receive the promise. The actual thing God always wanted us to have—His Spirit—they didn't receive it because redemption had not been fulfilled. So despite the depiction in them, they didn't have the substance of it. They didn't receive the promise, God having provided something better for us, that they without us should not be made perfect.
 
-**15:00**
+## Jesus and the Called-Out People Before Redemption
 
 In that era, they were just, righteous by faith, but they were depicting the reality of what God wants: the church. So we can say the church was foreshadowed by them. Today, we can really say they are part of the church. We are now one body; they are part and parcel of the church, one congregation.
 
@@ -56,7 +56,7 @@ By the time He says "tell it to the church here," it is still talking about Isra
 
 He is saying this reality that is applicable now will be applicable when there are gatherings in my name. You will have that same authority. "Whatever you bind on earth will be bound in heaven, whatever you loose on earth will be loosed in heaven." That text actually means what you will be binding on earth is what is already bound in heaven. What is bound in heaven? God has bound or forbidden darkness, death, evil. By the authority you have, you will be opposing the same things. You are not meant to have fellowship with such things. You are supposed to set aside the leaven to not leaven the whole lump. That is exercising the authority of the church.
 
-**20:00**
+## The Church Jesus Builds
 
 People sometimes say what you bind on earth will become bound in heaven. That is not the idea. It is the other way around. What you bind is what is bound in heaven, and it is actually pointing to a future reality because it is the work of redemption that will lose life and bind death. It will defeat death in heaven and bring about the reign of life. Long and short, the church is the complete reality of God's purpose. It was foreshadowed in the Old Testament. It was still mentioned by the Lord. It had a futuristic depiction, an incomplete reality in the time of the Lord Jesus.
 
@@ -68,7 +68,7 @@ He says, "You are Peter, upon this rock I will build my church, and the gates of
 
 The subject matter here is "I will build my church." There is a question of when. There is a question of where. How will He build His church? Who is going to build the church? He said, "I will build my church." We can put the "on this rock" to the side while we deal with the other questions of truth. When did He build the church and where? The gates of Hades will not prevail against it. That means His building of the church has something to do with a particular place, Hades, and Hades' authority. Hades is the realm of the dead. The authority of Hades is death. So the gates of Hades will not prevail against it.
 
-**25:00**
+## Hades, Resurrection, and the Birth of the Church
 
 Acts 2 in Peter's own teaching tells us that Jesus, in the work of redemption after His death on the cross, His spirit went to Hades. His soul went to Hades. This idea of Hades not prevailing against Him is not future to redemption; it is actually what happened in redemption. Death and Hades did not prevail against Him in redemption. Peter had no business with what was going on there. So the rock upon which the church is built, that Hades fails to prevail against, Peter was not yet in view there. The reason Jesus was talking about Peter in this text is a very important reason.
 
@@ -80,7 +80,7 @@ He is bringing Peter into the discussion because Peter is the one who recognized
 
 Ephesians 1:15-18 says, "Therefore I also, after I heard of your faith in the Lord Jesus and your love for all the saints, do not cease to give thanks for you, making mention of you in my prayers: that the God of our Lord Jesus Christ, the Father of glory, may give to you the spirit of wisdom and revelation in the knowledge of Him, the eyes of your understanding being enlightened; that you may know what is the hope of His calling, what are the riches of the glory of His inheritance in the saints."
 
-**30:00**
+## The Church as Christ's Body
 
 What are the riches of the glory of His inheritance in the saints? The inheritance God has given to us is His Spirit. But that inheritance of the Spirit includes the reality of an inheritance involving creation, the severe inheritance. There are texts where you read inheritance and it is about all of creation, like when it says the meek will inherit the earth. There are texts where the inheritance is the Spirit. You must be aware of that in God's Word.
 
@@ -94,7 +94,7 @@ The church is Christ's body, meaning the church is one person with Christ. Marri
 
 1 Peter 2:4-5 says, "Coming to Him as to a living stone, rejected indeed by men, but chosen by God and precious, you also, as living stones, are being built up a spiritual house." Jesus is a living stone; you are living stones. We are identified with Him, fused as one with Him. Therefore, the church is called the body of Christ.
 
-**35:00**
+## One Body Across Gender, Race, and Class
 
 The second critical reality about the church as body, coming from that idea of identification, is that we all share the same reality. We are one, one body, one person. The church as a body means a community of people that share the same reality. We share the same reality across differences. That is precisely what the church means: a body across gender, race, and class. A people sharing the same reality across gender, race, and class.
 
@@ -106,7 +106,7 @@ All of us share this reality of sonship by faith in Christ. Being baptized into 
 
 Now, we proceed. In our study of the church, we reach an important aspect: the local church. When Jesus said, "I will build my church," the next contact we have with the word "church" in the Bible, after Matthew 16 and 18, is Acts 2\. In Acts 2:47, it says, "The Lord added to the church daily those who were being saved." This is not just about the spiritual reality; it was about a physical gathering of people. There is a sense in which we study the church as a spiritual reality—we have come to Mount Zion. But particularly in the book of Acts, the consistent use of the word "church" refers to a physical gathering.
 
-**40:00**
+## The Necessity of Local Church Gathering
 
 In Acts 5:11, "Great fear came upon all the church." It's talking about the gathering of the people that are part of that spiritual body. This gathering of those people is called the church. We can choose to describe this as the local church. It depends on the terms used. In a denomination, you might say "the Fullness of Christ Church" is the general church, and the different locations are local churches. But in this context, "church" as that spiritual reality now has the intended physical gathering, which we refer to as the local church.
 
@@ -118,7 +118,7 @@ One of the words used to describe the coming together of the church is the same 
 
 Why do we need this physical interaction? The major reason the Lord gave is discipleship. That is the reason we saw in Acts 2:42. They continued steadfastly in the apostles' doctrine, in fellowship, in the breaking of bread, and in prayers. The physical interaction is for the sake of discipleship. Discipleship is like raising a child. Ephesians 6 says to nurture children, raise them up in the way of the Lord. You can't nurture a child in a non-physical way. We must banish the idea that there can be a purely non-physical gathering system for the church. There can be the application of virtual tools available to us today, but it can never take the place of the necessity of physical gatherings for the full expression of God's intention. We must interact as a family.
 
-**45:00**
+## Order, Mission, and Individual Place in the Body
 
 There will be meetings. There will be training to perfect the saints. There will be ministry—how it carries out its work. There will be leadership. There will be finances; the order outlines how finances are handled. There will be a natural order. 1 Corinthians 14 says let all things be done decently and in order. In 1 Corinthians 16:1, Paul says, "Now concerning the collection for the saints, as I have given orders to the churches of Galatia, so you must do also." He gave an order to the churches in Corinth, just like he gave to the churches in Galatia. Every church must have order—how it operates, how it is arranged.
 

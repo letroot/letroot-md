@@ -1,6 +1,6 @@
 # Christology
 
-**00:00**
+## Christology as the Central Study of Christ
 
 We are looking at Christology, the study of the Christ. This is level two, so it is just a summary. You get more understanding at level five, but it is a very important subject matter for us to see. We have run down our doctrinal summaries. You remember how we started, that the reason why we need this teaching is that Paul told us there is an exact body of knowledge that God wants us to have, that will equip us to be able to fulfill God's purpose. He called that body of knowledge the unity of the faith, Ephesians 4:13. If you do not have that unity of the faith, you are likely going to be unstable and shaky in your persuasion in the faith of Christ. He wants us to arrive at the unity of the faith, the knowledge of the Son of God. When you arrive at that point, and you are in faith about who you are, you will become strong as a believer to carry out God's will for your life, which is what he called the perfect man, the measure of the stature of the fullness of Christ.
 
@@ -10,7 +10,7 @@ We are looking at Christology because it is a central part of the knowledge of G
 
 Let us start with Ephesians chapter 1 and trace Christ there. What I want to show in Ephesians 1 is that across the doctrine, Christ is plastered everywhere. There is no discussing the reality of our faith without Christ written all over it. When Paul started talking about his outline of doctrine in Ephesians 1:3 all the way to 14, let us count how many references to Christ we see. Verse 3: "Blessed be God and the Father of our Lord Jesus Christ, who has blessed us with all spiritual blessings in heavenly places in Christ." Just as He chose us in Him before the foundation of the world, that we should be holy and without blame before Him in love, having predestined us to adoption as sons by Jesus Christ to Himself, according to the good pleasure of His will, to the praise of the glory of His grace, by which He has made us accepted in the beloved. In Him we have redemption through His blood, the forgiveness of sins, according to the riches of His grace, which He made to abound toward us in all wisdom and prudence. Having made known unto us the mystery of His will, according to His good pleasure that He purposed in Himself, that in the dispensation of the fullness of time, He might gather together in one all things in Christ, both which are in heaven and on earth, in Him. In Him we have obtained an inheritance, being predestined according to the purpose of Him who works all things after the counsel of His will, that we who first trusted in Christ should be to the praise of His glory. In Him you also trusted, after you heard the word of truth, the gospel of your salvation, in whom, having believed, you were sealed with the Holy Spirit of promise, who is the earnest of our inheritance until the redemption of the purchased possession. That is at least twelve times. That is how emphatic Christ is in the doctrine. The Christian doctrine is about Christ Jesus.
 
-**05:00**
+## Christ's Work Ordered Toward God's Purpose
 
 It centers on Christ. When we talk about the Christocentric nature of the message of the gospel, we cannot miss out on the important detail that all Christ did, He did for God's purpose. Sometimes people have a romantic Christianity. It is all about Jesus, which is true, but sometimes the way people romanticize Christianity makes you wonder if they are serious about the actual mission. The work of redemption is so awesome that we should be in awe. I appreciate it when people have that deep value for the person and work of Christ Jesus. But if you really value redemption, you must copy and paste that value to why redemption was done, which is God's purpose. I value what Christ has done, therefore I must seek to fulfill His purpose. The Lord told us that His servants who do not find out His will but do wrong will be beaten with few stripes. But the one who knows His will and does not prepare and do according to His will, will be beaten with many stripes; they will receive a stricter judgment.
 
@@ -20,7 +20,7 @@ Christ is very emphatic in the doctrine; there is no question. Twelve times with
 
 In Genesis chapter 3, after man has sinned, starting from verse 14 all the way to 19, you must distinguish two things. You will see certain tenses that are talking about consequences—because you have done this, you are cursed. While you see other tenses that are active and direct—I will do this. Genesis 3:14 says, "Because you have done this, you are cursed more than all cattle." Verse 15 says, "I will put enmity..." Verse 15 is God's direct initiative. Verse 14 is not His direct initiative; it is a consequence. God says, "I will put enmity between you and the woman, between your seed and her seed; He shall bruise your head, and you shall bruise His heel."
 
-**10:00**
+## The Promised Seed and the Need for Christ
 
 Look at the next statement when He was talking to the woman. He says, "I will greatly multiply your sorrow and conception." This is not simply saying that childbirth will be very painful. He is saying there will be multiple births leading up to someone. "In pain you shall bring forth sons; your desire shall be for your husband." The word for husband in Hebrew, just like in Greek, is the same word for man. In English, we have "man" and "husband," but in Hebrew, "Ish" is both man and husband. In Greek, "aner" is both man and husband. So when it says, "your desire shall be for your husband," it is actually saying you will be longing for the man. The man in question is the seed that He promised the woman, which is the Christ. He told the woman, "I will greatly multiply your sorrow and conception," referring to the instances of birth. "You will bring forth sons and your desire will be for the man, and he shall rule over you." This is talking about the rule and the reign of the Christ.
 
@@ -28,13 +28,13 @@ To show you that they were expecting that man or seed, they used the same word "
 
 We see that there is a need that gives rise to the Christ. What is that need? Sin, death, darkness, and evil. Now to appreciate the identity of the Christ, we must ask, who is this Christ meant to be? We are saying that the Christ is the only viable solution to the problem of sin. The word "Christ" simply means anointed. In Hebrew it is "Mashiach", and in Greek it is "Christos". High priests were anointed and could be called Christ. Kings were anointed and could be called Christ. Prophets were anointed and could be called Christ. But there was the idea that there is one person who is anointed, chosen, and consecrated specifically for solving this problem. Notice that the work of the high priest, the king, and the prophet were all redemptive works. They were to deliver, protect, and preserve the people. There is someone that will definitively play such a role, delivering us completely and preserving us. This was prefigured in several persons before His arrival.
 
-**15:00**
+## The Christ Must Be Light by Nature
 
 What is the only viable reality for the person that will fulfill this role? The problem the person is coming to solve is darkness and death. How do you solve the problem of darkness? You bring light. It means whoever the Christ will be must be light by nature.
 
 Based on the need of the Christ, the only viable person that can be the Christ must be someone who is light by nature. Remember, there is God who is self-existent, and there is creation. God by nature is light. Anything that is first by nature is what God is. Light is first by nature; that is what God is. Life is first by nature; God is life. Righteousness is first; God is righteousness. There is God, who is self-existent, and there is creation, which is what God has made. Creation is a contingent existence, meaning it is not necessary and does not exist by itself; it is dependent on God to be there. Creation has now been affected by sin, death, and darkness. It means nothing in creation can save creation. We are looking for the identity of the Christ, and because creation is now in a state of death, darkness, and evil, we need light. The only option left is the Creator. Only God who is light can enter into that darkness and dispel it. Creation cannot save creation. Sometimes people ask about angels. As far as the Bible is concerned, angels are beneficiaries of that redemption from darkness. Angels are not qualified because they are themselves created beings.
 
-**20:00**
+## The Christ Must Be God and Man
 
 Angels are not self-existing beings. Even from the Old Testament texts, we can see that. Nehemiah 9, Job 38, and Psalm 148 talk about angels being created. The identity of the Christ requires that the Christ is not part of creation, because all of creation is affected by sin, death, and darkness. This means the only option for whoever will be the Christ is that He must be the Creator. He must be light and life by nature.
 
@@ -42,7 +42,7 @@ The second thing about the identity of the Christ is that He is meant to come an
 
 If the reality of the Christ is about solving the problem of sin, death, and darkness, the Christ must be God, and the Christ must be man. That is philosophically necessary. He must be the seed of the woman. He must be God, having life, light, goodness, and righteousness by nature. And He must be man so that He legitimately becomes part of creation to legitimately resolve creation's problem. The Christ cannot simply deal with the problem in an illegitimate way.
 
-**25:00**
+## Promise, Pattern, and Redemptive Typology
 
 Otherwise, our salvation would always be hanging in the balance. He must deal with the problem in a legitimate way. Man has legitimately brought sin and death into the world, and man is meant to suffer the consequences of sin and death. If the Christ will legitimately deal with the problem, He must bear those consequences so that sin and death would have had its problem resolved legitimately and completely. It is necessary that the Christ is God, and also necessary that He is man. This is what sound philosophical theology and biblical theology will lead us to: the Christ must be God and man. When we see templates of the Christ in scripture, we can tell these individuals are not the actual Christ; they are not God that became man. They are examples of the Christ because of their faith in Him. But the Christ is the one who is God Himself and yet becomes part of creation at its highest level, man, to fix the problem of our existence.
 
@@ -50,7 +50,7 @@ In light of the need for the Christ and the necessary identity of the Christ, we
 
 That is why we say Genesis 1:1 to Genesis 2:3 is a redemption account. That account is not telling the actual creation of the world in six literal days. It is showing us a redemption account. Everything in Genesis 1 was about the earth being restored. The first day, light was brought back. The second day, space was brought into the flooded earth to divide the waters above from the waters beneath. Notice that the cloud was not created, nor was the sea created. There was a flood, and space was introduced to restore things back to what they should be. God said, "Let the waters be gathered together and let dry land appear." Dry land was already there, but it was flooded. Where we start to see the need to recreate things is with the stars, which were obscured or destroyed by the flood, the plants where life was being restored, the animals being restored, and humanity as well.
 
-**30:00**
+## The Necessity, Identity, and Pattern of Christ
 
 The need for the Christ is sin, death, and darkness. The identity of the Christ is necessarily God and man. The only person that can legitimately resolve the sin problem is God and man. It is only God who can bring His life to dispel darkness, and it is only as a man that He can fully address the effects of sin and death. If He comes as anything other than a man, He can only address sin and death to the degree of that entity. The necessity of redemption requires God and man.
 
@@ -58,7 +58,7 @@ The third thing we see is the promise and pattern of the Christ. The first promi
 
 These individuals were unable to solve the root problem. We need the person who fulfills that ultimate redemptive work. For example, Psalm 22 says, "My God, my God, why have you forsaken me?" It was David talking about himself and his experiences. The things David was going through were prophetic patterns. Whatever David went through, the Christ would go through the ultimate fulfillment of it. The prophetic pattern speaks of the Christ Himself. This is why we study prophetic patterns in scripture, so that we can align with the right side of the cosmic drama. There are certain patterns in scripture that show us how to walk with God and align with truth.
 
-**35:00**
+## Prophetic Promises and the History of Jesus
 
 We must know what part we are aligning with; we must be very careful in that regard. We see the promise of the Christ and the pattern of the Christ. The heaviest promises of the Christ are found in books like Jeremiah and Ezekiel, where they speak about the Branch that will come from David. Some might argue that we are seeing Zerubbabel there, or that it was fulfilled with deliverers during the intertestamental period, but I believe those prophecies are directly pointing to Christ in finality. We consistently see promises and patterns of the Christ in scripture.
 
@@ -68,13 +68,13 @@ When we read the four gospels, we see all these events playing out. People were 
 
 The history of the Christ begins with the anticipation of the Christ, starting with John the Baptist, leading to the birth of the Lord Jesus, all the way through His youth and adulthood. At Level 5, we go through the history of the Christ thoroughly and address questions people raise, such as the claim that Jesus learned magic tricks in Egypt.
 
-**40:00**
+## Evidence for the Life and Work of Jesus
 
 Some people claim He went to India or learned magic in Egypt. Jesus went to Egypt when He was about two years old, and He only stayed there for a period of eight months to one year. What magic tricks could a two- or three-year-old learn? If you calculate the time from when He went to Egypt to when He came back, based on the death of Herod, it was a very short period. There is no evidence of Jesus learning any strange things in Egypt, nor is there evidence of Him going to India. After the brief time in Egypt, He was in Israel throughout His life. His family was likely too poor to travel extensively; they only went to Egypt because the wise men brought gifts that provided the means for them to travel.
 
 I do not have the visual privilege of Thomas or the original twelve disciples, but I am satisfied by the evidence that I have, just as Abraham was satisfied by the evidence of his time. The life of Jesus perfectly satisfies the philosophical necessity and the prophetic promise. That is the basis for faith, which is why the Lord said, "Blessed are those who have not seen and yet have believed."
 
-**45:00**
+## Christ's Work, Kingdom, and the Trinity Question
 
 At level 5, we run through the entire narrative of His life and the entire narrative of the work of redemption. We look at all the accounts in their own right and put them together. We piece together every step of redemption all the way to the resurrection. After studying the history and redemptive work of the Christ, the last thing we look at is the kingdom of the Christ. His resurrection brings about His kingdom, and He establishes that kingdom via the church—those who will reign with Him. The mandate of the Christ is the final part of Christology.
 
@@ -82,7 +82,7 @@ Christology is simply the study of the necessity, identity, promise, and pattern
 
 When we talk about the identity of Christ, the question of the Trinity comes up. How should a believer treat the Trinity? We face this issue because when we see Jesus in the Word, we see Him praying to the Father. We see a sense of submission, subordination, and worship in His interaction with the Father. Paul speaks of this in 1 Corinthians 15, saying the Son Himself will be subject to the Father. If the Christ is God who became man, are there three Gods? The theological answer is no, there is one God in three persons. It is not three modes of one God; it is one essence in three persons. This is the Nicene formulation. I believe they did a good job trying to reflect and present the Trinity, but perhaps they did too good a job—more than what can be strictly spelled out biblically. Their formulation can sometimes carry a tritheism effect, making it seem almost like polytheism, even though they clarify that the essence of God is one. What we are often missing is that the Trinity is a matter of revelation. It is not a matter resolvable purely by observation and reason. There is a limit to what reason can do in spelling out this mystery.
 
-**50:00**
+## The Trinity as Revealed Mystery
 
 It is a mystery that must be revealed. A mystery is anything that we cannot observe and reason out on our own. Ordinarily, we can observe and reason that there is a God. We can observe the nature of God—that He is self-existent, has intelligence, and has character—because He brought forth a world where there is intelligence and character. But we cannot observe and reason the internal dynamics of God. It is beyond our limits. Observing creation tells us there is a God, but the internal dynamics of His person cannot be deduced by reason alone. We must accept it by faith.
 

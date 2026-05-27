@@ -1,5 +1,7 @@
 # The New Creation
 
+## The New Creation as the Core of the Doctrine
+
 The new creation is the most important teaching in the sense that it is the core of the doctrine of Christ. I often say that every other part of the teaching is to make us sure that the faith of Christ is true, so that we can focus on the new creation for our growth and walk. Every other part of the teaching of the doctrine of Christ is to give us certainty, to make us sure it's true, and stability. When you lack certainty and stability, if someone challenges your worldview or your position, you start to doubt entirely. You start to have anxiety, wondering if you are really sure you are right. But once you have been grounded in the truth, you have certainty and stability. Then you can focus on what to do with all that you now know, which is to grow and to walk. That is precisely what the new creation is about.
 
 It is for this reason that the entirety of level four in the Pleroma Perfecting Course is about the new creation. It is the big deal in doctrine. You can never go wrong teaching the new creation. I often say you can never overemphasize the new creation. How could you? It is the very thing that makes for our walk. The Pleroma Perfecting Course is designed to perfect you to fulfill God's purpose. We have said that there is God's purpose for our life we are meant to fulfill, but we need to grow to fulfill that purpose. What we are growing in exactly to fulfill God's purpose is the reality of the new creation.
@@ -14,7 +16,7 @@ Verse 15 doesn't talk about that idea of certainty and stability. Verse 15 rathe
 
 The teaching is on the new creation. The teaching that will cause you to grow into Christ is on the new creation. If you read Ephesians 4:20-24, you might almost think, is that the only thing we have to teach in church? Because it is the end goal and emphasis of the church teaching. The unity of the faith is not just that, but because this reality of the new creation is the end goal and emphasis of the church teaching, that's why you see it spoken of in that manner. Without any doubt, the new creation is the major teaching of scripture that we should know.
 
-### **05:00 \- Defining the New Creation**
+## Defining the New Creation
 
 The first thing we are going to look at is an introduction to the new creation. The statement I want to make is that the new creation is God's purpose fulfilled via redemption. What we are calling the new creation is God's purpose. If there wasn't sin, we wouldn't call the new creation "new creation." We would have spoken of the fact that we are sons of God without that dynamic of sin, death, and darkness, even though there might be a conceptual recognition of it. When we talk about the new creation, it is from the reality of sin, death, and darkness that we have come to God's purpose as new, from something else that is the old.
 
@@ -24,7 +26,7 @@ That's what makes it all the more important. We have to remind ourselves what Go
 
 That reality of sonship, which was presented in Genesis 2 as life, is what the new creation is. Romans 6:4 says that by the resurrection of Jesus, we have entered into the newness of life. It is the same life that was being presented to man. 1 John 3:14 says that we have passed from death to life. We know this because we love the brethren. Ephesians 5 says you were once darkness, but now you are light in the Lord. Walk as children of light. We should not walk in darkness. That light that was spoken of in Genesis 1, 2, and 3, that was lost, bringing in darkness, that was restored—"let there be light"—is who we are now. It's what God wanted. It's His purpose. Every depiction of God's purpose running through the entire scripture is now fulfilled via redemption in what we can now awesomely label as the new creation. It means I'm not this, I'm that. It means I'm not darkness, I'm light. It means I'm not death, I'm life. I'm not sin, I'm righteous. I'm not flesh, I'm spirit. I'm talking about flesh the nature of the old man. I am spirit, the spirit of God, the reality of the new man. It's so central.
 
-### **10:00 \- Scriptural Descriptions of the New Creation**
+## Scriptural Descriptions of the New Creation
 
 Without going back to look for what this unity of the faith is, you already know this is a major part of the doctrine. When you go back to the outline of doctrine Paul gave us, you will see it all through that outline. The very first statement in the outline of the doctrine was about the new creation: "Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly places in Christ." The very first thing he is stating, to start his discussion, to start his examination of the doctrine, is that we are grateful that we are like this. It all began with God having a purpose before time. It began with the new creation.
 
@@ -32,7 +34,7 @@ The exploration continues with acknowledgment of the new creation at every junct
 
 When you get to level five on the new creation, there is so much that we are going to say. We will take you patiently through every description of the new creation in the Old Testament text all the way to the new. The new creation is light, is life, is blessed, is circumcised, is the true Israel. In the New Testament, we eventually summed it up, after looking at all the texts, into forty-eight descriptions. I think in the Old Testament, we summed it up into twelve. It has a new heart. Looking at the different descriptions here and there of the new creation, we have done that just by saying it is God's purpose fulfilled via redemption. You are a son of God, you are a child of God, you are an heir of God, you have God's nature, you are a partaker of the divine nature. You have the fullness of divinity. Colossians 2:9-10 says, "For in Him dwells all the fullness of the Godhead bodily; and you are complete in Him." We have the fullness of divinity. 2 Peter 1:4 says we are partakers of the divine nature. 1 Corinthians 6:17 says we are one spirit with the Lord.
 
-### **15:00 \- Our Status, Character, and Abilities**
+## Our Status, Character, and Abilities
 
 When we speak about the new creation, in appreciating the reality of the new creation, there are several texts upon which we can establish the preference of the description "new creation" for this purpose of God fulfilled via redemption. Ephesians 4 is one. We should put off the old, put on the new. Describing this our new reality as new creation is a preference established from the manner of explanation we find from the apostles. The clearest text on this would be 2 Corinthians 5:17. The context of this particular text helps us to see who we are as new creations in a very beautiful way. "Therefore, if anyone is in Christ, he is a new creation; old things have passed away; behold, all things have become new."
 
@@ -42,7 +44,7 @@ The reason I wanted us to come to this text is first to read the verse that is t
 
 When we regard people according to the flesh, for example, someone sees me and says, "That guy is a male." He has not said that guy is a new creation. He is not thinking about me from the spiritual standpoint. He is thinking about me from the natural standpoint. He might never even say I'm a new creation. There is no such means of description in his own worldview. He will say that guy is a male, that guy is tall, that guy is African, European, or American. He will say that guy is a billionaire. He could talk about my class, my race, my ethnicity, my gender. He is judging from a natural standpoint. He's saying we believers have learned not to just judge from the natural standpoint anymore. We don't judge people from the flesh. That's not our spectrum of judgment as believers primarily. Of course, there will be a place for that naturally. We consider people from the standpoint of the spirit. This person is a new creation. Our mode of judgment is not primarily in the flesh, in the natural. We are not judging by race, gender, and class primarily; we are judging spiritually, the status of people spiritually, their nature spiritually. This requires an understanding of the dual reality of humanity. Every human has a natural reality and a spiritual reality. That is why your judgment might stop with the natural, even though your judgment ought to be spiritual.
 
-### **20:00 \- The Three Categories of the New Creation**
+## The Three Categories of the New Creation
 
 Typically, someone that is not in the faith of Christ has no basis for judging people spiritually. We are just all human beings, there's nothing much to it. By virtue of our worldview via redemption in Christ, our judgment of people cannot just be natural. It should be primarily spiritual. We must understand that people are natural and spiritual, material or physical and metaphysical. 2 Corinthians 4:16 gives us a basis for that submission. "Therefore we do not lose heart. Even though our outward man is perishing, yet the inward man is being renewed day by day."
 
@@ -56,7 +58,7 @@ Having established the new creation in this manner, what are the realities about
 
 What is it that is the reality of this new man? What is it that is the reality of our spirit? There are three categories, or three things to look at when we speak about the reality of the new creation. When you become a new creation, we can classify the reality of who we are into three categories. The first is our status. The second is our character. The third is our abilities. We can look at the reality of the new creation in these three areas.
 
-### **25:00 \- Status of the New Creation: Freed from Sin, Children of God**
+## Status of the New Creation: Freed from Sin, Children of God
 
 What is our status? The first thing in our status is that we are free from sin. Under this, we talk about the reality of the forgiveness of sins, of no condemnation. We are entirely free from sin. The new creation has a new status. There is now no condemnation for those who are in Christ Jesus. If you check the man, the man is not damnable anymore. John 5:24 says, "He who hears My word and believes in Him who sent Me has everlasting life, and shall not come into judgment, but has passed from death into life." The status of that man is that he can never be judged to condemnation. He will be judged for his works unto rewards, but he can never be judged unto condemnation. That man is free from condemnation, free from any such demands and holds of judgment completely. That is the status of the man.
 
@@ -66,7 +68,7 @@ Someone might say, "That's my child," because they adopted the person and accept
 
 We are free from sin, we are children of God. The third thing in our status is we have authority over darkness.
 
-### **30:00 \- Believer's Authority and the Character of the New Creation**
+## Believer's Authority and the Character of the New Creation
 
 That is the devil and his cohorts. That is the third thing in our status. When you get to level five, this is the reality of the believer's authority. It's one of the primary things to know. When you know about the forgiveness of sins as a new creation, your status as forgiven without condemnation. When you know about the fellowship you now have with the Father, you are His child, called to fellowship with Him. You should know about the authority of the believer.
 
@@ -76,7 +78,7 @@ He has gripped them with fear, then slaps them to wake up, saying, "It's your fa
 
 In supplication, which is usually in ministry over the lives of people, there is a need for the supply of power for preservation, for salvation, for growth. Not for the devil messing around with you. No way. You have the believer's authority. This is the reality of the new creation. You have authority over darkness. These are the foundational truths about the new creation. No condemnation is foundational. Boldness to relate with the Father as a child of God is foundational. Believer's authority is foundational. Status is status; stand there. That's your status, the reality of the new creation. I get annoyed when I see people glorifying the devil. I get annoyed because I know what he can do. It's a lie that he can't do anything; he can. The main reason he can is usually that preachers fuel what he does. The preaching almost caused me a problem once, and it was very serious. I was praying, asking God to help me because the principalities were trying to stop me. Then I read a book and realized I didn't have any business fighting him. I was seated far above him. I was angry. People's minds have been captured for the devil by people glorifying the devil.
 
-### **35:00 \- The New Creation Character and Abilities**
+## The New Creation Character and Abilities
 
 Instead of freeing them, you keep that mindset and tell them to fight him with the mind that he is really strong. You are supposed to dismantle that stronghold. You should pray for them, that whatever is affecting this person is a stronghold.
 
@@ -84,7 +86,7 @@ We must recognize our character. We have the very nature of God when it comes to
 
 What about our abilities in Christ? We have utterance, revelation, and power. These are the gifts of the Holy Ghost. It is our character and nature to forgive anybody. Someone abused you—it's your nature and character as a believer to forgive. Don't waste your mental space on anyone. You have limited mental energy. Not forgiving someone requires consistent mental energy; every time you remember, you recall you are not forgiving them. You are burning your mental space. I don't have time or space to be offended. Why would I be offended? The reason I don't get offended is that I used to have compassion for people I should be offended at. I realized that if they did something to me, it means something happened to their mind that made them like that. It's a problem they are dealing with. Why are they acting like this? Love, forgiveness, and righteousness—that is our character.
 
-### **40:00 \- The Growth of the New Creation**
+## The Growth of the New Creation
 
 The abilities we have are utterance, revelation, and power.
 
@@ -94,7 +96,7 @@ The growth of the new creation pertains to the mind. Ephesians 4:17-19 makes tha
 
 The major things to note are consideration, conviction, and consciousness. The mind is where growth happens. When you are told to be transformed by the renewing of your mind, what makes you grow to walk is your mind. Our spirits are exactly the same, fused with God's Spirit. What causes growth in your mind is what you are considering. Of all the things you consider, you don't agree with all of them. Someone can say something, and you reject it as nonsense. It enters your mind, your memory, but not your conviction. We considered other belief systems before getting saved, but we do not agree with them. We have the knowledge of them in our memory bank, but they are not in our conviction. Our free will considered other things and accepted the truth, leading to conviction. If care is not taken, those things that pass through consideration and go to memory might become your consciousness if you do not deliberately use your free will to make the truth of God's word your consciousness, which is faith. You must be full of faith about the realities of Christ. When you say you are growing in your mind, the first thing is conviction—knowledge of God's word that you agree with. The second thing is consciousness.
 
-### **45:00 \- The Operations and Natural/Spiritual Assignments**
+## The Operations and Natural/Spiritual Assignments
 
 This requires conviction of knowledge first, then growth happens by the faith stand or consciousness of that knowledge. Growth requires conviction of knowledge first, then growth happens by faith or consciousness of that knowledge. You must be fully aware of, convinced about, and conscious of who you are.
 
