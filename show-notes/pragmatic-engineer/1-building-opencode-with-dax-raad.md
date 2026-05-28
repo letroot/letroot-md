@@ -29,6 +29,8 @@ Dax Raad, co-founder of [[OpenCode]], joins [[Gergely Orosz]] on [[The Pragmatic
 
 *   **[[Quality as Differentiator]]**: When OpenCode launched, the key differentiator against [[Claude Code]] was that the terminal experience just felt better. They built their own rendering framework -- the "irrational" thing no engineering team should do -- and it gave them a quality edge against a much larger, better-funded competitor.
 
+*   **[[One Great Idea]]**: You probably only have one good idea in your whole product. The job is to get the user to experience that as fast as possible, with zero accidental steps between hearing about your product and seeing the value in it. Dax runs a clean Docker container every two weeks just to re-experience OpenCode's first-time flow. Every time, he catches friction they accidentally introduced. That relentless focus on reducing steps to the core value is what powered OpenCode's bottom-up adoption.
+
 *   **[[Domain-Driven Design for AI Agents]]**: Old enterprise patterns like [[DDD]] are coming back because coding agents are "a bunch of idiots working 24/7." The verbose patterns humans hated writing? Agents don't care about verbosity. You get modular, safe code without the human cost of typing boilerplate.
 
 *   **[[Regulatory Arbitrage as Strategy]]**: When [[Anthropic]] blocked Claude subscriptions in OpenCode, Dax immediately messaged [[OpenAI]] to take the opposite stance. The strategy: pick one temporary bad guy, galvanize all their competitors, push forward. They got [[GitHub Copilot]], [[Microsoft]], [[Google]], and others to rally around OpenCode as the neutral alternative.
