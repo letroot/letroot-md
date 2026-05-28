@@ -1,0 +1,1 @@
+check Level 3 (https://drive.google.com/drive/u/1/folders/13YEZFX5I0PnL3DxQ7WyHuKLYaA2kTiiF), prefer Edited matches, download new MP3s, convert to static-image MP4s into /Users/letroot/Music/purgatory/PLEROS-COURSES/pleros-level-3
