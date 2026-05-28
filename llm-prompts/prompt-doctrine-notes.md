@@ -10,6 +10,10 @@ Instructions:
 - Preserve the speaker's real message and wording as much as possible.
 - Keep the transcript substantively verbatim, but clean it for readability.
 - Remove transcript noise, timestamps, markup, subtitle artifacts, speaker-label clutter, duplicate lines, and obvious caption/transcription errors.
+- When a missing, broken, or clearly wrong word can be recovered with high confidence from the immediate and broader thematic context, restore or correct it.
+- Be conservative with contextual repairs: only insert or replace words when the intended wording is strongly supported by the surrounding thought, argument, doctrine, or sentence structure.
+- Be especially alert for Greek words, Greek transliterations, and technical theological terms that may be omitted, split incorrectly, or misspelled in the source transcript; correct them when the intended term is clear from context.
+- Do not guess at uncertain words, especially specialized terms, names, or Greek expressions; if the intended wording is not reasonably clear from context, preserve the safest readable form instead of inventing content.
 - Remove non-substantive filler and verbal clutter when it does not carry real meaning, including:
   - repeated fillers such as "um," "uh," "you know," "I mean"
   - false starts and repeated fragments where the intended sentence is clear
