@@ -1,7 +1,5 @@
 # Spiritual Warfare
 
-We're looking at spiritual warfare. Amen. It's a very, very important teaching. Spiritual warfare. Are you ready?
-
 Imagine you are in a war and you don't know. That's going to be a problem. The most dangerous thing, what is more dangerous than being at war, is not knowing that you are at war. That's worse. It's already dangerous enough that you're at war, because of course war is not nice. But what is worse than being at war is not even knowing that you are at war. That means if you don't know that you are at war, you are unable to install defenses and, as we're going to see when we get there, launch attacks, because you don't even know that you're at war.
 
 That also makes you highly susceptible. You are highly susceptible to the attack from the enemy. Not knowing that you are at war is the only thing more dangerous than being at war.
@@ -20,13 +18,11 @@ That is one of the ways we can have this sense that there is a battle going on. 
 
 And he's saying that because there is war after the flesh that is usually going on in the world. In his time there were all sorts of wars happening as well. We do not war after the flesh.
 
-Look at verse 4. He says, "The weapons of our warfare are not carnal, but mighty in God for pulling down strongholds." Understanding what warfare is about, Paul says warfare requires weapons. The rule with weapons of warfare is that they are meant to do two things. Weapons of warfare do two things. They defend and they attack. The weapons of our warfare are not carnal, but they are mighty in God for pulling down strongholds.
+Look at verse 4. He says, "The weapons of our warfare are not carnal, but mighty in God for pulling down strongholds." Understanding what warfare is about, Paul says warfare requires weapons. The rule with weapons of warfare is that they are meant to do two things. They defend and they attack.
 
 So Paul is saying we are at war, and this war is not in the natural. This war is in the spiritual. This war has its weapons, which means its instruments of defense and attack. So if we go by what Paul is saying in verse 4, there is a warfare going on, and we have weapons of that warfare.
 
 So there is war that we are in whether we like it or not, and we are supposed to engage in that war. There is war we are in and we are meant to engage in that war. In fact, interestingly, the verb of the word war was used in these two texts. So in 2 Corinthians 10:3 he used that word war: though we walk in the flesh, we do not war after the flesh. In this case, when it says wage a good warfare, it uses the verb. We are at war. We are to fight. We are to engage militarily in that warfare. To war a good warfare.
-
-Actually we can argue that 2 Corinthians 10 and 1 Timothy 1 are kind of the same, because when he's talking about the weapons of war there, he's speaking from an attacking point. They cast down. He's also going to speak from a defensive point later in the writing. So he's telling Timothy, by prophecy, to go and wage a good warfare with the weapons of our warfare that are mighty, strong enough in God to defeat the enemy.
 
 That word war, the verb, is also used in some texts I want us to see. James chapter 4 and verse 1: "Where do wars and fights come from among you? Do they not come from your desires for pleasure that war in your members?" So he is speaking about war, and he's talking about lusts waging a war. Peter is going to say the same thing. First Peter chapter 2 and verse 11: "Beloved, I beg you as sojourners and pilgrims, abstain from fleshly lusts which war against the soul."
 
@@ -38,19 +34,19 @@ Verse 12 says, "For we do not wrestle against flesh and blood, but against princ
 
 In Luke chapter 11, the idea of warfare is seen there relative to demons. Luke 11:21 and 22 is a warfare description, but it was premised on casting out demons. "When a strong man, fully armed, guards his own palace, his goods are in peace. But when a stronger than he comes upon him and overcomes him, he takes from him all his armor in which he trusted and divides his spoils."
 
-Do you know that's a warfare description? So when a strong man is fully armed, the defense is good. This was a common understanding. There was a time Babylon was so strong until someone else now defeated Babylon and took over. Persia and Media were now so strong until someone else defeated them. That should be Greece. Greece was so strong for a while until the empire got divided after the death of Alexander the Great, then until Rome took over. A strong man can maintain his house, his kingdom, until one defeats him. So it is a warfare description, and it was understood by his audience.
+Do you know that's a warfare description? So when a strong man is fully armed, the defense is good until a stronger one defeats him. It is a warfare description, and it was understood by his audience.
 
 That is why the statement he made, preceding it, was about the kingdom. Luke 11:14 says he was casting out a demon, and it was mute. So when the demon had gone out, the mute spoke and the multitudes marveled. Some of them said he cast out demons by Beelzebub, the ruler of demons. Others, testing him, sought from him a sign from heaven. But he, knowing their thoughts, said to them, "Every kingdom divided against itself is brought to desolation, and a house divided against a house falls. If Satan also is divided against himself, how will his kingdom stand?" So the whole issue of the strong man is a kingdom issue.
 
 He is showing the way death reigns. The reign of death is that if it is allowed to come back, it will come back worse, more forceful. And that is whether it is spirits that are involved or just the general workings of death, even the flesh and its lusts.
 
-Brothers and sisters, this is very important. One thing is indisputable. As far as the revelation of God from his authoritative documents is concerned, there is war. There is war. There is spiritual warfare. It is well stated. It is well described. It is well attested to.
+this is very important. One thing is indisputable. As far as the revelation of God from his authoritative documents is concerned, there is war. There is war. There is spiritual warfare. It is well stated. It is well described. It is well attested to.
 
 That idea of spiritual warfare and a confrontation with the devil is seen particularly in Hebrews chapter 2. Hebrews 2:14 says, "Inasmuch then as the children have partaken of flesh and blood, he himself likewise shared in the same, that through death he might destroy him who had the power of death, that is, the devil."
 
 ## The Origin of Spiritual Warfare
 
-The devil is the one that seems to be the manager and steward, the handler, the leader of this opposing force or the opposing forces in this warfare. What led to this warfare? What is the origin of this spiritual warfare? We have settled that there is that war. What is the origin of this spiritual warfare?
+The devil is the one that seems to be the manager and steward, the handler, the leader of this opposing force or the opposing forces in this warfare. What led to this warfare? What is the origin of this spiritual warfare? We have settled that there is that war.
 
 I'm going to say this: God's purpose by design made the war a possibility. God's purpose did not create a war, but by design, his purpose made that war a possibility.
 
@@ -60,9 +56,9 @@ We might not have had war. We might just have had tyranny. If God is willing to 
 
 So God's purpose creates the possibility of war.
 
-Let me say something quickly maybe as part of introduction. The fact that we are under war, we are in war, or we are under attack is no reason for fear at all. This is why whenever people teach spiritual warfare, they always make people concerned, people go into fear. There are even people that I think revel in people being in fear. There was one like that I was playing and the way the person was speaking, you would have literally seen people shaking, crying, as he was talking. I won't lie, some of what he was saying is true, but the manner in which he was saying it was as if he left them grasping for any form of hope after threatening them, and the hope was not even so certain.
+Let me say something quickly. The fact that we are under war, in war, or under attack is no reason for fear at all. Spiritual warfare should not be taught in a way that leaves people in fear.
 
-So it is man's rejection of God's purpose that is the background to this war. God's purpose by nature creates the possibility of war. Man's rejection of that purpose is the background to the war. God's determination for redemption is the reason for war. He is not going to put up with the reign of sin and death. The fact that it is war is because God says no. This is not going to be allowed. I will do this, and there will be warfare. I will put enmity. That is declaring war.
+So it is man's rejection of God's purpose that is the background to this war. God's purpose by nature creates the possibility of war. God's determination for redemption is the reason for war. He is not going to put up with the reign of sin and death. The fact that it is war is because God says no. This is not going to be allowed. I will do this, and there will be warfare. I will put enmity. That is declaring war.
 
 We are not going to put up with it. We are going to fight back.
 
@@ -94,7 +90,7 @@ God's opposition is the major reason why we are at war. I am not saying that is 
 
 ## The Nature of the War
 
-Now we have seen the origin of this war. What is the nature of this war? There are wars that are fought on water. There are times where the nature of the world, depending on who is the aggressor and where they are trying to enter through, makes the war take place in a particular arena. What is the nature of this war? Is it a war being fought on water? Is it a war being fought in the sea?
+Now we have seen the origin of this war. What is the nature of this war? There are wars that are fought on water. There are times where the nature of the world, depending on who is the aggressor and where they are trying to enter through, makes the war take place in a particular arena. Is it a war being fought on water? Is it a war being fought in the sea?
 
 Sometimes people's conception of spiritual warfare is just weird. There is nothing about the devil and his cohort being inside water. The people that are really causing problems are not inside water. They are in the air, they are around us, like angels who are around. He is the prince of the power of the air. By that we mean the spiritual world overlapping the material world.
 
@@ -118,19 +114,13 @@ There are levels to this thing. There are times people are witches and wizards n
 
 Any believer that is doing that is functioning with a spirit that is not of God. Like Jesus said about what Elijah did, you do not know what manner of spirit you are of. That's not the spirit of God. If you are stewarding death and darkness, you are functioning for the good of the devil. Whether that is what he now does by identity, persuasion, or just by his consciousness, that is what the person is about to do.
 
-That person, in that situation, was functioning as a son of the devil, a manager of death and darkness. There are people that by duty and worldview give themselves to managing death and darkness. Witches and wizards, you might say. Don't complicate it. It is not a matter of they wore red clothing at night or whether you have seen them flying physically. A witch or a wizard is just a manager of death and darkness spiritually, just like you are a manager of life and light.
+That person, in that situation, was functioning as a son of the devil, a manager of death and darkness. There are people that by duty and worldview give themselves to managing death and darkness. There are also people, even believers, who do it in practice by the way they speak and act. So do not complicate it into only dramatic pictures.
 
-There are people that have a different worldview that are not managers of death and darkness. In fact, God will still answer them because they are seeking light and life through another means. They are still wrong, they are still in the flesh, they are still in darkness as per their worldview, but as per God making his rain to shine on the just and the unjust, what is available to all men is still from him.
-
-There are even believers that can be managers of death and darkness by their state of mind, their consciousness, even when their conviction is different. Have you not seen people that curse their children? That's a witch in practice. The child, if not careful, it can lead to problems. They are using words wrongly. So it doesn't have to be all fine cloth and everything. Someone can be a witch in practice and not a witch in identity, not one in identity by worldview and conviction, but by the way the person conducts and acts, the person acts that way, a manager of death and darkness.
-
-Death is called an enemy. In fact, if I had the time I would show you more. He said, I give you authority over serpents and scorpions, over all the power of the enemy. That is the devil and his cohort. I give you authority over all the power of the enemy, and nothing shall by any means hurt you. So are we at war? Yes. Is there an enemy? Yes. Does he have power? Yes. Does he have authority? As we will see, no.
+Death is called an enemy. In fact, if I had the time I would show you more. He said, I give you authority over serpents and scorpions, over all the power of the enemy. That is the devil and his cohort. I give you authority over all the power of the enemy, and nothing shall by any means hurt you. So are we at war? Yes. Is there an enemy? Does he have power? Does he have authority? As we will see, no.
 
 God has declared war. He has declared enemies. So we have enemies, or we have an enemy, or we can say enemies. Death is an enemy. Darkness is an enemy. The devil and his cohort are enemies. Humans that make themselves managers of that, we have to stand in enmity against what they are doing, whether they are witches in practice or sorcerers, people of death and darkness in practice, or even by identity, worldview, conviction.
 
-Some people are just used to doing that. They don't know better. That's how it was passed down. The devil has deceived them to keep talking like that, and they are affecting themselves, affecting their children, orchestrating all sorts of things in their lives. Be careful around who you tell your information. There are people that will just open their mouth talking anything and everything. Be careful.
-
-People's lives are spiritual, yet they play. You will notice by yourself that problems just start increasing. There is nothing strange about it. They didn't have to go to any coven. That's not how it operates. It is because we have painted all these wrong pictures. We think it always has to be dramatic. No. Your mouth, your consciousness, your participation can be enough.
+Some people are just used to doing that. They don't know better. That's how it was passed down. The devil has deceived them, and they are affecting themselves and others. Be careful around who you tell your information. Do not imagine it always has to be dramatic. Your mouth, your consciousness, and your participation can be enough.
 
 So indeed there is an enemy. Don't be fooled about that. Indeed there is war. You need to know how you describe the enemy. It is a matter of how people associate with death and darkness. Someone can be in a different worldview but the person is not walking in enmity in that particular sense. There are many people like that. They are just in error, but they are not practitioners of death. That is probably the best way to put it. What people call a witch is just a practitioner of death and darkness, a dealer.
 
@@ -150,9 +140,7 @@ So now that we are on social media, where we have good and evil, there are peopl
 
 That is why certain governmental orders are described in beastly terms. Deception can operate through spiritual order, through governmental order, through social order, through economic order. The enemy is not limited to one channel. He churns out falsehood in whatever structure can carry it. So when we are talking about spiritual warfare, do not reduce it to one narrow dramatic picture. The warfare includes the contest over truth, conviction, culture, and the things by which people are guided.
 
-One of the reasons why I feel very keen about teaching this issue of spiritual warfare is that there are those who will hear things on spiritual warfare and think that all these things are not by talk, it is by action and casting out demons. I am not saying casting out demons is wrong. It can happen. But let me tell you something. It is not every casting out of demons that someone needs to shake violently. You can cast out a demon and the person doesn't move. The demon doesn't need to leave with dramatic performance. But the person can also do that. It also happened in Jesus's ministry.
-
-What I am trying to say here is that when it comes to spiritual warfare, the real battle is in the teaching of the word. The Bible says Jesus came to preach deliverance to the captives. I can tell you for free that people can lose demons just by hearing the word, and they might not even know that they experienced deliverance. Demons were cast out of them by just hearing the word, changing their conviction and their consciousness. That's where that thing just changed. That's where this thing just dropped. They might not even know anything dramatic happened at all, but a change has already happened. Just by the preaching of the word.
+One of the reasons I feel keen about teaching this issue is that there are those who hear spiritual warfare and think only of action and casting out demons. I am not saying casting out demons is wrong. It can happen. But when it comes to spiritual warfare, the real battle is in the teaching of the word. Jesus came to preach deliverance to the captives. People can lose demons just by hearing the word, with their conviction and consciousness changed, even without dramatic manifestation.
 
 Revelation 2:20 says, "Nevertheless I have a few things against you, because you allow that woman Jezebel, who calls herself a prophetess, to teach and seduce my servants." That word there is to deceive. To teach and seduce. To mislead my servants to commit sexual immorality and eat things sacrificed to idols.
 
@@ -180,7 +168,7 @@ The fifth and final level is supernatural effect on matter, body, and events. We
 
 ## Engaging Spiritual Warfare
 
-We have looked at that there is spiritual warfare. We have looked at the origin of this warfare. We have looked at the nature of this war. Brothers and sisters, we want to look at engaging spiritual warfare.
+We have looked at that there is spiritual warfare. We have looked at the origin of this warfare. We have looked at the nature of this war. we want to look at engaging spiritual warfare.
 
 Now, as believers engaging spiritual warfare, because we are looking at believer's authority, I won't go too far. I will be very brief. We will see many things in believer's authority.
 
@@ -204,7 +192,7 @@ But in this age, the devil is still present as a rebel. Despite the victory of t
 
 So death and darkness still push as rebel forces. They still push deception. They still push influence, temptation, and lust. They still seek to affect people toward harder bondage. They still seek, where possible, to move into demonic attachment and to produce supernatural effects in bodies, in events, and in material situations. That is why the believer cannot be careless. The devil has lost authority, but he still seeks activity. The answer is not fear. The answer is informed engagement based on redemption.
 
-Colossians 2:15: "Having disarmed principalities and powers, he made a public spectacle of them, triumphing over them in it." Again, this word disarm is to put off, to take away from them their authority. He has stripped them of their authority. If you think disarm means he has taken away their weapons absolutely, you will be making a mistake. It is that he stripped them of their authority.
+Colossians 2:15: "Having disarmed principalities and powers, he made a public spectacle of them, triumphing over them in it." Again, this word disarm is to put off, to take away from them their authority. He has stripped them of their authority. If you think disarm means he has taken away their weapons absolutely, you will be making a mistake.
 
 That is why we say redemption has taken away his authority, not his operative power in the present age. So our engagement now is not to erase his existence or ability from the age. Our engagement is to restrain the use of that power by the legal victory of Christ. That is an important distinction.
 
@@ -222,7 +210,7 @@ When will spiritual warfare end? Despite the defeat of the enemy, which Revelati
 
 Revelation gives us several accounts of the end of this war. The clear one that showed us the defeat of the devil, because some of the accounts show us the defeat of the beast and of the false prophet, but the one that shows the defeat of the devil is Revelation chapter 20.
 
-The war is going to end when God's purpose is consummated. The Lord said this gospel of the kingdom will be preached in all the world and then the end will come. When God's purpose is consummated, then the war will end.
+The war is going to end when God's purpose is consummated. The Lord said this gospel of the kingdom will be preached in all the world and then the end will come.
 
 So it is on that note, brethren, I encourage us that we need to understand the war we are in. The war we are in cannot end until the coming of the Lord. That means we have an occupying duty now. Occupy till I come. Which is to put the devil under check, to restrain him by enforcing what redemption has accomplished in our lives personally and then in our ministry, our ministry of prayer, the word, and the Spirit.
 

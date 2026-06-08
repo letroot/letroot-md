@@ -24,8 +24,6 @@ He said the Lord Jesus gave the leaders of the church to perfect the saints, rig
 
 Or to equip the saints or to train the saints or to transform the saints.
 
-Are you paying attention?
-
 So he gave the leaders of the church to transform perfect the saints.
 
 Now what we notice about what he said there is that there is a reason why Jesus wants us to be perfected.
@@ -49,8 +47,6 @@ So the moment is calling for discipleship, the moment is calling for perfecting 
 And the more to it is God's purpose.
 
 The reason God made us is the reason Christ Jesus, God that became man, saved us.
-
-Amen.
 
 The reason God made us is the reason that he saved us.
 
@@ -112,7 +108,7 @@ Ephesians 4:17 says, "This I say therefore and testify in the Lord that you shou
 
 There's a way the world can handle relationships.
 
-And listen good because we want to look at some things.
+And because we want to look at some things.
 
 I've told you something about the way the world works versus how the new creation works.
 
@@ -125,8 +121,6 @@ You remember I always say that if someone does not give at all, the person is no
 Right?
 
 By all means, you can likely suspect hat person is walking in the flesh.
-
-Are you following this?
 
 Because it's pretty obvious.
 
@@ -146,8 +140,6 @@ They will talk about being loving in a way that sounds like you are investing.
 
 Now those things are also not of the spirit.
 
-Amen.
-
 I know there are times maybe it slips out of people's mouth.
 
 I don't know why.
@@ -161,8 +153,6 @@ Glory to his name.
 Our heart matters as much as our deeds or action when it comes to walking in the spirit.
 
 So when he tells us we are not to walk like the Gentiles do, it won't just be what they are not doing that we should be doing, but what they are doing that we should be that we shouldn't be doing the way they do it.
-
-Brothers and sisters, are we together?
 
 It it won't just be what they are not doing that we should be doing.
 
@@ -192,17 +182,13 @@ And not every self righteousness is hypocrisy.
 
 Even though selfright people likely always sleep into hypocrisy.
 
-Are you following this?
-
 Someone can be selfent person is really doing the right thing.
 
 And it is still in the face of God a sin.
 
-Are you following this?
-
 Is not righteousness of truth born out of his nature.
 
-He will say, "Well, I've been doing right.
+He will "Well, I've been doing right.
 
 Lord, I've been trying." Showing you that it was not a matter of God's nature in him.
 
@@ -212,8 +198,6 @@ Now, there's a sense in which we want to please God.
 
 You know, we walk we is our father.
 
-Amen.
-
 We are walking with im.
 
 We want to bring joy to him.
@@ -221,8 +205,6 @@ We want to bring joy to him.
 We want to fulfill his purpose.
 
 But there's another sense that people want to earn or deserve a certain commendation from him.
-
-Glory to God.
 
 That can happen in the faith of Christ.
 
@@ -240,13 +222,11 @@ People saying this one of the strategies to get to the top is that you must know
 
 The funny part is that many of the things they will say will be right and would work, but we shouldn't have to do it from that motive.
 
-Are you following this?
-
 We should simply do it out of the purity of who we are.
 
 Come on.
 
-I said, are we together?
+I said
 
 Right.
 
@@ -332,8 +312,6 @@ That's what you are being renewed to.
 
 You are changing the old spirit of mind you had.
 
-Amen.
-
 You know there's a spirit of mind some people have about relationships that they think well I'm depriced I don't release with people.
 
 People relate with me.
@@ -344,15 +322,9 @@ God just had to have mercy on you by fire by force.
 
 But at a point they will have to draw the line for you so that you don't have sex.
 
-Amen.
-
-Are you following this?
-
 And I'm grateful for so many very good friends.
 
 But here are friendships many time you just maybe stumbled on.
-
-Please are you paying attention?
 
 So you can say I'm just like that's how I function blah blah.
 
@@ -362,13 +334,11 @@ You may need to renew your mind.
 
 It may be that may have become sorry so subconscious right this is the state of your consciousness or your eckoning your automatic versus your message.
 
-Hallelujah.
-
 Be renewed in the spirit of your MIND AND PUT ON THE NEW MAN which is created after God in righteousness and holiness of truth.
 
 So God calls us to put up the old and to put on the new.
 
-say, "I put off the old and I put on the new." Now, in what areas is he calling us to put off the old and put on the new?
+"I put off the old and I put on the new." Now, in what areas is he calling us to put off the old and put on the new?
 
 Immediately you get to verse 25, he starts to tell you, "Therefore, put away line." That's character.
 
@@ -385,8 +355,6 @@ By the time you get to chapter 5, he's still talking about character.
 Chapter 5 verse one.
 
 Therefore be imitators of God as dear children and walk in love as Christ has loved us and given himself for us a sweet an offering and a sweet and a sacrifice to God for a sweet smelling hara.
-
-Praise the Lord.
 
 So he's talking about character again the character of love.
 
@@ -406,11 +374,7 @@ But there's a sense in which definitely anger is unrighteous.
 
 Rage.
 
-Amen.
-
 Our displeasure shouldn't go into sin.
-
-Glory to God.
 
 Be angry and not sin.
 
@@ -422,8 +386,6 @@ But I eventually found out was wrong.
 
 You can go check yourself and you find out at least you are very objective and honest.
 
-Amen.
-
 And then you now eventually find out hat it will be weird if you are saying there's a flatout instruction in God's word never to be angry because he's a saint because it was mentioned that Jesus was angry.
 
 Mark 3:5 and he was righteous aside the fact that it's often mentioned that God was angry.
@@ -432,7 +394,7 @@ No, there's one people say whenever say oh Jesus was never said to be angry anyw
 
 It's not as if we got into abusive or exchangeable.
 
-Are you following what I'm trying to say?
+what I'm trying to say?
 
 There's displeasure and then there's rage.
 
@@ -450,7 +412,7 @@ Imagine someone oppressing someone and you were not displeased.
 
 Ah, are you telling us you can do it?
 
-Are you paying attention at all?
+at all?
 
 So yeah, we have displeasure but it says do not sin.
 
@@ -461,8 +423,6 @@ Is that state of emotion at the instance of displeasure?
 This thing is not okay.
 
 No, no, no, no, no.
-
-Amen.
 
 Let's leave that.
 
@@ -490,8 +450,6 @@ Become conscious of what is yours.
 
 Reckon what is yours.
 
-Are you paying attention?
-
 All right.
 
 Then verse 15, ensure that you're walking.
@@ -510,8 +468,6 @@ Also, we are meant to walk in what?
 
 The supernatural.
 
-Are we together guys?
-
 We are meant to walk in a new character.
 
 We're meant to walk in the supernatural.
@@ -523,8 +479,6 @@ I want you to read this supernatural carefully.
 He says, "Be not drunk with wine when excess, but be filled with the spirit." All right.
 
 Speaking to yourselves in psalms, and spiritual songs, which already shows revelation gifts and not trans gifts because you are receiving from the spirit what you are now authoring.
-
-Praise the Lord.
 
 Okay.
 
@@ -540,7 +494,7 @@ We can infer power since he said be filled with the spirit.
 
 We can just infer that.
 
-But he said, "And if you don't even invite here, by the time you get to Ephesians chapter 6, when he was talking about putting on the whole armor of God and all, we can definitely see he's leaning towards power as well." Are we together, brothers and sisters?
+But he said, "And if you don't even invite here, by the time you get to Ephesians chapter 6, when he was talking about putting on the whole armor of God and all, we can definitely see he's leaning towards power as well."
 
 Okay.
 
@@ -580,15 +534,11 @@ So you can see that he has made a switch from talking about character, talking a
 
 He's now talking about relationships and he starts by talking about our relationships amongst ourselves as believers or church members.
 
-Amen.
-
 You church members who are carrying out the supernatural towards each other, speaking to yourselves, speaking to one another in Psalms and spiritual songs, also learn to relate well amongst yourself.
 
 Submit o one another in the fear of God.
 
 That means you should have a system of accountability.
-
-Are you paying attention?
 
 There should be a system of accountability.
 
@@ -608,13 +558,9 @@ But there is a way members can hold leaders accountable.
 
 There should be that structure in a church.
 
-Are you paying attention here?
-
 To ensure verything is safe for all the parties.
 
 Nobody is God.
-
-Amen.
 
 So everybody needs to be accountable.
 
@@ -631,8 +577,6 @@ In the fear of God, there must be what is righteous.
 Imagine just come and start saying something strange.
 
 What do people do at hat point after they have invested their time, their energy, their emotions into building that community and institution?
-
-Are you paying attention here?
 
 Their rights must be protected in the things that they have believed.
 
@@ -654,17 +598,11 @@ If you have the faith, the trust that you are going to do the right thing.
 
 What are you afraid of?
 
-Is someone paying attention here?
-
 For example, you see one of those kind of instruction about the accountability that leaders should have towards membership.
 
 In what Paul said in Galatians 1, he said, "If we teach any other thing, reject us." That means those rules should be defined.
 
 Now in these days where we have more written systems you know unlike in their own time there were not as much written systems even though we say there was the law of Moses and all welldetailed written system those things should be detailed so that people will know how to be actionable on them.
-
-Amen.
-
-Thank you very much.
 
 ## Relationships in Church, Marriage, Family, and Work
 
@@ -686,13 +624,11 @@ What did he say?
 
 Wives.
 
-Thank you.
-
 Wives ubmit to your own husband.
 
 So he has moved into marital relationship.
 
-Remember guys, where are we coming from?
+Remember where are we coming from?
 
 The work of the church is so that we can grow in the newness of life or we can grow as new creations.
 
@@ -774,11 +710,7 @@ So it can be the word rebellion can be weaponized.
 
 So let me just use the word unrepentant.
 
-Hallelujah.
-
 There's a way we walk towards believers that are unrepentant.
-
-Are you paying attention?
 
 1 Corinthians chapter 5 and verse 9.
 
@@ -806,8 +738,6 @@ is someone that has taken as right what is wrong.
 
 The man that took his father's wife was no longer thinking he had done any particular wrong.
 
-Are you paying attention?
-
 He's a different monkey for a believer that is tanding by faith growing in faith so that he can gain victory over the flesh and it works.
 
 All right.
@@ -818,15 +748,13 @@ So he said, I told you not o keep company with unrepentant sexually immoral peop
 
 Certainly I did not mean sexually immoral people of this.
 
-Come on, are you there?
+Come on
 
 Certainly I did not mean sexually immoral people of what?
 
 This world or the covetous extortionist idolattor since then you would have to go out of the world.
 
 So he's saying that I told you to withdraw how much you relate with believers that are unrepentant in different conducts but I didn't say you should apply the same rule to those who are unbelievers in the gospel.
-
-Are you paying attention?
 
 So are we given a code of relationship in the newness of life?
 
@@ -835,8 +763,6 @@ Yes, there's a way we relate.
 When we see the unrepentant you identify as a believer and yet you are functioning repentant manner.
 
 Then we start to ask what's going why you choosing to function in a non-repentant manner.
-
-Amen.
 
 You know the only way we can know you are repentant is the rule the Lord Jesus laid down in Matthew 18.
 
@@ -862,13 +788,11 @@ They said, "Let him be unto you like an Eden or tax collector." That means you w
 
 You only relate with im in that unfamiliar manner.
 
-Are you paying attention here?
-
 He's choosing to be unrepentant.
 
 So the Bible does teach about the way we relate as new creation.
 
-So we might see someone that is an unbeliever and you know in the gospel when I say unbeliever you understand that context you know and we relate freely with the person to that degree but the kind of extra freedom we might have with a believer we might withdraw it if the believer is working on repentance why so hallelujah that's very important so 1 Corinthians 5 tells us that now 2 Corinthians chapter 6 he was talking again about you have issues with believers.
+So we might see someone that is an unbeliever and you know in the gospel when I say unbeliever you understand that context you know and we relate freely with the person to that degree but the kind of extra freedom we might have with a believer we might withdraw it if the believer is working on repentance why so that's very important so 1 Corinthians 5 tells us that now 2 Corinthians chapter 6 he was talking again about you have issues with believers.
 
 Why are you taking those oh so sorry not 2 Corinthians 1 Corinthians chapter 6.
 
@@ -882,8 +806,6 @@ Do you not know that the saints will judge the world?
 
 Are you Why can't you trust the judgment of saints on this matter?
 
-Amen.
-
 That means there are matters that you should first take to your spiritual eaders to resolve and they are supposed to try to enforce it.
 
 Now, do you know hat he's saying here?
@@ -894,15 +816,13 @@ Even though Paul said things that also can lead to abuse, what Paul is saying is
 
 But do you know that if you do Matthew 18 and spiritually that you talk to the person and the person stays unrepentant and you are now treating the person like a tax collector and Eden, an unbelieving person, you might now be able to take the person since the person is not yielding to spiritual authority to the authority that the person can yield to.
 
-Since the person is proving himself not believing are you paying attention he can he should be able to listen to spiritual authority you don't need to go there now say ah you have to do this that should be like the court of law has said you have to do this you can judge these matters if that one cannot work for you and you not listen to authority then you are pretending you are not submitted there let them deal with you the way you are claiming now that you what ah are you there but why didn't you trust spiritual leadership what first amen And I admit that Paul did say things that like you can also give it up.
+Since the person is proving himself not believing he can he should be able to listen to spiritual authority you don't need to go there now say ah you have to do this that should be like the court of law has said you have to do this you can judge these matters if that one cannot work for you and you not listen to authority then you are pretending you are not submitted there let them deal with you the way you are claiming now that you what ah but why didn't you trust spiritual leadership what first And I admit that Paul did say things that like you can also give it up.
 
 But I don't think he's ignoring that you have certain rights.
 
 Is that you should exercise that right first what spiritually this matter usually becomes difficult when it comes to things like death recovery.
 
 Have you seen death recovery issue in church is a difficult matter.
-
-Amen.
 
 But if people are spiritual, they can go before spiritual authority and they can work out a solution.
 
@@ -926,15 +846,13 @@ I know people's concern there will be bias when it's judge.
 
 Of course, there will be a bit of bias but there will still be righteousness.
 
-Are you paying attention?
-
 If they are doing the right hing or judging matter because even God oes not allow if he says the saints judge what do you know God at the end when he's judging will not allow unrighteousness like the only things that are not going to damnation.
 
 That's what he has saved you from.
 
 It's not that when they are judging they should allow unrighteousness like no but you should trust them to handle it first.
 
-Okay, let me leave that.
+let me leave that.
 
 So we see all kinds of relationship mentioned in God's word and how the believer is supposed to handle them.
 
@@ -960,11 +878,11 @@ It's not that we are saying they are not esteemed at all but indicator of estima
 
 Now for example whether I like it or not I have to biblically esteem my wife and my children my family above others.
 
-Are you guys like are we on the same page?
+Are you like
 
 I'm not eating and maybe at that point I have my last card and my family too.
 
-It can never happen any I love you guys so much.
+It can never happen any I love you so much.
 
 I can't love you like that.
 
@@ -974,23 +892,19 @@ Now I don't know whether there's just something wrong with human beings that it'
 
 It's as if you must go to one end or the other.
 
-Are you following this?
-
 So I've seen places where people go for counseling and they telling them that your wife is more important than you know anything you are trying to say and all of that.
 
 I think that's a problem.
 
 The saying your wife is more important han maybe the mission or the church.
 
-There's the way you are saying that statement is definitely not correct because the Lord Jesus said in Luke 14:26 he that does not eat father mother say wife children brother sister and even his own life are you paying attention cannot be my disciple there's a way you are saying that you are taking it to an extreme but there's another way you can say well for me the church is not important my family and you are saying absolute nonsense because first he that does not ake care of his family is worse than ot an infidel we must know how to just be righteous.
+There's the way you are saying that statement is definitely not correct because the Lord Jesus said in Luke 14:26 he that does not eat father mother say wife children brother sister and even his own life cannot be my disciple there's a way you are saying that you are taking it to an extreme but there's another way you can say well for me the church is not important my family and you are saying absolute nonsense because first he that does not ake care of his family is worse than ot an infidel we must know how to just be righteous.
 
-So there's an estimation we have by time now says they are least esteem it is not a derogatory way of speaking is just a righteous way of speaking in our evaluation they are least esteem so there's a ladder of estimation something we have called biblical how we esteem different people we esteem everybody that's biblical including unbelieving people we esteem them but in the in that ladder kada of estimation he says they are least esteemed Are you paying attention?
+So there's an estimation we have by time now says they are least esteem it is not a derogatory way of speaking is just a righteous way of speaking in our evaluation they are least esteem so there's a ladder of estimation something we have called biblical how we esteem different people we esteem everybody that's biblical including unbelieving people we esteem them but in the in that ladder kada of estimation he says they are least esteemed
 
 There's another issue that comes up again.
 
 How do you esteem where in the latter of estimation is the stimation of your particularly it comes up with female the estimation of your husband relative to the estimation of spiritual authority?
-
-Are you following this?
 
 I remember I saw one video online.
 
@@ -1000,13 +914,11 @@ The estimation of your spiritual authority as higher is because your husband him
 
 That spiritual authority.
 
-Are you following what I'm trying to say to you?
+what I'm trying to say to you?
 
 It's not as if there's one commission in your personal life between your husband your pastor.
 
 That makes no sense.
-
-Amen.
 
 Except you're looking for problem.
 
@@ -1028,8 +940,6 @@ We are We are human beings.
 
 Don't tempt he devil.
 
-Are you paying attention here?
-
 Let that honor of your spiritual authority being your husband since you submitted.
 
 Are you guess what I'm trying to say?
@@ -1042,8 +952,6 @@ So there's no fear.
 
 Don't cause trouble because truly I know that we are talking about authority wise if issues should happen ow you still have to go and defer for esolution based on how you should have set things up.
 
-Are you paying attention?
-
 But in terms of how relationship wise honor wise things should play out please for the peace of both the church and also your home let your honor be very well focused on what?
 
 On your husband.
@@ -1052,17 +960,13 @@ by your spiritual authority should be giving you that um what's it called?
 
 That instruction.
 
-Praise the Lord.
-
-Hallelujah.
-
 Positionally, you get the difference versus relationally.
 
-Are you paying attention at all?
+at all?
 
 Don't confuse it.
 
-relationally which is almost every day that's how it is positionally ou know that oh this person um you know is having under God and therefore we honor him like that but relationally this is my husband he's my head the leader of our union amen which of course our union we have matched our life together praise the lord so that should be it but positionally generally you can ow say that because of you know difference in the case of resolution of issues and so on and so forth Please note that difference.
+relationally which is almost every day that's how it is positionally ou know that oh this person um you know is having under God and therefore we honor him like that but relationally this is my husband he's my head the leader of our union which of course our union we have matched our life together so that should be it but positionally generally you can ow say that because of you know difference in the case of resolution of issues and so on and so forth Please note that difference.
 
 When it's marriage, two of you have your ight and you have your free will.
 
@@ -1075,8 +979,6 @@ I don't want to do something to anybody again.
 Please don't walk in the flesh.
 
 I'm just trying to explain.
-
-Hallelujah.
 
 Let us move on from there.
 
@@ -1110,8 +1012,6 @@ The teaching on character leads to the teaching on relationship.
 
 You know Paul spoke about character righteousness.
 
-Are we together guys?
-
 Love.
 
 But when it got to relationship you see that there particularly some relationship there is more that is said about those relationship than just the simple fact of character.
@@ -1126,8 +1026,6 @@ Let's just go back to what we are looking at now.
 
 We are the new creation is also instructed about secular or governmental authority or not relationship authority.
 
-Amen.
-
 As a form of relationship but authority for example it can be like you are in your um in a school.
 
 I don't want to use workplace employment relationship.
@@ -1140,8 +1038,6 @@ If you are in a school, there's authority there.
 
 Your local government, even your estate, since you have agreed and subscribed to be there.
 
-Are you paying attention?
-
 It's a form of secular authority.
 
 Romans 13 and 1, let every soul be subjected to the governing authorities for there is no authority except from God and the authorities are appointed by God.
@@ -1150,11 +1046,9 @@ That means God has instituted that there must be order and people are going to b
 
 So, regard it as divine.
 
-Amen.
-
 Do you get what I'm saying?
 
-God has already instructed you told me Emmanuel sorry right yes as I'm seeing you hold your phone even though I believe you're on your Bible my mind is not set I don't rust that you might not be checking what notification at all can someone give me a Bible so you your Bible and I'll be sure that you are completely away from distraction I know you might have to you are not so familiar you have to still train yourself but use your Bible okay so Romans chapter 13.
+God has already instructed you told me Emmanuel sorry right yes as I'm seeing you hold your phone even though I believe you're on your Bible my mind is not set I don't rust that you might not be checking what notification at all can someone give me a Bible so you your Bible and I'll be sure that you are completely away from distraction I know you might have to you are not so familiar you have to still train yourself but use your Bible so Romans chapter 13.
 
 If I rush to use his phone now, I will still be believe that he's not Romans 13.
 
@@ -1230,21 +1124,15 @@ Our relationship with God.
 
 Number two of course when you say God we are saying the father saying the son can also say the spirit.
 
-Amen.
-
 I do think there should be a bit of weariness with the way people have taken this issue of relating with the spirit.
 
 You know I think they have dragged the personal relation to the holy spirit.
 
-they have taken it maybe a bit too beyond what is biblically uh well someone say that well not everything is in the Bible so it wasn't stated here and all that it's easier for nonprotestants say that and I've seen them say that I always wonder for protestant that always claim the Bible is sufficient now saying that I don't think there is like necessary and good measure to extend that relationship beyond necessary limits are you paying attention so let me just leave it all that but the relationship with God there's the spiritual authority biblically God's spiritual authority.
-
-Are you paying attention?
+they have taken it maybe a bit too beyond what is biblically uh well someone say that well not everything is in the Bible so it wasn't stated here and all that it's easier for nonprotestants say that and I've seen them say that I always wonder for protestant that always claim the Bible is sufficient now saying that I don't think there is like necessary and good measure to extend that relationship beyond necessary limits so let me just leave it all that but the relationship with God there's the spiritual authority biblically God's spiritual authority.
 
 Spiritual authority, they have their limits.
 
 Their esponsibilities to teach and to judge.
-
-Are you paying attention?
 
 You bring an issue, they judge it.
 
@@ -1258,13 +1146,11 @@ have many people already that already dealing with them.
 
 You cannot be serving authority more than your family because if everybody is serving them partially, it will aggregate what they are supposed to do in the first place.
 
-Are you paying attention?
-
 Nobody can be giving to spiritual authority more than their family.
 
 That's madness.
 
-Now, are you paying attention?
+Now
 
 Many people give authority already.
 
@@ -1273,8 +1159,6 @@ You shouldn't be giving to them more than your family.
 You shouldn't give them more time than YOUR FAMILY, MORE AFFECTION.
 
 THAT ONE IS EVEN VERY wrong than your family.
-
-Are you paying attention here?
 
 What's their job?
 
@@ -1286,8 +1170,6 @@ It's not for them.
 
 Invest your affection very well with your family.
 
-Amen.
-
 Do you understand me here please?
 
 I'm not saying you don't love them, you don't honor them and all them.
@@ -1296,11 +1178,7 @@ There's a kind of way you can you can be that is now something that might be a b
 
 Doesn't seem to be right.
 
-Hallelujah.
-
 God spiritual authority.
-
-Are we together?
 
 Then marital relationship biblical because your domestic family is taken as primary.
 
@@ -1354,25 +1232,19 @@ then governmental or secular authority.
 
 Then employment relationship as much as you love your employer or you love your employees don't disobey governmental authority.
 
-Are you following this at all?
+at all?
 
 I mean you know if it's righteous.
 
-Hallelujah.
-
-stick with the rules of your nation of your community and also still ove your you know employer employee whichever the case may be then there's general friendships I think it's even more than 10 now there's general friends and then I'll say lastly you can now say others acquaintances etc praise God others acquaintances etc is that very clear so for the first three I'm sure the order is right but I forgot because I didn't refer to the older teaching and I'm just thinking I don't know the order of the remaining but you can say there's core friendship there's church friendship there is general friendship are you following this at all the fact hat you are friends in church does not make them your core friends even though it might be a good thing for your core friends to come from church but they are your core friends and there's just church friendship generally amen and there's general friends because there's kind of familiarity we also have as church members that should be stronger than general friends there's a way we owe church members that my old general friends.
+stick with the rules of your nation of your community and also still ove your you know employer employee whichever the case may be then there's general friendships I think it's even more than 10 now there's general friends and then I'll say lastly you can now say others acquaintances etc praise God others acquaintances etc is that very clear so for the first three I'm sure the order is right but I forgot because I didn't refer to the older teaching and I'm just thinking I don't know the order of the remaining but you can say there's core friendship there's church friendship there is general friendship at all the fact hat you are friends in church does not make them your core friends even though it might be a good thing for your core friends to come from church but they are your core friends and there's just church friendship generally and there's general friends because there's kind of familiarity we also have as church members that should be stronger than general friends there's a way we owe church members that my old general friends.
 
 There's a way you owe call friends.
-
-Are you following this?
 
 Even more than church members generally.
 
 It's basic.
 
 You your relationship has grown to that point.
-
-Hallelujah.
 
 That you so owe each other.
 
@@ -1396,8 +1268,6 @@ I have coco friends.
 
 I have co friends.
 
-Amen.
-
 But for example, now when paro enter the level of my affection my affection bank is going to reduce for my conference.
 
 Are you getting what I'm trying to say?
@@ -1412,8 +1282,6 @@ Even though I don't know why I have to confess this for my friends I've noticed 
 
 I have my wife but maybe when we talk like we all the things our shared interest and because we don't talk that much we talk ah everything just start talking from one place we jump to the other one.
 
-Hallelujah.
-
 But your affection towards the Lord towards your marital relationship if you in one cuz you're the one that has chosen to call someone into that life with you the person deserves not as a matter of an option.
 
 You have already called the person that life is a matter of obligation that affection from what?
@@ -1424,9 +1292,7 @@ Then there is your friendships.
 
 You know there is other kinds of relationship.
 
-Are we on the same page?
-
-You must know how to make that shift to someone paying attention and how you all ot your affection are we together cuz I is a man of many friends.
+You must know how to make that shift to someone paying attention and how you all ot your affection cuz I is a man of many friends.
 
 He's one of the people I do that just has so many is really working this relationship thing very well and I think he's in the newness of life.
 
@@ -1440,7 +1306,7 @@ Now let us get on to the third thing.
 
 What we are taught about relationship is that we should follow God's example in relationship.
 
-Are you are you following this at all?
+Are you at all?
 
 Is the consistent thing we are taught about relationship.
 
@@ -1449,8 +1315,6 @@ Now look at Ephesians chapter 5 first and verse one.
 Then even in marital relationship you see the same thing come up again.
 
 We are to follow God's example when it comes to relationship.
-
-Amen.
 
 Is someone there?
 
@@ -1466,11 +1330,7 @@ You see that?
 
 That's our example.
 
-Are you paying attention?
-
 We should walk in love as who?
-
-Thank you.
 
 As Christ has loved and has given himself for us an offering and sacrifice to God for a sweet smelling aroma.
 
@@ -1482,7 +1342,7 @@ Every to delete that partial from the digit.
 
 I beg because all some people we here they don't even notice like what cuz we are going global now you know God have mercy wife submit to your husband please very your own husband in fact wife submit to your own husband as to the Lord for the husband is the head of the wife as Christ is the head of the church and is the savior of the body.
 
-Okay I feel so sad that these things cause issues and all.
+I feel so sad that these things cause issues and all.
 
 I read something by someone that was that said something yesterday.
 
@@ -1524,7 +1384,7 @@ What would happen that I'll be in a situation with someone that can lead to that
 
 Are you getting what I'm trying to say?
 
-Like you not start to you now stand okay that's how it happened.
+Like you not start to you now stand that's how it happened.
 
 Are you not raining yourself for it to happen?
 
@@ -1552,13 +1412,11 @@ You have your own life to live.
 
 You can't use your mind to contain all the problems of the world.
 
-Are you following this?
-
 Do you know how much problems happen in this world?
 
 Can you are you sure your mind can hear it?
 
-Listen people that have been presidents of particularly like us before particularly when they talking about evil I was hearing one of said they there is evil in this world now them understand evil like there are people that are evil do you know there are people that are really evil by time you are hearing of people all these people in the mafia these terrorists the way they kill people to make a point they do it in a grill somewhere and they have to be aware of those things they have seen there's a way you realize that people's hearts are terrible are we on the same page Can you sustain that?
+Listen people that have been presidents of particularly like us before particularly when they talking about evil I was hearing one of said they there is evil in this world now them understand evil like there are people that are evil do you know there are people that are really evil by time you are hearing of people all these people in the mafia these terrorists the way they kill people to make a point they do it in a grill somewhere and they have to be aware of those things they have seen there's a way you realize that people's hearts are terrible Can you sustain that?
 
 Can you sustain that on your mind?
 

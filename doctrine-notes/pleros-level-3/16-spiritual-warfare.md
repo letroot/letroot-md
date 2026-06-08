@@ -1,6 +1,6 @@
 # Spiritual Warfare
 
-We're looking at spiritual warfare. Amen. It's a very, very important teaching. Spiritual warfare. Are you ready?
+We're looking at spiritual warfare. It's a very, very important teaching. Spiritual warfare. Are you ready?
 
 Imagine you are in a war and you don't know. That's going to be a problem. The most dangerous thing, what is more dangerous than being at war, is not knowing that you are at war. That's worse. It's already dangerous enough that you're at war, because of course war is not nice. But what is worse than being at war is not even knowing that you are at war. That means if you don't know that you are at war, you are unable to install defenses and, as we're going to see when we get there, launch attacks, because you don't even know that you're at war.
 
@@ -68,7 +68,7 @@ Now look at verse 24, to show you he is still talking about the involvement of d
 
 He is showing the way death reigns. The reign of death is that if it is allowed to come back, it will come back worse, more forceful. And that is whether it is spirits that are involved or just the general workings of death, even the flesh and its lusts.
 
-Brothers and sisters, this is very important. One thing is indisputable. As far as the revelation of God from his authoritative documents is concerned, there is war. There is war. There is spiritual warfare. It is well stated. It is well described. It is well attested to.
+this is very important. One thing is indisputable. As far as the revelation of God from his authoritative documents is concerned, there is war. There is war. There is spiritual warfare. It is well stated. It is well described. It is well attested to.
 
 That idea of spiritual warfare and a confrontation with the devil is seen particularly in Hebrews chapter 2. Hebrews 2:14 says, "Inasmuch then as the children have partaken of flesh and blood, he himself likewise shared in the same, that through death he might destroy him who had the power of death, that is, the devil."
 
@@ -264,7 +264,7 @@ First Peter 2:11: lusts wage war against the soul. Lust will come to us in diffe
 
 Romans 6 says, do not let sin reign in your mortal body that you should obey it in its lusts. So it is war. He wants to reign, so you do not let it reign. There are lusts that wage war against the soul. James 4:1, 1 Peter 2:11. You are supposed to resist them. The third level of what the devil does is desires. It brings them towards the consciousness, leading to people's emotions, to their actions, and so on.
 
-You can resist it. If you keep accepting it, you become more susceptible to yielding to the enemy. That's why you see, neither give place to the devil. You know, about anger. There is a way someone can yield to rage so much that the person will now do something and say, "Ah, I didn't know." The person has been yielding to a particular lust.
+You can resist it. If you keep accepting it, you become more susceptible to yielding to the enemy. That's why you see, neither give place to the devil. You know, about anger. There is a way someone can yield to rage so much that the person will now do something and "Ah, I didn't know." The person has been yielding to a particular lust.
 
 The difference is that the person is not unrepentant. Even though the person is very accommodating of that lust, the person still recognizes that he is wrong. It is not that the person has said it does not mean anything again. It is when someone is unrepentant, really unrepentant, that we can then say there is another issue.
 
@@ -286,7 +286,7 @@ That is the final level. Usually people like to jump to the fourth and the fifth
 
 ## Engaging Spiritual Warfare
 
-We have looked at that there is spiritual warfare. We have looked at the origin of this warfare. We have looked at the nature of this war. Brothers and sisters, we want to look at engaging spiritual warfare.
+We have looked at that there is spiritual warfare. We have looked at the origin of this warfare. We have looked at the nature of this war. we want to look at engaging spiritual warfare.
 
 Now, as believers engaging spiritual warfare, because we are looking at believer's authority, I won't go too far. I will be very brief. We will see many things in believer's authority.
 

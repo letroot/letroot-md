@@ -2,316 +2,294 @@
 
 ## The Importance of Leading in God's Purpose
 
-If there is such a thing as God's purpose for our life, then there is such a thing as fulfilling God's purpose. But we must also be honest to say that there is such a thing as not fulfilling God's purpose. Are you paying attention here? In fact, we see within God's word individuals that did not fulfill God's purpose. And we see in God's word those who did.
+Leading in the newness of life is built on the reality of God's purpose. If there is such a thing as God's purpose for our lives, then there is such a thing as fulfilling God's purpose. But we also have to be honest enough to say there is such a thing as not fulfilling God's purpose. In scripture we see both kinds of people. We see people who walked in what God wanted, and we see people who did not.
 
-And it's a question of knowing the leading of the spirit as well as following the leading of the spirit. Following the leading of the spirit. Let's give some examples. I'm sorry that we're starting some somewhat in a way that looks like he's on the negative note. But you remember that young prophet, right, that was sent by the Lord to go minister or to go and rebuke a king.
+So the issue is not only that God has a purpose. The issue is knowing the leading of the Spirit and following the leading of the Spirit. Both matter. There are people who knew what God wanted and still did not follow through with it.
 
-And then on his way back, the old prophet lied to him and he went, he followed him even though he was instructed not to. So this is a case of someone that knew God's leading. He knew God's leading, but he did not follow through with it. All right? So there is such a thing as the leading of God.
+Take the young prophet that was sent to rebuke the king. He knew the instruction that was given to him, yet on his way back he listened to the old prophet who lied to him. That is already a case of someone who knew God's leading but did not continue in it.
 
-He was called to come cause the Israelites, right? And Balaam was instructed not to go. But we saw that after he resisted God's leading, it was written and said that God told him to go. So there is such a thing as someone being led by God that is out of the person's own rebellion. And we must be aware.
+Think also about Balaam. He was instructed not to go, yet by his own resistance and hardness of heart he moved into a condition where he was permitted to go. That tells you something important: a person can point to a supernatural experience and still be out of alignment with truth. God would not be leading Balaam into a righteous mission against Israel. The whole story shows a man already out of touch, yet still dealing with supernatural realities.
+
+So this subject is important because of God's purpose, and it is serious because people can miss God's purpose while still talking spiritually. That is why we must understand what it means to be led by God, how that leading is known, and how that leading is followed.
 
 ## Genesis and the Freedom to Follow or Refuse
 
-So the subject of the leading of the spirit or God's leading is not something we should ignore or be careless about. It's important for us to understand if at all there is such a thing as leading of God. How to know that leading and how to follow the leading of God. Now recall I just said that the teaching of God's leading or the leading of the spirit is built on the reality of God's purpose. There can only be such a need for the leading of the spirit if there is such a thing as God's purpose for our life.
+The teaching of God's leading is built on the reality of God's purpose. There can only be such a need for the leading of the Spirit if there is such a thing as God's purpose for our lives. Ephesians 1:9 says that God has made known to us the mystery of his will. That means his will is not something we would know by ourselves if he did not reveal it. If God does not reveal his will, it remains a mystery.
 
-And this is something we have established over time that there is God's purpose for our lives. I want to quickly show you some text on that again at least so that we have a foundation we are standing on. Ephesians 1 and verse 9. Ephesians 1:9, Paul speaking here, he said, "Have made known to us the mystery of his will." And the person he said has made known to us the mystery of his will is God. He said, "God has made known to us the mystery of his will." Now, what I like about this text as touching the leading of the spirit is to show you that if God does not reveal his will, you would not know it.
+So the receiving of God's purpose and God's leading is a matter of revelation. If there is such a thing as his will and his purpose, and we are to fulfill it, then we must learn how he makes it known.
 
-But knowing his will and his purpose, he has to reveal it. Is someone paying attention? Which will mean the manner in which we are going to receive God's will, God's leading, God's purpose is the reception of revelation. And we need to know how that happens as well. So pay attention.
+The best place to begin is at the origin. In Genesis 2:15, God took the man and put him in the garden to tend and keep it. Then he told him that of every tree of the garden he may freely eat, but of the tree of the knowledge of good and evil he should not eat, for in the day he eats of it he would surely die.
 
-Verse 9 of Ephesians 1 tells us, "He has made known the mystery of his will according to his good pleasure which he proposed in words in himself." So God has made known his will, his good pleasure and his purpose for us. And as such, if there is such a thing as God's purpose and we are out to fulfill it, we must learn to be led by God. How does he lead us? Now the best place to find out this way of manner or to find out about how God leads us or how e experience leading in the newness of life is at the origin. I want us to go to Genesis and chapter 2.
+What do we see there? The first thing we see is that when God leads a man, the man has the freedom to accept or reject that leading. God did not impose obedience on Adam. He told him what to do, and in telling him, he showed that Adam could either receive or reject the word given.
 
-The first time we are going to see God having to lead someone. At the origin, we are going to understand all the things that are at play in the leading of the spirit. In Genesis chapter 2 and verse 15 we see the very first instance and it's such a important um instance of God leading any person. The very first instance of God leading someone is Genesis 2 and verse 15 downward. Then the Lord God took the man which he made and put him in the garden of Eden to tend and keep it.
+So from the beginning, two realities stand side by side. First, there is what God wants, because God made man for a purpose. Second, there is man's liberty of choice. Man can accept what God wants or refuse it. The existence of God's purpose does not remove the independence of the human will.
 
-And the Lord God said to him, of every tree of the garden you may freely what? eat, but of the tree of knowledge of good and evil, you shall not eat, for the day you eat it, you surely die. Now, what we see at the first instance of God's leading is that when God leads a man, the man has the freedom to accept or reject it. Are you paying attention? Because when he was leading him, he didn't impose on him.
+This matters because some people imagine that if God has a purpose, then man is reduced to a machine. But that is not how scripture presents it. God made man with freedom. Otherwise man would be no different from a robot. In leading, therefore, there is both God's purpose and man's liberty.
 
-He said, "Of all the tree of the garden, you may freely eat, but of the tree of knowledge of good and evil, you shall not eat. For the day you eat of it, you surely die." That means he's telling him you have the free will to accept or eject my leading. Now again remember God's leading is built on the reality of God's purpose. At this juncture God already had made him for a reason for a purpose. He put him in the garden to tend and keep it.
+We should also add this: what God wants is not an arbitrary imposition. His purpose is good. His leading is worth following because he is good. Even in areas where he allows for liberty, such as many matters of natural assignment, his goodness is still the frame. He is not caging man's will for the sake of domination. He is leading toward what is good.
 
-He wanted him to partake of his life but he has to lead him to walk in his purpose. So the fact that you are in God's purpose and we all are once we have believed on the Lord Jesus, we have entered into God's purpose at salvation does not mean you would automatically walk in it and fulfill it. You are made by God to be as ome will call it a free moral agent to be one who has free will. One who has the independence to choose the direction is going to go. If you lack that freedom, that free will, that independence, then you are not going to be different from a robot.
+That means free will should not be framed as though it exists in competition with God's goodness. God can give liberty and still lead. In some matters, especially many natural matters, that leading may actually be that you are free to choose responsibly. In other matters, especially where spiritual assignment is concerned, there may be more specificity. But in either case, the purpose for which he leads is good. God is worth following. His leading is worth following.
 
-Somebody see out there. And so God made you with the freedom to choose. So the issue of following God's leading, we see two extremes there, if you may want to call it that. The fact that God has his purpose and he has things that he wants done. And number two, the fact that man has the freedom, the independence and the liberty of choice to decide what he wants to do.
+That means following God's leading involves at least two things. Number one, knowing God's leading. Number two, choosing to do it. In Genesis 2, man would never have known what to do unless God made it known. So it is God's responsibility to reveal what he wants. And when he reveals it, man is responsible to respond.
 
-When it comes to leading in the newness of life, when it comes to following God's leading, there is what God wants. What God has made man for and there is man's freedom to choose. Now it's very important to know that what God wants is not out of any imposition is also out of his nature of goodness. Are you paying attention? And we must also add that when it comes to what God wants, God does want man to enjoy his free will.
-
-Well, because sometimes the reason why people rebel is to think that why did he give me free will if he's still going to cage it? Are you paying attention? But something like our natural assignment is a zone where he has allowed for the liberty of our will to do as we want. I don't know if you are paying attention. Now we understand that maybe things like spiritual assignment is body.
-
-He allots people into specific things. But in spiritual in our natural assignment he allows for us to choose freely what we want to do. So in following his leading is not overbearing or imposing. We must understand that his purpose for which he leads us is itself what? good.
-
-The purpose he has for us is good. And I'm saying that to the end that I make this ubmission that God is worth following. God is worth following. He's worth following. His purpose, his leading is worth following.
-
-So when we realize that there is what God wants his purpose and he's going to lead us in the light of what he wants and also we know that there is our free will our independence to choose accept or reject what he wants we can make two conclusions following God's leading involves number one knowing God's leading. The first thing in following God's leading is to know God's leading. It involves number one knowing God's leading and number two choosing to do it. Number one, we must know what God is leading us to do. And then number two, we are to choose to do it.
-
-Notice in this case in this Genesis 2:15, man would not have known what to do except God made it known to him. So it was God that came to him. He put man put him in the garden of Eden to tend and keep it. And he told him, "Of every tree of the garden you may freely eat, but of the tree of knowledge of good and evil you shall not eat for, for the day you eat of it, you surely die." He had to lead himself. He had to tell him what to do.
-
-And I'm making a very important point here that it is God's responsibility to reveal what he wants us to do. If we are not sure that God has revealed what he wants us to do, then we would not know whether we should even go seeking it, finding it, receiving it, it is God's responsibility to reveal what he wants us to do. And this is something I want us to settle. So I've made the first point. The first point I made in this teaching is God's leading is built on God's purpose.
-
-He's so faithful. He's faithful by nature that he would never withhold his leading. So God always reveals his will, his purpose, his plan, his leading for our life. He will always reveal his purpose. He will always reveal his plan.
+This is a major foundation: God is faithful enough that he does not withhold his leading. If he wants us to fulfill his purpose, then he must reveal what he wants us to do. Otherwise the problem would be with his character. But God is faithful. He always reveals what is needed. The real question is not whether he speaks. The question is how he reveals, and whether we receive what he has revealed.
 
 ## Why the Subject of Leading Must Be Handled Carefully
 
-If God wants us to follow him, if God wants us to be led by him, if God wants us to walk in his purpose and fulfill it, he must reveal what he would have us do. that is on him. He must reveal it. And I'm saying he's faithful to always do that. So the real question we need to ask here is how does he reveal what he wants us to do?
+This subject cannot be handled carelessly because people abuse it. If we do not explain the leading of the Spirit properly, people will be misled in the name of being led. Someone can say, "I was led," but how do you know? Was it really the voice of God? Was it something else? There are many voices in the world, and none is without significance. So how are we to be sure?
 
-He's faithful to always reveal what he wants us to do. How does he reveal it? And when we look at how God reveals his leading, what he wants man to do, we will find out that there are things he has already revealed and there are those that he will yet reveal. Sorry this is sort of dry academic at his phase but uh I don't want it to be exultational like Thursday where I'm moving freely. I want it to be very straight to the point.
+Sometimes people become confused over matters where God's leading may simply be, "Choose within the liberty I have already given you." A person can be studying a course and be troubled, asking whether God led him to study that course, when God's leading on that matter may actually be that he is free to choose responsibly.
 
-If you are going to fulfill God's purpose for your life, you must follow the leading of the spirit. You must follow God's own leading for your life. But I must be very honest that if we don't explain the subject matter of the industry properly, people are going to actually be misled because many people have abused this subject matter a lot. Are you paying attention? In fact, some people should do some ask were you led to do that?
+That can also happen in choices of work, location, and many ordinary life decisions. God can lead by giving liberty. He can say, in effect, "Choose." So we must not make the doctrine of leading so restrictive that it nullifies the proper place of human responsibility and judgment.
 
-Were you actually led to do that? And the person is not looking was actually led. How can I be sure I was led? And that even if you not answer yes and you say you were lying say maybe I heard a voice there are many voices in this world none without significance. How do you know that voice you heard was the voice of God and I wonder so what's the way out now?
+There are matters where God gives specific direction, and there are matters where he grants space for responsible choice. If we do not know the difference, we will complicate simple things and also miss serious things.
 
-How am I sure that I'm led? How am I sure what I'm doing is what God wants me to do? How am I sure God is actually leading me to do what God wants me to do? In fact sometimes people are even confused. They might be studying a course and they will say I'm not even sure whether God led me to study this course.
+We must also admit that it is possible to be misled. The example of Ahab and Jehoshaphat shows that many voices can agree and still be wrong. Four hundred prophets said, "Go up," but Micaiah alone gave the true word of the Lord. Jehoshaphat at least sensed that something was off. Ahab was willing to accept whatever suited his desire.
 
-They don't know what God what God has to say on that matter. For example, if someone is studying a course, if there is all probability that God's leading on that course is choose what you want to do. That's what he's leading you to do. Are you following what I'm trying to say? Decide on your own what you want to do.
+So there is a moral dimension to this subject too. Sometimes people are not really after what is true. They are after what agrees with what they already want. That is why this teaching has to be handled carefully. It is not only a problem of knowledge. It is also a problem of the heart.
 
-And did not follow through. The examples of people that were misled. You might also say, let me give another example. the instance of Ahab, Jehoshaphat, they were supposed to go to war and 400 prophets and we're going to look at that. What's the role of what other people say in the in the spirit of God for your life?
-
-So we said leading in the newness of life following God's leading. Leading is important because of God's purpose. We always want to find out what does God want me to do here? What's leading me to do here? Because we want to be in his purpose.
+If someone only wants confirmation for a desire he already settled on, he is already vulnerable to deception. So we keep three early points before us. God's leading is built on God's purpose. God's leading does not remove human freedom. And God is responsible to reveal his will. If those three things are not kept together, confusion will result.
 
 ## God's Leading Is Always Truth
 
-The fact that there is God's leading for you to fulfill God's purpose does not take away your liberty of choice, your free will to choose to accept or reject that leading. It does not take it away. At the very inception, God showed man what he was leading to do and man was free to choose. And we can also add man did not choose what God wanted. Man did not follow the leading of God's spirit to walk in God's purpose.
+When we look through scripture, we find something consistent: God's leading is always truth. That is basic. In fact, if God were not truth, then there would be no meaningful sense in which he is God. If there is no God in truth, then the whole claim collapses into fiction.
 
-It's possible to refuse to heed to God's leading and to miss God's purpose. Cain is an example of someone that also missed God's purpose. Of course, Adam at he start, he can argue for afterwards, but at the start, he missed God's purpose. Are you paying attention here? There are other arguments we can make relative to the leading of the spirit.
+Everything God tells a man to do is truth. Ephesians 1:13 calls the gospel the word of truth. Ephesians 4 speaks of the truth as the content into which the saints are taught, and verse 21 says, "the truth is in Jesus." Verse 24 says the new man is created after God in righteousness and holiness of the truth. So the message of salvation is truth, the doctrine communicated in the church is truth, and even the moral character that is after God is truth.
 
-There's the argument that is made very often about Moses. Some make it, some go against it, that according to what God told um Abraham. He told him in 400 years time your people haven't gone into bondage will be brought out. They are going to be there 400 years and they'll be brought out. But from the records we had, they left there how many ears?
+That means God's leading can never be outside truth. He cannot lead a man into falsehood and still be God. He cannot lead a man into evil and still be good. So before we start talking about mechanics, impressions, voices, or visions, this must be settled as the anchor: God's leading is always truth.
 
-After he had gone and done something else aside what God wanted him to do, leading in the newness of life, following God's leading. We must know how to walk with God. So Moses had acted in the flesh because he was discerning to how to handle that situation. He may have found out that was not acceptable to the Lord. That approach you wanted to take even though it looked noble.
+You can see it from the beginning. In Genesis 2, what God presented to man was truth. He created man for life in fellowship with him. To depart into supposed independence was death. Proverbs 3 speaks of wisdom as a tree of life, and Proverbs 23:23 says, "Buy the truth and do not sell wisdom, instruction, and understanding." So truth, wisdom, and life belong together. God's leading at the origin was already the leading of truth.
 
-Just questions to ask. But anyways our focus is not on the nation. Our focus is on you. Are you following God's lead? How do you follow God's?
+That lets you say something very direct: the voice of truth is the voice of God. Otherwise God becomes fiction. If there were no truth in God, there would be no God in any meaningful sense. And if someone imagines that God can be real and yet lead into falsehood, he has already surrendered the foundation.
 
-Now, so I haven't made the first wo points. God's leading is built on God's purpose. God's leading does not exclude your free will. We have moved on to the third point. It is God's responsibility to reveal his leading, his will, and his purpose to us.
+This matters because people often rush to talk about spiritual mechanics without any anchor. They want to know how to sense this or hear that. But what prevents drift into error is not technique. What prevents drift into error is the foundational understanding that whatever God leads you into will be consistent with truth.
 
-We must know how to be led by God. Now what has God revealed to us that is his will that is his purpose that is his leading for our life. When we look through the scriptures, which we're also going to justify why we are sourcing that from scriptures later. When we look through the scriptures, we see that God's leading is always the truth. Please, is somebody paying attention?
+Ephesians 5:8-10 brings this into practical discernment. You were once darkness, but now you are light in the Lord. Walk as children of light, finding out what is acceptable to the Lord. The fruit of light is in all goodness, righteousness, and truth. That means discernment is not arbitrary. You judge what is acceptable to the Lord in the light of goodness, righteousness, and truth.
 
-God's leading is always the truth. This is very consistent. Now, there's a simple philosophical case for this. If God is not all about truth, then God himself is fiction. Are you paying attention?
+So there are matters in which the believer should already be able to say, "This is not acceptable to the Lord," simply because it fails the test of goodness, righteousness, and truth. There are matters in which the issue should already be settled before any talk of extraordinary leading begins.
 
-If there is no God in truth, then there is no God at all. Are you paying attention at all to this? Maybe I should start from there. If there's no God in truth, that means you are just making the assumption that there is God. Then there is no God at all.
+If someone claims divine leading, but what is claimed is not good, not righteous, and not true, the matter is already judged. God's leading is always truth.
 
-And if there's God in truth and he's doing something truth, I don't even think there's that God in truth in the first place. Then it becomes sort of ictional. God cannot be assidized the truth. He can't be assidized the truth. Now let's quick look at some text.
+And you can extend that backward into the early biblical examples. Adam did not continue in what God led him into. Cain was warned and still did not do what was right. So from the beginning, the issue is not that God failed to reveal truth. The issue is that man can refuse truth.
 
-Ephesians chapter 1. Everything God would tell anyone to do will be the truth. He cannot lead aside the truth. Ephesians and chapter 1, please go there. God's leading is always truth.
-
-Ephesians 1 and verse 13. For example, the preaching of the gospel itself is called the word of truth. Ephesians 1:13. In him you trusted after you hear the word of truth, the gospel of your salvation. Whatever God leads a man to do or tells a man to do is the truth.
-
-In fact, I could have started from that Genesis chapter 2. You know when God told man of every tree of life of God and not die, what was it leading him to choose? To choose what was right as a matter of truth. Are you paying attention? By the time you ask the question, what is that ree of life?
-
-And you go to Proverbs chapter 3 from verse 13 to verse 18, we find out that the tree of life was called wisdom or understanding. Am I right? In Proverbs 3:13 to18, that tree of life was called wisdom or understanding. He started in verse 13 by saying, "A happy is the man that finds wisdom and the man who gives understanding. Our process are better than the process of silver and our profits than gold." Are you paying attention?
-
-Then by the time we got to verse 18, he said u um she is a tree. Talking about that same wisdom and understanding she is a tree of life to those who receive her. Happy are those who retain her. So wisdom is what hey call the tree of life there. Wisdom.
-
-But the interesting thing about wisdom from what we see in Proverbs chapter 23:23 is that we are told that wisdom is the result of truth. Proverbs 20:23 says, "Buy the truth and do not what? Sell." Wisdom, instruction, and understanding. That means when you have bought the truth, what you have is wisdom, instruction, and understanding. You have that wisdom via instruction that you understood.
-
-Buy the truth and do not sell wisdom, instruction, and understanding. And do not sell wisdom, instruction, and understanding. We are still looking at leading in the newness of life from origin till forever. God's leading is always what? Truth.
-
-God's leading is always truth. Otherwise, God becomes fiction himself. I don't know if you still out there. So I've said before the voice of truth is the voice of God otherwise God becomes fiction. The voice of truth is the voice of God otherwise God becomes fiction.
-
-Now there are two ways. If there's God indeed and is now telling a lie which will also be an absodity because there's God indeed then must but by nature be that which is original which is good which is life which is light which is of truth. Are you following this? Then that means at that point is also evil. And I must add if that is true at all it will not be worth following.
-
-Are you paying attention? Are you Are we together? If he's not God in truth, then he's not God at all. But if he's God in truth and then he's doing then is evil. Are you paying attention?
-
-Which cannot even be. I'm just saying. I'm using I'm speaking illustratively now. Ephesians 1 and verse 13. The gospel is called the word of truth.
-
-By the time you get on to verse Ephesians chapter 4 and he's talking about now that you are saved, you have received that word of truth for your salvation, you are supposed to be taught in the church so that you can grow. He describes the message you are supposed to be taught in church again as the truth. You know Ephesians 4:11 he said Jesus has given the leaders of the church apostles prophet evangelist pastors and teachers he has given them for the perfecting of the saints for the work of ministry for the divine of the body of Christ and they are to perfect the saints so that they will come to the unity of the faith. They will be taught the entire scope of the of the doctrine. Are you there?
-
-Till we come to the unity of the faith of son of God perfect man measure of statess of Christ. What I want you to notice there is that by the time he gets to verse 15, that same message he called unity of the faith, he simply calls it the truth. Ephesians 4:15, he says, "Speaking the truth or being truthful in love." Speaking the truth in love, he calls that message the truth. It was an u it was an um what's it called? An adverb there when it says being truthful in love.
-
-So if you want to argue that by the time you get to verse 20 you see the now again verse 20 says you have not so learned Christ if indeed you have him and have been taught by him as the truth is in Jesus. What you are learning in church he calls it the truth. So what God spoke to man at the beginning was the truth. What God spoke to us in the gospel for our salvation is also called the truth. The message the Lord Jesus gave to the leaders of the church to continue to communicate to the saints is also called the truth.
-
-Let me add one more thing. The nature of God which is now the nature we share with him we are told is the nature that is right as a matter of truth. Are you there at all? Look at Ephesians 4 and verse 24. He says put on the new man which is created after God in righteousness and holiness of what?
-
-So we are putting on what is created after God. And what is created after God is righteous, holy as a matter of what? Truth. So you cannot say God by nature does anything asidize the truth. That would be wrong and it's not even logically properly possible.
-
-Are you following this at all? So whatever God will lead anybody to do will necessarily be the truth. This is such an important point in the leading of the spirit. Now I know when I talk about leaders, people want to hear all the mechanics of how you are led by spirit. You sense this, you do this, you do that.
-
-Those that's why people often get in trouble as well. They have no real anchor that prevents them from drifting into error. The real anchor that prevents drifting into error is the fundamental understanding that God's leading is always what? Truth. It is so key.
-
-It has never been the case that God's leading is truth. God's leading is always truth. Are you paying attention? God's leading is always truth. It is fundamental.
-
-God's leading is always truth. Let me show us one more in this Ephesians 5 and in verse 8. And this one already starts to answer a bit on leading of the spirit because he was talking to the saints in Ephesus and he was telling them that they can discern what to do in a situation by finding out what aligns with the truth. They can discern what to do in a situation. Now we have taught that eaching truth of morality I think in level three as well.
-
-So you would understand this Ephesians 5 better by listening to that which I think you should have listened to anyways before you get here. Ephesians 5 and verse 8. You were once darkness, but now you are light in the Lord. Walk as children of light. For the fruit of the light or spirit is in all goodness, righteousness, and truth, finding out what is acceptable to the Lord.
+There are also later examples people debate, like Moses. Some argue from the timing of Israel's deliverance that Moses, in striking early and acting in the flesh, was not yet aligned with the proper handling of what God wanted done. Whether one presses every detail of that argument or not, the larger point stands: noble intention is not automatically the same thing as accurate leading. A person can think he is helping God's purpose and still act outside God's way.
 
 ## Creation as the First Disclosure of God's Truth
 
-The fruit of spirit is not goodness, right, and truth. Finding out what is acceptable to Lord. It is by that truth you are finding out what is acceptable to Lord. So that quality of being good or right is by finding out as a matter of truth what is acceptable to Lord which by time you listen to the truth of morality you find out is what is of life. What is of life?
+If God always reveals truth, how does he do it? Romans 1 helps us here. Paul says the gospel reveals the righteousness of God, and he also says the wrath of God is revealed against those who suppress the truth in unrighteousness. Then he explains that what may be known of God is manifest in them, for God has shown it to them.
 
-Let's just leave that because that's not our focus here. So the leading of God is always truth. The leading of God is always truth. Now we go to a very fundamental one. We are we are still trying to answer a particular question.
+That is an important statement. What may be known of God is manifest in them because God has shown it to them. So God does reveal what he wants known. The problem with fallen humanity is not first that God was silent. The problem is that men suppress truth in unrighteousness.
 
-Leading is built on purpose. Leading does not exclude your free will. Leading is built on purpose does not exclude your free will. God has to reveal what he wants us to do for us to follow him. It is God's responsibility to make known his leading to us.
+Then Romans 1:20 tells us how this revealing happens: since the creation of the world, his invisible attributes are clearly seen, being understood by the things that are made. So creation, or the natural world, is the first way God discloses truth.
 
-From the beginning God himself revealed what he wanted man to do. So we can have that confidence in his faithfulness. He would always reveal what he wants us to do. The problem is are we receiving what he's revealing? If there is a question of his revealing then there's a question on his character as well.
+By creation we can know the reality of God. We can know something of the nature of God. We can know that there is contradiction, corruption, and disorder in the world. And from that we can know there is need for redemption that only God can ultimately provide. Those are major truths available by creation.
 
-Because if he wants us to fill his purpose and he will judge us for that and he then doesn't reveal it, that's a problem. You can be assured God will always reveal what he wants us to do. That switches the question the other way. Are we receiving what he has and is revealing? Are we receiving what he has revealed and is revealing?
+Those truths are already weighty. Creation tells us there is God. Creation tells us something of what he is like. Creation tells us the world is not in proper order. Creation tells us there is a redemptive need beyond the reach of man. That is already significant divine disclosure.
 
-And we are saying that what he always reveal is truth. Go to Romans chapter one. What God always reveals is the truth. Romans 1 will show us the first way by which God reveals the truth. And I want us to pay attention to it.
+Creation also teaches many things in ordinary life. By observation and reason we can discern truths about life, health, consequence, human conduct, and the world we live in. That does not replace scripture, but it does mean that divine leading is not an abstract mystical thing detached from reality. God has already said much in what he has made.
 
-Romans chapter 1. I'll be starting this time around from verse 16. Romans 1 and verse 16. I'm going to try to jump a bit so that we don't go another direction because Paul's words are often loaded. Romans 1:16.
+So even in ordinary practical matters, the believer is not meant to abandon observation and reason. There are things that can be known by looking at the world rightly and thinking honestly. God has not left man without witness there.
 
-Are you there? He said, "I'm not ashamed." Paul speaking of the gospel of Christ. It is the power of God to salvation. He says this message about the work that Christ has done is the power of God to salvation to everyone who believes to the Jew first and also to the Greek. For in this message and in that work that Christ has done the righteousness of God is revealed from faith to faith as is written the just shall live by faith.
-
-So in this message of the gospel we see how God makes us right. We see how he makes us right. that fact that he's mentioning the righteous of God being revealed in this case because he's redemptive is making us right from a state where we are wrong. The righteousness of God is revealed. But he then adds something else.
-
-The next verse says because what may be known of God was manifest in them. For God has done what? Shown it. So he's howing God's faithfulness to always lead you. He's always going to be faithful to lead you.
-
-And he's always leading by what? The truth. And he's saying that is why they have no excuse. For what may be known of God was manifest in them. For God has shown it to them.
-
-He will never withhold his leading. It is a question of your own receiving that leading. He will not withhold his leading. He would not withhold his leading is on you. It's your responsibility to receive that leading.
-
-So what God speaks is always the truth. In this case, it's quite funny when Paul tells us God has also revealed the truth to even those who are rejecting him. He has shown it to them. Our question should be how did he reveal this truth? How has he revealed his leading to us?
-
-So we're going to be seeing the first way God reveals his leading to man. Verse 19. Because what may be known of God, what God wants you to know. Do you see how important that statement is? Oh, come on everybody.
-
-What may be known of God is manifest in them. Your mind for God has shown it to them. How does God make known those things about him that he wants us to know? How did he show it to us? And how did he make it manifest in us in our mind?
-
-Verse 20. For since the creation of the world. Now of course he has not yet even told us what how he has done it but he's already given us the point by using that word creation in that instance for since the creation of the world his invisible attributes are clearly seen being what understood by the things that are made that's creation glory to god so we are seeing that creation is the first way or sometimes people say nature creation is the first way now if you want to be neutral maybe we are still debating whether you accept God or not we say the natural world, nature. But once we have settled that we say creation, creation or the natural world is the first way God has spoken his truth to man. It's the first way God has spoken his truth to man.
-
-So it says people who are rejecting God are suppressing truth in unrighteousness because God has made known in their mind what he wants them to know by showing it to them. And he has shown it to them by the world that he has made. Since the creation of the world, his invisible attributes are clearly seen, observable, being understood by the world that he has made. Being understood by creation or by the natural world. The first way God communicates his truth is by creation of the natural world.
-
-So God has made known his truth by creation or by the natural world. But the second way we are going to see that God has made known his truth is by what we call biblical revelation or the Bible. He has made known his truth by biblical revelation. So how does God lead us? He leads us by truth.
-
-Now there are several things we can know from creation. We can even know how to go about our health from creation. We can know certain things to avoid from creation. In fact, I've said before that we can know almost five or four kinds of truth from creation. We can know metaphysical truth from creation.
-
-If you observe nough and reason well, you can tell certain things from creation from the natural world. We can also add historical truths as well from creation. But the second way God reveals his truth we are saying now is biblical revelation. And I need to explain that he things we can know from nature from creation such as the reality of God the nature of God that here is a need for redemption because there's a contradiction in the world. We can know the reality of God, the nature of God, the fact that there's a contradiction in the world and that here's a need for redemption that only God can do.
-
-Those are the four things we can know from creation or from the natural world. I'll take it again. We can know four primary things from creation and natural world. And this is talking about metaphysical truth. Now, we can know the reality of God.
-
-1 Corinthians chapter 15. and verse one first Corinthians 15 and verse one leading in the newness of life. How does God lead us today? We have not gotten to the core part which is supernatural leading. The first way God leads with his truth is by creation or the natural world.
-
-1 Corinthians chapter 15 and verse one. The same truth of the gospel that Paul was saying, God has made it known to them by nature. He's now going to speak about in a different way in 1 Corinthians 151. It says, "Moreover, brethren, I declare to you, the gospel, is it not the same gospel we're talking about in Romans 1?" Yes. Which I preached to you, which also you received and in which you what?
-
-Stand by which you are saved. If you hold fast the word which I preached to you, unless you believed in vain, it's still the same gospel. But we are going to be seeing in this situation the revelatory side of it. He said, "For I deliver to you first of all that which I also received that Christ died for our sins according to the what?" So God was already revealing he will do that redemption that only he can do via the person of the Christ. That chosen and anointed persons do the work which we can now make the argument both philosophically and biblically has to be God that becomes man.
+This sets a boundary. God will not tell you something that plainly opposes life as creation itself reveals it. He is not going to lead you into what contradicts the truth of his world.
 
 ## Biblical Revelation and the Fulfillment of Redemption
 
-So he has been revealing it. It is supernaturally validated. Christ rose from the dead not to live and die again. He rose from the dead means he rose out of death and mortality into life immortal for man. Not like he needed it.
+The second way God reveals his truth is by biblical revelation. Creation can show us that there is God, that his nature is good, that the world is not as it should be, and that redemption is needed. But if redemption is to be known in its actual accomplishment, God must reveal it.
 
-Lastly, he told us then, last of all, he was seen by me also as one born out of due time." Praise the Lord. The first way God reveals his truth to man is by creation or nature. The second way is by biblical revelation. And by re I mean the revelation that pertains to redemption. Because before we say Bible, before there was Bible, there was redemption revelation.
+If there is a redemption only God can do, then God must speak about it, promise it, and bring it to pass in a way that can be received as true. Otherwise man remains in inference without clarity.
 
-It was revealed to the prophets of the scriptures of the Jews. It was now fulfilled in the presence of Jesus. Witnessed by his apostles disciples and also documented. So that redemption revelation is what we also now calling biblical revelation because it is God's own orchestration that the Bible becomes the authoritative document for both his truth and his revelation. So it's from that Bible we now also find out okay fine there is God.
+That is why 1 Corinthians 15 matters. Paul says he delivered what he received: that Christ died for our sins according to the scriptures, that he was buried, and that he rose again the third day according to the scriptures. Then he lists witnesses. So redemption was revealed beforehand in scripture, fulfilled in Christ, supernaturally validated by the resurrection, and historically witnessed.
 
-There's the need for redemption. It has been done. Why did he make us? It is the Bible that now become the credible source to tell us what God's purpose is. So the second way God leads by his truth is biblical revelation.
+This is important because it shows that God's revelation is not bare assertion. It includes fulfillment and witness. The gospel is not merely announced. It is historically grounded and supernaturally validated.
 
-The first way he lives by his truth is creation and nature. And there are many things you will learn that God wants you to do by observation and reasoning on creation and nature. There are also many things you will learn about God's purpose and plan by observation and reason of the scriptures, the holy scriptures. Are you there? I would even go further to say that it is very likely that 90% of the leading you will need in this life would be gotten from creation and the Bible.
+This is why we speak of biblical revelation. God was already revealing redemption before the completion of the Bible, but the Bible has become the authoritative document in which that revelation is given to us. Through it we know that redemption has been done. Through it we know the purpose of God for man. Through it we know what sonship is, what fellowship is, what inheritance is, and how the believer is to walk.
 
-God reveals his truth to us number one by creation nature number two by the Bible and number three now we are saying what supernaturally we're now saying that in an individual sense God reveals to you supernaturally what he wants you to do you would have already told you many things by creation nature and by the Bible by creation/nature and the Bible you would have told you many things already. For example, he would have already told you his purpose that the reason why I made you is because of what? Sonship. He would have explained that sunship means you are my child. You are called to fellowship with me and then to walk in my character and nature.
+So when we say God leads by scripture, we are not merely saying that the Bible contains moral sayings. We are saying it is the authoritative revelation of God's redemptive purpose and of the believer's life in Christ. That gives it a foundational role in the doctrine of leading.
 
-You would have told you that being my son also means you are an heir and you have a natural assignment of inheritance and a spiritual inheritance. Are you there? He would have told you that for that one you don't need supernatural revelation. He has already spoken that to you by biblical revelation. So if we are going to follow God's leading the very first thing we need we can say is the knowledge and conviction of God's truth in nature.
+In fact, much of what people are waiting to hear supernaturally has already been spoken in creation and in scripture. It is very likely that most of the leading a believer needs in life will be found there.
 
-That's the first thing we need. We're going to follow God's leading. The first hing we need is the knowledge and conviction of God's truth in nature. Notice I said knowledge and conviction because that we know it is one thing. That we hold it as a conviction is another thing.
+That means if you ask, "What does God want from me?" much of the answer is already available. He has already told you that his purpose is sonship. He has already told you that you are called to fellowship with him, to walk in his character, to live as an heir, and to function faithfully in both natural and spiritual stewardship. Many things do not require a special message because they have already been revealed.
 
-That I have seen his truth in nature in creation that there is God. That his nature is like this. Are you paying attention? If you are going to follow God, the first thing you need is the knowledge and conviction of God's truth in nature. The second thing you need is the knowledge and conviction of God's truth in scripture.
-
-the knowledge and conviction of God's truth in scripture. First thing we need is the knowledge and conviction of God's truth in creation or nature. Number two, second is the knowledge and conviction of God's truth in scripture or the Bible. This is the foundational knowledge that we ought to have about God's leading. It sets the boundary against error when it comes to supernatural leading.
-
-When you have this foundation, the foundation of the conviction of God's truth in nature and in the Bible, you have set a boundary against error in supernatural leading. He sets a boundary against error in supernatural leading. Thank you Lord Jesus. But now we have to look at this third part of the leading of God's spirit. I'm not stopping this but I'll endure.
-
-Don't worry. Don't don't bother. You have to end. So I will get used to it over time hopefully. We have to look at supernatural leading.
-
-How does God lead us supernaturally? Well, let me quickly make some extra comments. You know we can know many things God wants us to do just from creation or nature and also from the Bible. You can already know many things he wants you to do.
+That is why the knowledge and conviction of God's truth in nature and in scripture are not optional extras. They are the beginning of a life that can walk accurately with God.
 
 ## Most of God's Leading Is Already Revealed
 
-If you are going to ask God the question, what do you want me to do for my natural assignment? You should already be following what he has aid in his word which is choose based on the circumstances you have found yourself in. Start from where you are. Use opportunities that you have available to you. Then whatever you desire to do, if you have the means to pursue your own desires, pursue your desires as well, start from where you are.
+This point needs emphasis. Many believers ignore what God has already said and then wait for a special leading on what remains. That is a serious error. You cannot make much of the smaller portion of supernatural direction while neglecting the larger body of revealed truth.
 
-I don't understand why. Are you following this? The things that may be known of God, they are shown to us. He wants us to have life. Are you following?
+If we were to put it roughly, the overwhelming portion of the leading many believers need is already available in creation and in scripture. The smaller remaining portion is the more individualized supernatural direction people often focus on. But if you ignore the larger body of revealed leading, you will not do well with the smaller portion either.
 
-And then we can discern by observation and reason that taking poison is not of life. What are you doing with that? That's what Ephesians 5:8-10 was saying. Finding out what is acceptable to the Lord. The fruit of the light, the fruit of the spirit is in all goodness, righteousness, and truth.
+For example, in many questions of natural assignment, God's word has already set a broad frame: start from where you are, use the opportunities available to you, exercise responsible judgment, and pursue what is within lawful and wise desire. There may be later instances of special direction, but there is already much guidance.
 
-You already know this is not in line with righteousness is in all goodness, righteousness and truth. Finding out was ourselves the Lord. There are things you should know. So we must know the boundaries that have been set for us by God's truth in creation and in the Bible. We must know the boundaries that have been set.
+That means if someone asks, "What should I do in my natural assignment?" he should first pay attention to what God has already made plain. Start from where you are. Use what is available. Develop what is in your hand. Pursue what is lawful and wise. There can still be further direction, but not before the obvious has been honored.
 
-Don't be expecting a strange leading. Yes, there you know that's an error. There are boundaries that have been set for us in terms of God's leading. God has already led us by his truth in creation and his truth in the Bible. He has already led us by that.
+There are also clear moral boundaries. God will not tell you to do what is injurious to life, what is contrary to righteousness, or what opposes truth. He will not tell a married man to commit adultery. He will not tell a person to act in a way that contradicts what he has already revealed. There are matters you should already know.
 
-Let me say something else in regards to that. That means the more you reason properly, the more you descend what God has already said, what God has already revealed. Poor reasoning on the scriptures has caused people right leading in life. The more you reason properly on what he has already said within the scriptures, you reason properly on what God has already revealed in creation, the more you walk with him more accurately. Are you paying attention here?
+The same applies in many practical cases. If the natural consequences, the moral shape of the action, and the scriptural witness all tell against something, you do not now wait for an extraordinary leading to rescue it. The matter is already judged.
 
-You're not managing resources. And you want to walk in God's purpose. How? You are already disobeying God. I am now still looking for his lead on top of that.
+So we must know the boundaries set for us by God's truth in creation and in scripture. Do not expect a strange leading that overturns what God has plainly said. He has already led us by truth in these ways.
 
-That's not seriousness. Now I don't know where we are together. If you don't build your yourself in the spirit based on what you have seen on God's word, it will be difficult for you to follow the leading of God's spirit. For example, if you don't have a strong conviction of your character in Christ, you will likely fall like a pack of cars under certain situation. Even God's best for you might miss it because you might be too permissive.
+The more properly you reason on what God has already revealed, the more accurately you walk with him. Sometimes people embrace folly because they refuse to reason well. They say they are waiting in faith for what God is actually calling them to address by discipline, obedience, or wisdom. That is not spirituality. That is irresponsibility.
 
-You might be too successful to the pressures from people. So we are saying following the law of spirit requires knowledge and conviction of God's truth in creation. knowledge and conviction of God's truth in scripture. It means we must build oursel on that. We must not just know we must make it our conviction.
+Sometimes people even glorify doing nothing, as though inactivity itself were spiritual. But it is one thing to be patient where outcome is concerned, and another thing to be passive where obedience is concerned. There are many matters in which the believer already has direction and should be urgent, not sluggish.
 
-Some instances has to be more than our conviction. It has to be our faith stand, our consciousness, our reckoning. You must be strong in it. That's how you know that God is saying you should do. God cannot say you should do one thing, you should not do the other thing.
+Many people are stuck because they are not obeying simple things. They are already living against what God has clearly said, yet they are asking for higher guidance. But if you are already disregarding his revealed will, how will you walk well in more specific direction?
 
-God will say be disciplined and be are you following this? Following the leading of the spirit, finding out what is acceptable to the Lord, following the leading of the spirit. So that's leadingness of life. Leadingness of life is not just supernatural leading. This is an error.
+You cannot ignore discipline, truthfulness, righteousness, stewardship, and seriousness, then act as though the main issue is only that you need a supernatural clue. Often the very disorder of life is already the evidence that what has been plainly revealed has not been obeyed.
+
+That is why urgency matters. It is good to be patient for outcomes, but it is not good to be slow concerning what God has already directed. Paul in Acts 16 was not idle, waiting for a mystical sign before doing anything. He was moving in obedience to what had already been revealed: the gospel is to be preached. Then, in the midst of active obedience, God redirected him.
+
+That is an important pattern. You move faithfully in what is already clear, and where additional direction is needed, God gives it. Doing nothing is not necessarily piety. Sometimes it is simply passivity.
+
+So the believer should not become sluggish under a distorted doctrine of leading. There are things already spoken that should be done urgently. The apostolic pattern is movement in obedience, not paralysis while waiting for endless confirmation.
+
+This also helps with many questions people raise in practice. Someone may ask whether he should keep waiting for a deeper sign before taking a responsible step that is already lawful, wise, and available. Often the answer is that he should stop treating obedience like mystery. If the truth of God has already set the frame, and nothing in scripture, righteousness, or sound judgment opposes the matter, then he should act responsibly and stop glorifying hesitation.
+
+That does not mean every choice is trivial. It means not every choice needs to be turned into a crisis of hidden direction. There are areas where the leading of God is precisely that you should act with maturity within the truth already revealed. When believers fail to understand that, they become passive, overly dependent on signs, and weak in stewardship.
 
 ## The Mind Must Be Trained by Truth
 
-Following the lead of God requires that you take seriously the knowledge and conviction of what he has revealed already in creation and what he has revealed in scripture. Before we talked about supernatural leading at all is many times just 10%. In fact, your effectiveness in receiving supernatural leading is based on your effectiveness in receiving what he has revealed in creation and by scriptures. If you have built yourself strong in that regard, it will be easy to receive the of God's spirit. A very important example we always have to mention is the example of Paul.
+If supernatural leading is going to be received accurately, the mind must be trained by truth. Your effectiveness in receiving supernatural direction is deeply connected to how established you are in God's truth in creation and in scripture.
 
-Paul in acts 16. He wasn't waiting on the leading of God. He was on the move based on what God has already led us to do by his word going into all the world preaching to every creature. He was moving doing that and God himself now stopped. Hey in this instance hold on but he was urgent about the leading he already had before he was now led by God.
+This is why the leading of God in creation and in the Bible is, in a sense, stronger as a boundary than later subjective experiences. Supernatural leading can be misinterpreted. Truth already revealed is not subject to that kind of uncertainty. That is why it functions as a defense against error.
 
-take seriously the leading of God. God speaking to you via what he has said in creation or what he has said in the Bible is as is even stronger than God speaking to you supernaturally because supernatural leading is susceptible to error. Are you paying attention? In a way that the leading of God in creation and the Bible is not is somebody out there is susceptible to difference in adaptation. And I'm going to show you that.
+There is a mind that is not strong enough to discern properly. Ephesians 5 says, "finding out what is acceptable to the Lord." That implies the mind can be trained to prove, discern, and judge what is fitting. If the mind is poorly trained, the person will struggle to receive rightly.
 
-I'll show you the reason why supernatural perception or often called inward witness is the strongest form of that leading. If God will speak something to you, you can misinterpret it. But if you have the knowing that do this or the feeling that this is not okay, that one cannot be intercepted. It means something is off here. I need to take a pause.
+So the issue is not only whether revelation exists. The issue is the condition of the receiver. God can reveal faithfully and still be received badly by a mind that has not been disciplined in truth.
 
-Let's move forward. Supernatural leading is built on the foundation of conviction of God's truth in nature and the Bible. Supernatural leading is built on that foundation. It becomes a defense, a boundary against what? Error.
+Romans 1 helps us again here. Why did men reject truth? Not because truth never came to them, but because they suppressed it. Their thoughts became futile. Their foolish hearts were darkened. They did not like to retain God in their knowledge, and they were given over to a debased mind.
 
-It becomes a defense and a boundary against error. Let me say it another way. I don't think I've said this well enough. There is a mind you can have that is not strong enough to properly descend God's leading. If your mind is not trained in God's word, it is not strong enough to descend God's leading in a particular situation.
+That is a real warning. If a mind becomes set in suppression, resistance, offense, vanity, and corruption, reception becomes unreliable. The issue may no longer be whether truth is present, but whether the person can receive it sincerely.
 
-So when Ephesians 5 and verse 8 is saying finding out what is acceptable to the Lord. Ephesians 5 and verse 8 to10. It means that some people's minds might not be well trained to discern or to find out or to know or to prove that which is accepted to the Lord. Their mind may not be that trained. Are you paying attention?
+That means the state of the mind matters greatly. A mind can become defensive, hardened, permissive, biased, or corrupt in its reception. So the problem may not be that God is not speaking. The problem may be that the receiver has been trained against truth.
 
-You need to work on your mind. Your mind is the receiver. Let's go back to that Romans 1. The reason why we saw those people that they were unable to receive God's truth is that their mind had been trained against receiving God's truth. So it means there's a lot of work you have to do on your mind to ensure that it is sincere.
+For this reason, you must keep the mind sincere before God. Avoid things that harden the heart. Avoid things that fill the mind with corruption and defensiveness. Avoid gossip, bitterness, entrenched biases, and habits of inward resistance.
 
-It is honest to receive the truth of God's word. I want you to look at that. Romans and chapter one. Notice what he said. Romans 1 and verse 21.
+This is practical. If your mind is full of offense, argumentativeness, vanity, permissiveness, or hardened preferences, then even when truth comes, you may find yourself resisting it internally. The issue will not be that revelation did not arrive. The issue will be that the mind fought it.
 
-Why did they reject that truth? They were suppressing the truth. So the truth indeed came to their mind but they were suppressing it. So can someone's mind be trained to suppress the truth? Yes.
+Part of the work of the church in equipping the saints is this very thing: working on the mind so the believer can receive from God, discern well, and walk in truth. A person whose mind is trained on truth can often judge the shape of a matter even before any further revelatory detail comes.
 
-Do you know that times people be hearing God's word purely not that even out of fense and yet their minds already fighting as they hearing it are you aware okay don't let me say have you done it before yes now I've done it before have you done it before eh you have not done it before that is very hearing God's word you know but at that instant in your mind you are h that just annoyed for whatever What is that really? So not that you are meditating or reasoning on God's word which is okay. That one you are annoyed, you are offended. So you are fighting the word. You are suppressing the word.
+In that sense, a trained mind can say, "Something is off here," or, "This is how this matter ought to be handled," because the mind has been formed by truth. Then if revelatory detail comes on top of that, it comes into a healthier receiver.
 
-I've done before. You know what makes it worse? If you're in an environment where it's boo, you will even know where to draw the line. That's why sometimes just avoid generally for your peace of mind. That's why I avoid critical people.
+That is what it means to have a Bible mind, a truth mind, a righteous mind. If your mind is overly permissive, overly fearful, overly desirous, or simply unwilling to submit to truth, you will distort what you receive. But if the mind is disciplined in truth, it becomes a faithful receiver.
 
-It will become too stress for you. You can set up your mind to be struggling with receiving from God because you always be you now become extremely defensive. You will not even be sure which is what. Keep your mind sane and pure. Sit down.
+Imagine a permissive mind. It may constantly choose ease over righteousness and then mistake that preference for peace. Imagine a fearful mind. It may mistake avoidance for wisdom. Imagine a desirous mind. It may call appetite by the name of leading. That is why the training of the mind is not optional. It is necessary if the believer is to receive accurately.
 
-In the meanwhile, are you not going to save yourself this person? Train your mind to be receptive of the lean of God's spirit. He told us in verse 21, although they knew God, they did not glorify him as God, nor were they thankful, but they became futile in their thoughts. And their foolish hearts became darkened. Let me now show you another text I want to show you.
+This is also why certain habits are spiritually dangerous even when people treat them as small things. If a person's inner life is constantly fed on offense, reaction, comparison, resentment, and corruption, the mind gradually loses its ability to stay plain before truth. Then when serious decisions arise, that person may think he is perceiving spiritually when in fact he is only reacting from a polluted inward state.
 
-Look at verse 28. And even as they did not like to retain God in their knowledge, God gave them over to a what? God gave them over to a what? to a reprobate or a debased mind. That's like a adding state of mind.
+So the work of renewing the mind is not just for moral growth in a general sense. It is also part of becoming a better receiver of divine leading. A renewed mind is not the source of revelation, but it is the healthier ground of reception.
 
-Don't trust like Balab. Don't trust yourself. I don't know if someone is listening to this. Yes. That's why sometimes avoid things that will mess up with your mind.
-
-Ensure you train your mind. Once your mind is trained on the conviction of God's truth in creation and in the Bible, then you are ready for supernatural living. Are you following what I'm trying to say? But if your mind is already in the state where there are certain biases you have already created, there are certain ways you are already disposed. How can you be I'm sorry.
-
-How can you be sure of the supernatural leading that you receive? It will be tainted with that bias or your mind. If your mind is not simply sincere to receive from God, please train your mind on the conviction of God's truth in nature and in scripture. Train your mind on it. Avoid gossip.
-
-This part of the training of church said the equipping of the saints, the perfecting of the saints is that working on your mind. Not just to walk in the spirit, but also working on your mind to receive from God, to be led by the spirit. You have to train yourself to be led by the spirit. Train your mind that way. You already know God's voice on this matter.
-
-You can already judge the matter. Something is off here. This is what ought to be done in this situation. This is how this matter should be handled as a matter of the truth. This is how this matter should be handled.
-
-Imagine your mind is a permissive mind. You won't be able to hear God live because you be thinking, "Wo, let's just avoid the problem." Are you following what I'm trying to say? And in that, you can meet God because you have a permissive mind. Praise God. You must have a righteous mind.
-
-You must have a Bible mind. You must have a truth mind. No, I don't really like stress, so I don't want too much pressure. Let's just forget about it. If you continue like that, you'll miss God.
+So train your mind on the conviction of God's truth in nature and in scripture. Before we even discuss the operation of supernatural leading, that foundation has to be laid.
 
 ## Forms of Supernatural Leading
 
-How does supernatural revelation operate? How do we operate in receiving supernatural revelation or supernatural leading? I mean supernatural leading call supernatural revelation. How do we operate in that? We can mention that there are three major kind of experiences in supernatural reading or revelation.
+Now, when we talk about supernatural leading itself, we can mention several kinds of experience. The first is inward witness, or what we may call supernatural emotion or perception in the sense of approval or disapproval. The second is supernatural knowing, where information comes without hearing a voice or seeing a vision. The third is supernatural sound. The fourth is supernatural sight or vision.
 
-So I'm about to go into looking at the operation of supernatural leading but I'm more concerned for the conviction of your mind that guarantees are you following this? When you operate for supernatural leading that you are going to receive accurately that's the biggest part. Acts 16:6 it says when they had gone through Phrygia and the regions of Galatia they were forbidden by the Holy Spirit. Look at hat. They were forbidden by the Holy Spirit to preach the word in Asia.
+Acts 16 gives us useful examples. Paul and his companions were forbidden by the Holy Spirit to preach in Asia. Then when they attempted to go into Bithynia, the Spirit did not permit them. Notice that the text does not first present that as an audible voice or a visible vision. It reads more like an inward restraint, a forbidding, a strong witness that says no.
 
-like almost a repulsion on their no this not okay. It's like someone just said something and it's just repulsive to you like you are still processing. You have not even ended the conclusion why it's repulsive but this thing is repulsive that feeling emotion but now supernaturally gotten not that someone says something gotten from the Holy Ghost that is you don't have anything in the natural to warrant the emotion is out of the supernatural that the emotion are you paying attention you want I have nothing I have there's nothing I can in fact all looks good are you following what I'm trying to say but there is that emotion from the supernatural no are you paying attention You know there can be an emotion from the natural you have seen something naturally heard something like ah is even possible you can see something naturally I feeling off about and there's a emotion from supernatural that says go are you paying attention so there can be a positive emotion of supernatural not based on something natural the problem is when we're talking about something like maybe relationship now there's already so many natural things that already giving a positive emotion it takes a lot of patience and discernment to get the supernatural one that will tell you whether it's still a go or is a no cuz even if you get the go supernaturally you may not even be sure whether it's supernatural is natural you know your body they go already your mind has already g you I mean the natural has already given you green light is somebody paying attention here but you must be able to be you must be patient amen to discern be patient to discern what am I getting from this am I getting a goal from the supernatural source from the Holy Ghost. Are you paying attention? There is a there's an emotion I will get naturally.
+That is important because many people assume leading must always come with dramatic sensory form. But Acts 16 first shows restraint and non-permission before the later vision of Macedonia. That means direction can come as inward witness without spectacle.
 
-Are you paying attention here? That's how you handle leading of the spirit. There's what to do with natural load. The word is supposed to help you to make a judgment on natural. The truth is upposed to help you make a judgment on natural.
+That is what many people call inward witness. There is a supernatural yes or no, an approval or disapproval, independent of merely natural preference. This matters because natural emotions can already push you in one direction or another. So in dealing with supernatural leading, especially in complex decisions like relationships or major life movements, you must distinguish between natural inclination and the Spirit's witness.
 
-So supernatural emotion/inward witness the yes or the no as a matter of an emotion not based on anything natural a yes or a no not based on anything natural an emotion that is approving or disapproving not based on anything this not based on anything natural is a very cart of two are you following this a supernatural emotion approving or dis approving of something Not based on anything what natural very important accept what you already know naturally and your judgment on that matter and separate it and then you are now seeking a supernatural emotion that do you have something against or for amen hallelujah okay let me just let me move on there's supernatural knowing which is just coming to have an information not by hearing anything or seeing anything you just happen to just know it also can be called supernatural perceptions. Paul said that in acts 27. So I've showed us supernatural emotions forbidding. In fact, I should show us another one again that act 16. You will see it later in verse 7.
+That distinction becomes especially necessary where natural attraction is already strong. In a matter like relationship, for example, the natural realm may already be giving green lights through desire, chemistry, or admiration. That is precisely why patience and honesty are needed if you are to distinguish natural inclination from supernatural witness.
 
-Then there's supernatural sounds, audio, and supernatural sight. Back in that act 16 eventually they had a dream a vision Paul had one verse 8 so passing by Messia they came down to trials and a vision appeared to Paul in the night so imagine he has to be changing his journey okay wanted to go here they said we should not go let's go the other way now let's try to still go to where we are going noh okay let's go the other way sh and let's see are you paying attention are you paying attention a vision came to Paul in the night a man of Macedonia stood and pleaded with him saying come over to Macedonia nd help Now after he has seen the vision immediately we sought to go to Macedonia. So he had a sight and a sound. A vision the cart of God's leading is his truth in creation and the Bible is the foundation for supernatural leading. Supernatural leading can come by supernatural emotion, supernatural knowing or information, supernatural sounds or supernatural what?
+The word and truth already help you judge what is before you in the natural. You observe character, consequence, righteousness, wisdom, and the other things already revealed. Then beyond what you know naturally, you can ask: Holy Spirit, is there a yes or a no beyond my present observation?
 
-Sight. Are you there? We said the strongest form of leading supernatural emotion is the safest because it's not susceptible to misinterpretation. Are you there? Supernatural knowing susceptible I'm sorry to misp likely misinterpreted that knowing he had.
+That is a healthy way to frame it. The matters already available to judgment are not ignored. They are judged. Then where there may be realities beyond present observation, you ask whether the Spirit is giving further direction.
 
-He proposed in his spirit to do this where he's being allowed he's given a green light. Those ones is very clear it's yes or no. And that's why you often hear it said particularly what does that inward witness is the safest form of course let me add supernatural leading. I'm not talking about God's truth in creation and the bi the Bible the word. Is the safest form of supernatural leading.
+That order is important. You are not trying to make the Holy Spirit replace the work of honest judgment that truth already requires. You are first doing the judgment already demanded by revelation and reality, then seeking whether there is anything further.
+
+That inward witness is often called the safest form of supernatural leading because it is less susceptible to misinterpretation than some other forms. A vision can require interpretation. A sound or word can be misunderstood. A supernatural knowing can be mixed with assumptions. But a direct inward restraint or permission, especially in prayer, is often clearer as guidance.
+
+You can say that some supernatural experiences give facts, while others give direction. Inward witness often gives direction more directly. That is why many believers speak of it as the safest form of supernatural leading.
+
+Now, supernatural knowing is different. In Acts 27 Paul says, "I perceive that this voyage will end with disaster and much loss." That is not simply an inward yes or no. That is informational perception. He is saying he knows something. He has not necessarily told us that he heard a voice or saw a vision. The information is simply present.
+
+That kind of perception may still require response. You may know something and still need wisdom regarding what to do next. So again, information and direction are not always identical.
+
+Then there are supernatural sounds and sights. In Acts 16, after the earlier restraints, Paul saw a vision in the night: a man of Macedonia stood and pleaded, saying, "Come over to Macedonia and help us." There you have sight and sound together in visionary form.
+
+So scripture itself shows that supernatural leading is not locked into one mode. There can be inward witness, informational perception, auditory communication, and visionary communication. God can guide by any of them.
+
+And because scripture shows more than one mode, the believer should not create unnecessary dogma around a single mode as though that were the only valid one. At the same time, he should not pursue variety for its own sake. The issue is not to collect unusual experiences. The issue is to walk accurately with God.
+
+But the believer should not become fascinated with the variety and forget the foundation. God's truth in creation and in scripture remains the basis. Supernatural leading does not float free from that. It is built on it.
+
+## Why Inward Witness Is Often Safest
+
+The reason inward witness is often spoken of as the safest form of supernatural leading is that it does not usually come loaded with symbolic interpretation. If you hear words, you may still ask what exactly they mean. If you see a vision, symbols may require interpretation. Two people can even see similar imagery and interpret it differently.
+
+But where there is a direct inward permission or restraint, the function is simpler. It is a go or a no. It does not answer every question, but it gives direction.
+
+And even that must be received after the earlier judgment in truth has been done. If you skip truth and rush to inward witness, you are not being spiritual. You are being careless.
+
+That is why the safest practice is not to oppose truth and inward witness as alternatives. Truth forms and governs the mind. Inward witness serves within that truthful frame. When both are kept in their proper order, the believer is protected from a lot of error.
+
+In many decisions, once you have already judged the matter by scripture and by sound reasoning in the natural, you may still ask the Lord whether there is anything beyond your observation. There may not be. But if there is, that inward witness can serve as an additional boundary for God's purpose in your life.
+
+That can matter in situations where nothing obviously immoral is present, nothing plainly irrational is present, and yet paths are still not the same before God. A matter may not be evil in itself and still not be fitting for your path. That is one of the places where supernatural direction can become especially helpful. It is not always correcting obvious sin. Sometimes it is marking out what is fitting for purpose.
+
+But even there, the believer must remain sober. He does not use inward witness as an excuse to avoid truth, accountability, honesty, or practical wisdom. He does not suspend observation. He does not suspend moral judgment. He allows the Spirit's witness to function where it belongs, alongside what has already been revealed.
+
+This does not mean you abandon judgment. It means judgment in truth is primary, and inward witness serves within that framework. If you ignore truth and then seek inward witness, you are already out of order. But if you have judged truthfully and still seek the Lord for further direction, you are walking responsibly.
+
+That is why this teaching tries to keep believers from two opposite errors. One error is hyper-mysticism, where people neglect truth and wait for impressions. The other error is closed rationalism, where people deny that the Spirit can direct at all. Scripture allows neither. God leads by truth already revealed, and the indwelling Spirit also gives direction.
 
 ## Supernatural Leading in Prayer
 
-You meet it here. Now you can't be more God than God. Is God of truth. It will always have it effect. I don't know what we're saying yesterday.
+How then does supernatural leading operate? Primarily in prayer. The believer sets himself in prayer to be receptive to whatever way God wants to communicate on a matter.
 
-It's predictable. So don't ignore what God has already said. Waiting for what you want him to say. Now they are all important. So supernatural leading how does he operate?
+The key idea here is receptivity to what you do not self-generate. In prayer you are not trying to manufacture an answer. You are not trying to force a feeling, invent a knowing, or construct a vision. You are standing in faith for a supernatural autonomous experience given by the Spirit.
 
-If you want to be honest with scriptures, supernatural leading primarily operates in prayer. You train yourself to be more effective in supernatural leading in the place of prayer. And particularly what do we do in the place of prayer? We set ourselves to be receptive of any way God wants to communicate to us in prayer by faith stand. Are you following this at all?
+That distinction between generated and given is essential. The same human faculties that can think, imagine, and feel naturally can also become the place of reception. But not everything that occurs there is from God. So the believer waits in prayer for what is given rather than forcing what he wants to happen.
 
-We set ourselves to be effective. Now particularly when you want to receive the lead of the spirit your faith stand is that you want to receive something that you don't generate. Are you following this? So you want to receive an autonomous experience an autonomous emotion an autonomous knowing an autonomous sight or sound not a generator. You know with the same mind you think a lot but it's in the same mind that you have automated or autonomous experience.
+That language matters because many people confuse intense self-generated thought with spiritual reception. But in the operation of the Spirit, the content is given. It is received, not invented.
 
-It depends on two things. Maybe how serious God is at that moment or how serious the battle is or how sharp you are as well. It can be strong, very strong, very strong. So we are in faith stand in prayer for a supernatural autonomous experience of what to do on a matter. That is how it works.
+It may come as a witness, a knowing, a sight, or a sound. But whatever form it takes, the mark is that it is received as something beyond self-manufacture. That is why prayer and faith are central to the operation.
 
-There are times where because you are in faith stand in prayer for the supernatural generally God himself will just interrupt you and talk to you. Are you following this? Sometimes you are the one that will go and inquire. There are times the one that will just interrupt you because you are receptive. At times you go and inquire and then he speaks to you.
+That experience may be an inward witness. It may be a knowing. It may be a sound. It may be a sight. But the operation is the same: in prayer and by faith, you are open to receive what the Spirit gives.
 
-Well that's how best I can frame it for now. The operation of supernatural leading is by faith and in prayer for supernatural autonomous experiences. And by experiences it doesn't necessarily mean a vision. It can be an emotion, a knowing, a sight or a sound. In face and in prayer for a supernatural autonomous experience on a given matter.
+Sometimes that reception is strong and obvious. Sometimes it is quieter. Sometimes it comes while inquiring on a matter. Sometimes it comes by interruption when the Lord chooses to alert you. But prayer is the environment of receptivity.
 
-Now you can exactly be seeking a supernatural emotion on that matter because you want a yes or no. Should I or should I not Lord on this matter? And you are there open my natural judgment you already know Lord but I'm open even if you say this are you following this what are you saying and supernaturally you receive the emotion this is fine or this is not fine for whatever reason that is how it works amen glory to God the leading of spirit is not more than that there's no one secret something somewhere is no more than standing in prayer for supernatural autonomous experience and of course the conviction which is reasoning on God's word and also on his truth in nature or in creation. That is the leading of the spirit and that's the leadingness of life. Now the leadingness of life we are particular about or supernatural leading because someone can be led by rightly discerning God's word or God's truth in creation right but for the believer you have this privilege of also supernatural leading alongside that happens by the spirit within.
+Sometimes you are inquiring on a specific matter: should I or should I not? At other times the Lord may interrupt without your prior question because you are already living receptively before him. Both belong to the life of the Spirit.
 
-And the Lord Jesus was the one who taught us the operation of the of the working of the spirit to reveal things. Now he was talking about it for when you are facing a situation where they have taken you. Are you following this? But what he did there was reveal how the spirit operates revelation like we talking about how the spirit operates power. Are you following?
+And where the believer is specifically asking for direction, the aim is not to manipulate the answer. The aim is to remain open. Even if the answer frustrates desire, the posture must still be, "Lord, what are you saying?" If a person approaches prayer already determined to extract only the answer he wants, then even the place of prayer can be misused by a resisting heart.
 
-He said like that friend that keep that kept asking, you just stay there, he's surely going to give it to you. So you can receive the spirit on any matter if you will stay there. Faith stand in the place of prayer is how it operates. Brothers and sisters, I think we have done enough on that. Any other thing will be level four.
+Sometimes the Lord interrupts and speaks because a believer is already receptive. Sometimes the believer specifically inquires. But in either case, prayer is central. You ask, and you wait in faith. Luke 11 shows that the Father gives the Holy Spirit to those who ask him. So the place of prayer is not incidental to this subject. It is where receptivity is cultivated.
+
+That waiting in prayer should not be imagined as an empty, passive drifting of the mind. It is an active faith-stand. You are before God, steady in revealed truth, refusing self-manufacture, and open to the Spirit's giving. If a witness comes, you receive it. If a knowing comes, you receive it. If there is no further direction, you do not invent one. You go back to what is already clear and continue in obedience there.
+
+The Lord Jesus also showed the broader pattern of Spirit-operation when he taught the disciples not to premeditate what they would say under certain pressures, because what was to be spoken would be given to them. That does not erase preparation in every context, but it shows the mode of Spirit-given utterance: what is needed can be given rather than self-produced. The same basic principle helps us understand leading. We remain open to what the Spirit gives.
+
+So the believer learns both sincerity and restraint in prayer. Sincerity, because he truly wants what God wants. Restraint, because he refuses to generate content and then baptize it as divine. This is why prayer is not merely a technique here. It is a posture of receptivity under truth.
+
+And even here, the earlier foundations still matter. You remain open, but not careless. You remain receptive, but not gullible. You do not discard what God has already revealed while waiting for what you hope he might say. Rather, you stand on revealed truth and in prayer ask whether there is any further direction to receive.
+
+So the operation is not some hidden secret beyond reach. It is faith in prayer, grounded in what God has already revealed, open to receive what only the Spirit can give.
+
+## Leading in the Newness of Life
+
+So when we speak of leading in the newness of life, we are not speaking only of rare supernatural moments. We are speaking first of a life shaped by God's revealed truth, and then also of the believer's privilege of supernatural direction by the indwelling Spirit.
+
+God leads by truth in creation. God leads by truth in scripture. God may also lead supernaturally in individual matters by inward witness, knowing, sound, or sight. But the order must remain clear.
+
+That order protects the believer from error on both sides. It prevents the error of treating supernatural leading as though it can cancel truth. And it prevents the error of pretending that the indwelling Spirit does not guide at all. Truth and Spirit-direction belong together in the life of the believer.
+
+It also protects the believer from confusion about maturity. Maturity is not the endless search for unusual experiences. Maturity is strong conviction in revealed truth, seriousness in obedience, soundness of mind, and openness to the Spirit where further direction is needed. When that order is maintained, the believer is less likely to be tossed around by voices, impulses, crowd pressure, or his own untrained desires.
+
+If a person neglects truth in creation and scripture, he becomes unstable in supernatural matters. If a person trains the mind in truth, walks urgently in what is already clear, and remains receptive in prayer, then supernatural direction can be received more safely and more accurately.
+
+That is why the believer should not despise the ordinary-looking work of learning scripture, reasoning honestly, correcting habits, and keeping the heart plain before God. Those things may seem less dramatic than visions or voices, but they are part of the very structure by which safe leading is received.
+
+In other words, the life of being led by God is not built on spectacle. It is built on truth, honesty, obedience, and receptivity. Where those are present, supernatural direction has a safer place to operate. Where those are absent, even dramatic experiences can become occasions for confusion.
+
+So the serious believer must love truth more than novelty and obedience more than excitement. That is part of how purpose is preserved.
+
+It is also part of how confusion is reduced.
+
+And it keeps the believer steady over time.
+
+It keeps him from drift.
+
+So do not ignore what God has already said while waiting for what you wish he would say. Be strong in revealed truth. Train the mind. Walk in what is already known. Then where further guidance is needed, receive it in prayer.
+
+That is the leading of the Spirit. That is leading in the newness of life.

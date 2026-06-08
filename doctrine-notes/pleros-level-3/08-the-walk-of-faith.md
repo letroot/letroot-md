@@ -228,8 +228,6 @@ So the spirit does the work of putting us in Christ.
 
 That means effecting everything that Christ has done from the cross to the throne in us.
 
-Hallelujah.
-
 You are his workmanship created in Christ Jesus.
 
 So in the work of redemption, there is a recreation of us.
@@ -290,7 +288,7 @@ And I want us to pay attention.
 
 We're still looking at the work of faith.
 
-Sometimes people say, well, I no longer care about this sue.
+Sometimes people well, I no longer care about this sue.
 
 Why?
 
@@ -312,7 +310,7 @@ He says that I'm going to come and perfect what is lacking in your faith.
 
 But in that very text, he has first commended areas where they were doing well.
 
-So he was commending them, you know, like, oh, I heard this testimony from Timothy about how well you guys are doing and all of this and that, but you know what?
+So he was commending them, you know, like, oh, I heard this testimony from Timothy about how well you are doing and all of this and that, but you know what?
 
 I still want to come and perfect areas where you are what lacking.
 
@@ -456,7 +454,7 @@ Walk, walk, walk.
 
 ## The Christian Walk Is the Walk of Faith
 
-Now I mean at this juncture you're like okay so we should do the word.
+Now I mean at this juncture you're like so we should do the word.
 
 You know it seems very close to James and it's the same thought exactly.
 
@@ -708,7 +706,7 @@ Let me just jump in there because I want to make some case from there.
 
 And that's our central text here.
 
-We're looking at the walk of faith. 2 Corinthians chapter 5 and verse 7. 2 Corinthians chapter 5 and verse 7.
+We're looking at the walk of faith. 2 Corinthians chapter 5 and verse 7.
 
 For we walk by what?
 
@@ -744,8 +742,6 @@ And this is a very key issue in the Christian faith.
 
 Now, I don't know if you get the description I'm trying to make that faith is not always anti natural evidence.
 
-Are you there?
-
 Sometimes natural evidence can lead to faith.
 
 For example, faith that there is God is because you have observed a world that is finite.
@@ -768,13 +764,9 @@ The person says I walk by faith not by sight.
 
 I'm not like this.
 
-Are you paying attention?
-
-Are you following this?
-
 Maybe the person is just finding himself you know smoking finding himself you know whatever kind of a conduct or character that is contrary to who he is in Christ.
 
-Amen. and the person says no I'm not like this he's walking by faith not by sight it's the same thing when we see our mortal body we already know that the truth of the faith of Christ by evidence it has given which we have seen that can also be observed by the senses are you there at all has told us that there is already the victory of life over death that was also seen people saw the resurrection of the Lord Jesus are you paying attention here the resurrected Lord amen now that faith in that truth if we see something contrary like our mortal bodies we say no there is victory over death already even though we are presently still seeing this glory to god we are saying that there's a superior truth what we are believed is superior to what we are witnessing we can contextualize what we are witnessing within what HAS HAPPENED DO YOU KNOW THE interesting fact what we are seeing is accepted in our faith it's only that here is a superior reality to that here is victory over what we are seeing amen Amen.
+and the person says no I'm not like this he's walking by faith not by sight it's the same thing when we see our mortal body we already know that the truth of the faith of Christ by evidence it has given which we have seen that can also be observed by the senses at all has told us that there is already the victory of life over death that was also seen people saw the resurrection of the Lord Jesus the resurrected Lord now that faith in that truth if we see something contrary like our mortal bodies we say no there is victory over death already even though we are presently still seeing this we are saying that there's a superior truth what we are believed is superior to what we are witnessing we can contextualize what we are witnessing within what HAS HAPPENED DO YOU KNOW THE interesting fact what we are seeing is accepted in our faith it's only that here is a superior reality to that here is victory over what we are seeing
 
 That is if the person is eeing himself for example walk in a contrary conduct that is not being denied in the faith we are walking in.
 
@@ -786,15 +778,11 @@ I'm not like this.
 
 I know there is this but I'm not like this.
 
-Are you following this?
-
 I know I'm seeing this.
 
 I know this has happened but I'm not like this.
 
 The person can see a situation of a sickness or a disease and he knows that there is that but there's victory over that in what Christ has done and that victory is already working in him.
-
-Are you paying attention?
 
 So he says no the power of God is always at work in my body because of what redemption has accomplished.
 
@@ -838,13 +826,11 @@ And that's where we now go into argument of sense knowledge versus this.
 
 And if we're not careful, what we observe by senses can lead into faith in God and faith in Christ.
 
-Are you paying attention?
-
 This Thomas gets saved by observing by the senses.
 
 Sometimes abuse Thomas on that.
 
-But even ot the apostles too did even we do we are hearing with our ears also senses what people saw that we accept him is not strictly revelation truth is god's purpose for example that is revelatory truth that's something that was on god's heart it's not something that happened that was witnessed amen so his use of we walk by faith not by sight must be properly understood but anyways my only focus here is that long and short the work of the believer is being described with the word what faith and I want to show us here that this 2 Corinthians 5 is on the back of many things he has said about faith e's on the back of many things he has aid about faith he quoted from the old testament text where the psalmist said we having the same spirit of faith of course the psalmist having redemptive faith that he was going to be raised but he first major discussion on faith in this material is 2 Corinthians chapter 1 the Christian faith is for walking it's not just for knowing it's for walking and this walking is by faith.
+But even ot the apostles too did even we do we are hearing with our ears also senses what people saw that we accept him is not strictly revelation truth is god's purpose for example that is revelatory truth that's something that was on god's heart it's not something that happened that was witnessed so his use of we walk by faith not by sight must be properly understood but anyways my only focus here is that long and short the work of the believer is being described with the word what faith and I want to show us here that this 2 Corinthians 5 is on the back of many things he has said about faith e's on the back of many things he has aid about faith he quoted from the old testament text where the psalmist said we having the same spirit of faith of course the psalmist having redemptive faith that he was going to be raised but he first major discussion on faith in this material is 2 Corinthians chapter 1 the Christian faith is for walking it's not just for knowing it's for walking and this walking is by faith.
 
 The Christian faith is not just for being.
 
@@ -869,8 +855,6 @@ Not that I have dominion over your faith.
 And it's so important that preachers take this disposition.
 
 We don't have dominion over people's faith.
-
-Are you paying attention here?
 
 He said, "Not that I have dominion over your faith." That's a word for like tyranny, control.
 
@@ -975,8 +959,6 @@ If they ask you the question all the way to the conclusion, you know it.
 You are rooted.
 
 Not that it can be plugged out because it's not rooted.
-
-Are you paying attention?
 
 So rooted and built up.
 
@@ -1098,7 +1080,7 @@ He takes a paper and he says um I am guilty.
 
 That's recitation.
 
-He doesn't know what he's talking about. that are you are we together sometimes people have confession written for them of what they don't believe on their heart and they are saying it is just recitation now as they are saying it maybe they are thinking about it can lead to faith in their heart that will now eventually lead to affirmation and that's fine all right but confession properly so that is potent onto the outcome is that someone is affirming what is already believed on their heart so now we walk by faith the first thing I want us to submit about faith.
+He doesn't know what he's talking about. that are you sometimes people have confession written for them of what they don't believe on their heart and they are saying it is just recitation now as they are saying it maybe they are thinking about it can lead to faith in their heart that will now eventually lead to affirmation and that's fine but confession properly so that is potent onto the outcome is that someone is affirming what is already believed on their heart so now we walk by faith the first thing I want us to submit about faith.
 
 If we walk by faith, the entirety of our walk in God's purpose to fulfill it is by faith.
 
@@ -1188,8 +1170,6 @@ In our WLK, it doesn't WR K that way.
 
 When we are firm in our with our mouth relative to our work, it brings about growth.
 
-Are you following this?
-
 That's why that ext says abounding with thanksgiving.
 
 It brings about increase or growth.
@@ -1204,7 +1184,7 @@ If we don't understand this seed principle to faith where it increases, grows or
 
 So someone will be xpecting that the way things work in salvation is the way things are supposed to work relative to his work.
 
-Are you following this at all?
+at all?
 
 Now relative to people's work, miracles can happen and usually maybe on that person's faith.
 
@@ -1358,7 +1338,7 @@ But what I want to say is that you must persist until it's done.
 
 And when he finished telling this parable of that woman that refused to give up that came to that unjust judge and refused to give up said this widow troubles me lest by continual coming she worries me.
 
-Then the unjust judge said and okay sorry verse six.
+Then the unjust judge said and sorry verse six.
 
 The Lord said here what the unjust just said and shall not God avenge his own little cry to him day and night though he bears long with what them.
 
@@ -1370,7 +1350,7 @@ It's the way he spoke or the way they recorded relative to how the uners underst
 
 Because if you are thinking of God in this foundational way relative to his overeignty, you will blame everything on him. including the fact that some things take time because of you or some things take time because of the way he has ordered his word.
 
-Okay, do it bears long with them.
+do it bears long with them.
 
 Now look at what he said in verse 8.
 
@@ -1394,8 +1374,6 @@ I don't think that's the issue.
 
 I think it's referring to the core principle of faith that is like a seed that persist.
 
-Are you following this?
-
 You are rooted, built up, abounding in thanksgiving.
 
 You just persist.
@@ -1411,8 +1389,6 @@ So the third principle about faith, third thing about faith is the effect of fai
 The effect of faith is seen in our what?
 
 Eden man, inner man or consciousness.
-
-Are you following this?
 
 That that person's consciousness is now stronger.
 
@@ -1512,7 +1488,7 @@ Wow, I love this.
 
 I sense to know your It's not saying I sense to know the faith is your faith.
 
-What's going on with you guys?
+What's going on with you
 
 I sense to know your faith lest by some means the tempter had tempted you and our labor have been invaded.
 
@@ -1580,7 +1556,7 @@ So there is still yet something lacking their faith.
 
 By the time we get 2 chapter 3, he said we are hearing that your faith grows exceedingly.
 
-Brothers and sisters, there is the fruit of faith is seen in the increase of faith.
+there is the fruit of faith is seen in the increase of faith.
 
 Sorry, that's the effect of faith rather.
 

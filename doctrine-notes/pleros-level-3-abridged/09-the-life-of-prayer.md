@@ -2,7 +2,7 @@
 
 ## The Life of Purpose Is the Life of Prayer
 
-All right, let's turn our Bibles to Ephesians chapter 1. We are still in level three and we are looking at the life of prayer. This is such an important teaching. Back then we used to have what we called BDO, which has become subsumed in this era of PPC, which is the Pleos Perfecting Course you are listening to. One of the teachings in the video was the believer's life of prayer.
+let's turn our Bibles to Ephesians chapter 1. We are still in level three and we are looking at the life of prayer. This is such an important teaching. Back then we used to have what we called BDO, which has become subsumed in this era of PPC, which is the Pleos Perfecting Course you are listening to. One of the teachings in the video was the believer's life of prayer.
 
 We are going to unpack it steadily and help you to see that the life of purpose is the life of prayer. Another reason why we are looking at it as the life of prayer is to take away the idea of prayer from being an activity. So we call it the believer's life of prayer, to take prayer away from being a mere activity or event in our life and to help us see it as an ongoing reality of our life.
 
@@ -10,7 +10,7 @@ So again, we are looking at the life of prayer. You could also call it the belie
 
 There are things that are not mysteries about a person. We can simply look at her and know. For example, if someone asks the gender or sex of a person, ordinarily all we have to do is look at her. That is not a mystery. It is not something that requires revelation. The nature of that information is not a mystery.
 
-So we can say there is information that is non-mystery, and there is information that is mystery, or mysteries. Amen.
+So we can say there is information that is non-mystery, and there is information that is mystery, or mysteries.
 
 ## God's Purpose Is Sonship
 
@@ -18,7 +18,7 @@ There are some mysteries to the nature of God, no doubt. But there are some conc
 
 So if he says he is making known the mystery of his will, what he wants, according to his good pleasure, good pleasure means what he likes. What came first is the good pleasure. So God has a good pleasure, what he likes, and then it became his will, what he wants. But he did not stop there. He has made known to us the mystery of his will according to his good pleasure, which he purposed in himself. So what God likes and what God wants graduated into what he proposed or determined to have.
 
-Think about it common-sensically. Think about it as when you are going to the university to study. Usually you have a passion, and then you are seeking to go and study along the lines of what your passion and desire is. But for some people they may not have qualified to be able to study that, so they have to switch what they are studying. Other people qualify to study exactly what they like. Amen. So they had what they like. Maybe they want to become lawyers, and then it became what they want. They just liked the idea. Now it is what they want, and then they determine to become lawyers and go for it.
+Think about it common-sensically. Think about it as when you are going to the university to study. Usually you have a passion, and then you are seeking to go and study along the lines of what your passion and desire is. But for some people they may not have qualified to be able to study that, so they have to switch what they are studying. Other people qualify to study exactly what they like. So they had what they like. Maybe they want to become lawyers, and then it became what they want. They just liked the idea. Now it is what they want, and then they determine to become lawyers and go for it.
 
 You can know that I exist because God made me, but why did he make you? What is the reason he made you? What does he expect you to do? If you lack the understanding of God's purpose, it is not just that something will be wrong with your Christian life. It is that something is wrong with your entire life. One that lacks the understanding of purpose has not begun living. So if there is anything that you should take extremely seriously, it is your understanding of God's purpose. And it is not enough to just have the information of it. It is critical that you hold on to it.
 
@@ -34,13 +34,13 @@ So we have established something, which is what God's purpose is. God's purpose 
 
 Oh, the reason why God made the world and humanity is sonship. What does that now mean for me? What does it mean about my life? He made me for sonship. Am I sure I am walking in tandem with that purpose? Am I sure I am fulfilling all that he has called me to do?
 
-We can even say we have received the spirit of God's purpose whereby we cry, Abba, Father. We have received the spirit of sonship, or the spirit of his purpose, whereby we cry, Abba, Father. I have not received the spirit of bondage but the spirit of sonship. Say, I have the spirit of sonship.
+We can even say we have received the spirit of God's purpose whereby we cry, Abba, Father. We have received the spirit of sonship, or the spirit of his purpose, whereby we cry, Abba, Father. I have not received the spirit of bondage but the spirit of sonship. I have the spirit of sonship.
 
 That means at the core of the reality of sonship is this interaction with God as Father. We cry, Abba, Father. We interact and relate with God as Father. His choice of word is very deliberate. He said we cry, Abba, Father, because he is about to point out to you that you are a child of God. Ordinarily when you give birth to a child, the child makes a cry, and very soon the very early syllables the child will start to speak are attempts to call his parents. Whether dada, papa, mama, or whatever other pronunciation they will use.
 
 Now that brings us to the next statement he makes. What does sonship mean? Remember the foundational thing we are looking at is that the life of purpose is a life of prayer. We have seen that purpose is sonship. God's purpose for our life is sonship.
 
-If you say, I have received the spirit of sonship, what does that mean? It means, number one, I am a child of God. But it does not stop there. He says, if children, then heirs of God and joint heirs with Christ. So the second reality of sonship is that we are heirs of God. We have said it this way: God's purpose is sonship. But sonship equals child plus heir.
+If you I have received the spirit of sonship, what does that mean? It means, number one, I am a child of God. But it does not stop there. He says, if children, then heirs of God and joint heirs with Christ. So the second reality of sonship is that we are heirs of God. We have said it this way: God's purpose is sonship. But sonship equals child plus heir.
 
 Now this does not mean you now start to say about yourself, oh, I am just a child of God, I need to grow to be an heir of God. That is not true in the Christian faith. In the Christian faith, once someone is a child of God, the person is also automatically an heir of God. God does not give any conditions to making you an heir other than the fact that you have received his Spirit. You have believed on the Lord Jesus.
 
@@ -70,7 +70,7 @@ Prayer is what we are born to do. If I say prayer is what you are born to do, yo
 
 Prayer in its ordinary form is fellowship with the Father. In fact, it is by locking into fellowship with the Father that you are meant to get to the intensity of prayer. Otherwise, it becomes performative. We are still looking at the life of prayer. The life of purpose is the life of prayer. God made us to be his child, and as his child the primary thing we are to do is to fellowship with him. The primary thing that the spirit of sonship in us does is that it cries out for fellowship with God.
 
-So when Jesus told us to pray, the first thing is, "Our Father who art in heaven, hallowed be your name." Do you notice that is fellowship? We are just thinking about him. Hallowed be your name. Hallowed be your name. You are just thinking about him.
+So when Jesus told us to pray, the first thing is, "Our Father who art in heaven, hallowed be your name." Do you notice that is fellowship? We are just thinking about him. Hallowed be your name.
 
 See Ephesians chapter 3 and verse 14. It says, "For this reason I bow my knees to the Father of our Lord Jesus Christ, from whom the whole family in heaven and earth is named." He did not say I just took this issue and started struggling. When he talked about prayer, he said, I bow my knees to the Father of our Lord Jesus Christ, of whom the whole family in heaven and on earth is named. That is how I start. I am just here to talk to the Father for whom the whole family is named.
 
@@ -86,9 +86,9 @@ So to enter into God's purpose is to enter into a life of prayer. When you becom
 
 This is why we see statements like Ephesians 6:18 where he said, praying always with all prayer and supplication in the Spirit. Prayer unfolds beyond fellowship with the Father into something else. In this premise we can speak of different kinds of prayer. Prayer is not just fellowship with the Father, even though it is primarily fellowship with the Father, but it unfolds into other engagements, into other things that we do in our interaction with God.
 
-Let me show you another one. First Timothy chapter 2 and verse 1 says, "Therefore I exhort first of all that supplications, prayers, intercession and giving of thanks..." So we can see that he is discussing the same engagement. We are engaging God in all these things, which means we are still talking about prayer. But in this same engagement there is thanksgiving. In this same engagement there is supplication. There is intercession. Hallelujah.
+Let me show you another one. First Timothy chapter 2 and verse 1 says, "Therefore I exhort first of all that supplications, prayers, intercession and giving of thanks..." So we can see that he is discussing the same engagement. We are engaging God in all these things, which means we are still talking about prayer. But in this same engagement there is thanksgiving. In this same engagement there is supplication. There is intercession.
 
-Take Colossians chapter 1. In verse 3 he says, "We give thanks to God and the Father of our Lord Jesus Christ, praying always for you." So he is saying when we are praying for you, what are we doing? We are giving thanks. Lord, thank you for these people since we heard of your faith. He goes on and on talking about all the good things happening with them. But by the time you get to verse 9, you see that in that prayer he was not only giving thanks. He says, "For this reason, we also since the day we heard it, do not cease to pray for you, and to ask that you may be filled with the knowledge of his will in all wisdom and spiritual understanding."
+Take Colossians chapter 1. In verse 3 he says, "We give thanks to God and the Father of our Lord Jesus Christ, praying always for you." So he is saying when we are praying for you, what are we doing? We are giving thanks. Lord, for these people since we heard of your faith. He goes on and on talking about all the good things happening with them. But by the time you get to verse 9, you see that in that prayer he was not only giving thanks. He says, "For this reason, we also since the day we heard it, do not cease to pray for you, and to ask that you may be filled with the knowledge of his will in all wisdom and spiritual understanding."
 
 Prayer primarily and foundationally is fellowship with the Father. Yet in that prayer other things happen, and I am showing us one of them. Everything that we are supposed to do in God's purpose requires prayer. The first thing that we are in God's purpose as children of God is to pray, to fellowship with God. But then as children of God we are meant to walk in his nature and character, and that requires prayer.
 
@@ -104,7 +104,7 @@ In 1 Corinthians 14:2, it shows that when we are praying in tongues, we are inte
 
 He speaks mysteries, revelatory matters. So when he is praying in tongues, or when he is speaking in tongues, he is engaging in prayer. He is speaking to God, discussing mysteries. Now look at verse 4. "He who speaks in a tongue edifies himself, but he who prophesies edifies the church."
 
-Sometimes people say, well, tongues edifying us is just about knowledge on the mind. Knowledge on the mind is merely enlightenment. That kind of edification as something stable that cannot go back is not completely correct. That is just certainty and stability. Edification in this sense is about your conscience being emboldened. The more you pray about the fact that you are a love-being in Christ, the stronger you are to walk in love. The more you pray about the fact that you are the righteousness of God, the more certain habits or things that are unrighteous will lose their place.
+Sometimes people well, tongues edifying us is just about knowledge on the mind. Knowledge on the mind is merely enlightenment. That kind of edification as something stable that cannot go back is not completely correct. That is just certainty and stability. Edification in this sense is about your conscience being emboldened. The more you pray about the fact that you are a love-being in Christ, the stronger you are to walk in love. The more you pray about the fact that you are the righteousness of God, the more certain habits or things that are unrighteous will lose their place.
 
 The life of prayer is the life of purpose. The first thing that the life of prayer is in the life of purpose is fellowship with God. Purpose is for us to fellowship with God. Purpose is for us to walk in our nature and character. Therefore the life of prayer edifies us to walk in our nature. Everything in God's purpose is done by prayer. Everything.
 
@@ -130,7 +130,7 @@ So God is at work in you to will and to do. Then by faith-stand in prayer you tr
 
 ## Prayer for God's Kingdom and Mission
 
-But I want us to see that prayer for our personal needs, as well as very critically prayer for God's mission or God's kingdom or God's reign on the earth, was very central to that. Luke 11:2 says, when you pray say, "Our Father in heaven, hallowed be your name." That one is fellowship with God. "Your kingdom come, your will be done on earth." That is not simply fellowship. That is we are praying for God's reign to happen more on the earth. Your kingdom come. It should happen more on the earth. Your reign should be in more places.
+But I want us to see that prayer for our personal needs, as well as very critically prayer for God's mission or God's kingdom or God's reign on the earth, was very central to that. Luke 11:2 says, when you pray "Our Father in heaven, hallowed be your name." That one is fellowship with God. "Your kingdom come, your will be done on earth." That is not simply fellowship. That is we are praying for God's reign to happen more on the earth. Your kingdom come. It should happen more on the earth. Your reign should be in more places.
 
 Many believers have not been so taught. Prayer for need is also part of prayer, our personal needs. We will come to that. But prayer for God's mission is high priority. Lord, your kingdom come. Let it spread more. Let it be in more places.
 
@@ -138,7 +138,7 @@ People want what would be of benefit to them wherever they are, and the Lord is 
 
 This gospel of the kingdom will be preached in all the world as a witness to every nation, and then the end will come. That is the same prayer, your kingdom come. That means there is a required prayer supply for God's mission beyond just the fact that we are carrying it out. Beyond just the fact that we are preaching it, we must pray about it. That is why we see in the epistles that the apostles show several prayers in that regard.
 
-Paul will tell them in Romans 15 to pray for him as he is going to Rome, that he will be delivered from those who do not believe in Judea and that his service and ministry will be received by the saints. So you know we are praying. That is part of our prayer life. Why is that part of our prayer life? Because it is part of our purpose. We have a spiritual assignment and we have a prayer contribution.
+Paul will tell them in Romans 15 to pray for him as he is going to Rome, that he will be delivered from those who do not believe in Judea and that his service and ministry will be received by the saints. So you know we are praying. That is part of our prayer life. Because it is part of our purpose. We have a spiritual assignment and we have a prayer contribution.
 
 If all your prayer life is just for self, just for fellowship with the Father, you have not grown. If you are fellowshipping with the Father as a child, you should hear of his burden that he is sharing with you as his heir. That should make you now pray for others. That is normal. I am his child, and then he is sharing his burden with me that we have a world to reach. You are not the only one meant to fellowship with him like this. What about other people? Let us pray for them. So you now start to pray for the word of God to spread more. For example, every night we pray about that, the spread of the word, the spread of the kingdom.
 
@@ -148,7 +148,7 @@ There are some prayers we have prayed ahead that we are seeing now. There are so
 
 And lastly, we pray for our personal needs. It is scriptural. In fact, the Lord Jesus told them that they can do it daily, because he expects a persistence of faith for our natural needs. We can pray for natural needs. Do not let anybody tell you, ah, even the Gentiles seek these things. The Lord knew that Gentiles seek these things when he told you to pray for them too. In the same chapter where he said the Gentiles seek these things, he still said the Father knows before you ask and now says you should ask daily.
 
-Generally I believe there are three categories of natural needs: our health, our safety and security, and then other needs. Health is okay, and you should pray for it. God's power is always working in your body. You need to persist in faith about that. God's power is always working in your body, so no sickness and disease will have any place in your body. God's power is always working in your body, so no sickness and disease will have any place in your body. Your body expels every sickness and disease. Your body cannot contain and retain sickness and disease. Your body expels them. God's power is always working in your body. You are the healed of God. You are supposed to persist in faith on it.
+Generally I believe there are three categories of natural needs: our health, our safety and security, and then other needs. Health is and you should pray for it. God's power is always working in your body. You need to persist in faith about that. God's power is always working in your body, so no sickness and disease will have any place in your body. Your body expels every sickness and disease. Your body cannot contain and retain sickness and disease. Your body expels them. God's power is always working in your body. You are the healed of God. You are supposed to persist in faith on it.
 
 The Bible says, be anxious for nothing, but in everything by prayer and supplication let your requests be made known unto God. Many times when they say anxiety in the Bible, it is about natural things. Be honest. Paul said he was in fear even from the spiritual work he was doing because there were different concerns, but he was anxious for nothing. In everything by prayer and supplication he made his requests known unto God. Peter says, cast your cares upon him because he cares for you.
 
@@ -156,7 +156,7 @@ So we pray for our natural need. We pray that the power of God is at work in us,
 
 Our wholesome prayer life begins with fellowship with the Father. It proceeds to edification and transformation so that we walk in our nature and character and our assignments. Then it proceeds to prayer for God's needs and our needs. We can separate it this way. The wholesome prayer life of a believer starts with fellowship with the Father, edification to walk in our nature and character, transformation to carry out and fulfill our assignments, prayer for our personal needs, and prayer for God's mission on the earth.
 
-Maybe in your assignments you see that you are not as effective in one or the other, maybe spiritual, maybe natural. You know God is at work in you to will and do. You pray about that. You move on from there. You look at personal needs. You pray about that. Then you pray about God's mission. You can do that every day.
+Maybe in your assignments you see that you are not as effective in one or the other, maybe spiritual, maybe natural. You know God is at work in you to will and do. You pray about that. You move on from there. You look at personal needs. Then you pray about God's mission. You can do that every day.
 
 ## The Help of Corporate Prayer
 
@@ -165,4 +165,3 @@ Even from the Old Testament text, there was a corporate prayer structure God gav
 The corporate prayer structure should be potent and effective to stir up your own personal prayer life. So I encourage you, join the corporate prayer, and afterwards your own personal prayer might even be ten minutes, but it will be much more effective. You are gliding in the flow. This is true even if you go and see examples of Jewish worship. They might finish prayer and you still see people stay in different places personally.
 
 We have that in the Pleos prayer watch, morning, afternoon, evening. Join the prayer watch. Thirty minutes in the morning, fifteen minutes in the afternoon, fifteen minutes in the evening. It is to do something to your prayer life personally. That is how you are able to stay focused on God's purpose. The prayer is reminding you again what you are praying about.
-

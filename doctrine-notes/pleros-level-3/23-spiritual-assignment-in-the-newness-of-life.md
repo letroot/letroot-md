@@ -10,7 +10,7 @@ Why are we here?
 
 It's one of the most important questions we can ask.
 
-Now arguably I might say that the question what is the truth of existence maybe is the most important question and that question is first what before why right what's true of existence but once we answer that oh the truth of existence is there's a self-extend creator that has made the world then it also helps with the question why are we here or what is the why of existence is someone paying attention and the moment we have answered that there is a creator god then why becomes a matter of um what is God's purpose, right?
+Now arguably I might say that the question what is the truth of existence maybe is the most important question and that question is first what before why right what's true of existence but once we answer that oh the truth of existence is there's a self-extend creator that has made the world then it also helps with the question why are we here or what is the why of existence and the moment we have answered that there is a creator god then why becomes a matter of um what is God's purpose, right?
 
 What is God's purpose?
 
@@ -38,8 +38,6 @@ You can know Paul is making no pretenses in trying to answer that question there
 
 Even though interestingly it's not as if it is he's taking it for granted that they know but it is the most pointed and direct answer he gives.
 
-Are you paying attention?
-
 Because it says in Ephesians 1 and verse 9 it says God has made known the mystery of his will according to his good pleasure which he proposed in himself.
 
 So he was just saying it you know taking it for granted.
@@ -54,7 +52,7 @@ And Ephesians 1:5 answers that for us.
 
 Ephesians chapter 1 and verse 5.
 
-Brothers and sisters, are you still there?
+are you still there?
 
 Ephesians 1:5 it says, "Having made known to us the mystery of his will, according to his good pleasure, which he did what?
 
@@ -182,8 +180,6 @@ But when the fullness of time had come, God sent forth his son, born of a woman,
 
 So we are saying that this time we are not going to be functioning as slaves at all or as just a young child that cannot carry out his inheritance.
 
-Are you paying attention?
-
 We are in a time when you are in faith you can carry out your inheritance.
 
 All right.
@@ -194,7 +190,7 @@ The same one word that they might receive sonship.
 
 So receiving sonship means they are not just children.
 
-They are also h are you there?
+They are also h
 
 You see Paul was keen on the air pass, right?
 
@@ -254,8 +250,6 @@ With purpose of heart.
 
 Purpose is for pursuit and fulfillment.
 
-Amen.
-
 Purpose is for pursuit and fulfillment.
 
 Purpose is for pursuit and fulfillment.
@@ -279,10 +273,6 @@ The ministry of our Lord Jesus to testify the gospel of grace of God.
 Let me be clear.
 
 You cannot wish away from God's word that spiritual assignment is taken as priority in God's purpose.
-
-Are you following this?
-
-Are you following this?
 
 You can't wish it away.
 
@@ -320,7 +310,7 @@ If people do spiritual assignment alone, it can be a full-time work and they wil
 
 Is a tall order for someone to do natural assignment and spiritual assignment.
 
-And I even believe if you are functioning in core leadership like Paul you know um what do we call it now founding leadership kind of responsibility or let's not use founding because it doesn't have to be founding um uh episkopos or primal let me lose that you're a primary leader in the scheme of things in whichever way shape or form you know because I want to contextualize primary leadership is it globally is it in a nation is it in a state but you performing in primary leadership in spiritual assignment it's not easy it is not and I even think if you do it delegation should be sought very highly and I think Paul must have done that as well I mean he had prison and so on because in God's design for some people they will do more natural assignment and spiritual assignment and fulfill God's purposely are you following but if you are functioning in primary leadership in spiritual assignments you have to do more spiritual leadership imagine you are now having to do the same natural spiritual you have to do one spiritual assignment.
+And I even believe if you are functioning in core leadership like Paul you know um what do we call it now founding leadership kind of responsibility or let's not use founding because it doesn't have to be founding um uh episkopos or primal let me lose that you're a primary leader in the scheme of things in whichever way shape or form you know because I want to contextualize primary leadership is it globally is it in a nation is it in a state but you performing in primary leadership in spiritual assignment it's not easy it is not and I even think if you do it delegation should be sought very highly and I think Paul must have done that as well I mean he had prison and so on because in God's design for some people they will do more natural assignment and spiritual assignment and fulfill God's purposely but if you are functioning in primary leadership in spiritual assignments you have to do more spiritual leadership imagine you are now having to do the same natural spiritual you have to do one spiritual assignment.
 
 Imagine you having do same natural assignment as that.
 
@@ -330,23 +320,17 @@ This is something that people might not want to say but it's the absolute truth.
 
 You have 160 hours in a week.
 
-Are you paying attention?
-
 And so when you see people come up with systems where for their primary leaders in church spiritual assignment wise they ensure they doing full-time work.
 
 They are not necessarily in fact they have scripture.
 
 They can find scriptural basis for that.
 
-Are you paying attention?
-
 It is it is allowable.
 
 is not is not a lax thing.
 
 Now I think people must end their right to it in some cases but sometimes trying to end your right to it is how you get sunk and not go where you're supposed to go.
-
-Are you paying attention?
 
 Sometimes this is the grace of God though but it's possible.
 
@@ -394,8 +378,6 @@ So I've come to respect people like that.
 
 And I even look forward personally to delegating to the point that I significantly reduce you know natural assignment to again that point I significantly reduce it is the honest truth because what we have to do in spiritual assignment alone is a lot for a lifetime.
 
-Amen.
-
 These are the reality and you have to face it.
 
 You look at your workload you count the cost is if is what you are doing alone is a lot is a full-time work for a lifetime.
@@ -438,21 +420,17 @@ Should he be part of this?
 
 Should be part of this teaching.
 
-Amen.
-
 But these are realities in this life.
 
 Don't run away from the truth.
 
 Accept the truth.
 
-Are you following this?
-
 If they tell you that yeah he's combining that's how Paul was combining blah.
 
-Have you ever sat down to consider the workload of spiritual assignment properly that as a as a mission not as just one person as a mission what you have to do if one person is to lead it is a full-time job we can even talk of people that just volunteer for parts are you following this it's a full-time job a very full-time job so we have what's it called as children of God we have God gives us an inheritance and we have seen that there's a natural assignment or natural inheritance that we have there's a natural assignment or there's a natural inheritance that we have we looked at that you know we saw the text I don't want us to go back there but there is also a spiritual assignment or inheritance that we have you know let's just quickly revisit that ext so that I point you one of the text that shows us we have a natural inheritance is 1 Corinthians 7 and he uses the word for when you divide someone's inheritance I know they will say something like is that not how they say it so I don't know how they will say it in English can we say they want to share the inheritance how do they do it when they want to do they just want to read the will so I think it's English but hey want to share the inheritance all right so that's the way translate if you don't know about they want to share mean share the inheritance they want to part or share so when we see that word to part or to share is a word for inheritance amen ow the reason why I said is that unlike natural assignment where we even find a clear text that directly uses inheritance for natural assignment you may struggle to find that level of clear kleronomia for spiritual inheritance but I even say that there is more text that insinuates spiritual ual assignment as an inheritance than even natural.
+Have you ever sat down to consider the workload of spiritual assignment properly that as a as a mission not as just one person as a mission what you have to do if one person is to lead it is a full-time job we can even talk of people that just volunteer for parts it's a full-time job a very full-time job so we have what's it called as children of God we have God gives us an inheritance and we have seen that there's a natural assignment or natural inheritance that we have there's a natural assignment or there's a natural inheritance that we have we looked at that you know we saw the text I don't want us to go back there but there is also a spiritual assignment or inheritance that we have you know let's just quickly revisit that ext so that I point you one of the text that shows us we have a natural inheritance is 1 Corinthians 7 and he uses the word for when you divide someone's inheritance I know they will say something like is that not how they say it so I don't know how they will say it in English can we say they want to share the inheritance how do they do it when they want to do they just want to read the will so I think it's English but hey want to share the inheritance so that's the way translate if you don't know about they want to share mean share the inheritance they want to part or share so when we see that word to part or to share is a word for inheritance ow the reason why I said is that unlike natural assignment where we even find a clear text that directly uses inheritance for natural assignment you may struggle to find that level of clear kleronomia for spiritual inheritance but I even say that there is more text that insinuates spiritual ual assignment as an inheritance than even natural.
 
-Are you are we together guys?
+Are you
 
 There are more texts in that than even natural.
 
@@ -500,23 +478,17 @@ Acts chapter one and verse 17.
 
 I think we are getting tired.
 
-Abby small you have spent some of your energy acts chapter 117 oh yeah let's go are you there okay let me read from verse 16 so it's clearer men and brethren the scripture had to be fulfilled which the holy spirit spoke by the mouth of David concerning Judas who became a guide you know the funny part what God spoke was by prophetic pattern today when God is speaking to you by prophetic pattern like no year the you paying attention If you see somebody behaving in a way by and you know preachers like to tell you that today they'll tell you that in any ministry you have this experience because it's a matter of prophetic pattern you know there was a time I started to wonder in church and I said that it's as if there's one particular demon that after that demon should leave somebody he used to go to somebody else ah you just I just I just started to bserve at one point ah and I've seen it like that but you know as she always say I think you have to find a way to exempt yourself from it.
-
-Are you following this?
+Abby small you have spent some of your energy acts chapter 117 oh yeah let's go let me read from verse 16 so it's clearer men and brethren the scripture had to be fulfilled which the holy spirit spoke by the mouth of David concerning Judas who became a guide you know the funny part what God spoke was by prophetic pattern today when God is speaking to you by prophetic pattern like no year the you paying attention If you see somebody behaving in a way by and you know preachers like to tell you that today they'll tell you that in any ministry you have this experience because it's a matter of prophetic pattern you know there was a time I started to wonder in church and I said that it's as if there's one particular demon that after that demon should leave somebody he used to go to somebody else ah you just I just I just started to bserve at one point ah and I've seen it like that but you know as she always say I think you have to find a way to exempt yourself from it.
 
 Exempt yourself.
 
 It will just show up some you it's a thing and I think people should be sensitive to notice that's why one of the way you know that there's a spiritual intelligence behind this world.
-
-Are you following this?
 
 It's just always happen one troublemaker can expire.
 
 It's in around that time other person will just say what he get.
 
 Why are you allowing them to get you?
-
-Amen.
 
 And some people are not sensive.
 
@@ -530,8 +502,6 @@ Are you getting this at all to know how to probably handle those things?
 
 Because sin is that lust will come to you naturally from the way the word is or sometimes inspired by some of these funny beings.
 
-Are you there?
-
 They they deliberately man even as a preacher they are same things what they used to lord our lord Jesus Christ.
 
 I know it wasn't just shown as what happened naturally that there were beings also behind it.
@@ -541,8 +511,6 @@ Now I know there's already default state of sin and eath that were always tempte
 But I'm telling you that there are times you can know that devil wants to use something to lure me at this time.
 
 You will know.
-
-Are you following this?
 
 Lust of the flesh, lust of the eyes of pride of life.
 
@@ -596,7 +564,7 @@ Now verse 24.
 
 They prayed and said, "You Lord, you who knows the art of all, show which of these two you have chosen." You see that here the will is on who side?
 
-The will is on who side, brothers and sisters.
+The will is on who side,.
 
 The will is on who side?
 
@@ -616,8 +584,6 @@ He gave you free will so that you can use it.
 
 Use your will in righteousness for what you're supposed to do and miss the options you have and enjoy yourself without abusing the world.
 
-Are you paying attention here?
-
 All right.
 
 But in this case, we see that God chooses don't let us say what is not rue.
@@ -632,11 +598,7 @@ And then people are now always second guessing themselves and all that.
 
 We can be awesome.
 
-Amen.
-
 If you want to be honest, there is choosing election limitations, restrictions that pertain to spiritual assignment.
-
-Are you following this?
 
 And there is so much liberty, encouragement, steering, you know, freedom to push.
 
@@ -645,8 +607,6 @@ Even though there's a lot of freedom to push also in spiritual assignment in ful
 We must be aware of that.
 
 The fact that things have gone or now we have reached a point where they are now you know multiple denominations and what people even call non-denominational churches shouldn't be a basis of not saying what the scripture says on this matter.
-
-Hallelujah.
 
 We must accept you and must not have to relate with it because it's part of humanity.
 
@@ -661,8 +621,6 @@ All right.
 So twice now we have seen he obtained a part and that person takes a part from the apost ministry and apostleship that Judas fell from.
 
 So there is the idea of part lot when it comes to what ministry.
-
-Are you there?
 
 There's the idea of part or lot when it comes to ministry.
 
@@ -692,9 +650,9 @@ But God calls everybody to a natural as well as what?
 
 Spiritual assignment.
 
-Say, I have a spiritual assignment.
+I have a spiritual assignment.
 
-Say, I have a spiritual assignment.
+I have a spiritual assignment.
 
 And we are seeing here that when it comes to this spiritual assignment, God chooses unlike the other one.
 
@@ -708,7 +666,7 @@ Do you see what I'm saying?
 
 Now, when they called those two people, it doesn't mean that the other person that was called was not going to keep on pursuing what he's supposed to pursue.
 
-You know they called Barsabbas and Matthias not Barnabas basabas but it's not very unlikely that this same Barsabbas was going to be found pursuing God's work diligently abas in your own Bible Acts 1:23 basabas thank you was going to be found pursuing the work of the lord diligently is not a restriction on pursuit is omeone paying attention But usually as spiritual assignment works, God usually chooses what or where.
+You know they called Barsabbas and Matthias not Barnabas basabas but it's not very unlikely that this same Barsabbas was going to be found pursuing God's work diligently abas in your own Bible Acts 1:23 basabas was going to be found pursuing the work of the lord diligently is not a restriction on pursuit is omeone paying attention But usually as spiritual assignment works, God usually chooses what or where.
 
 It's not a restriction on what to do.
 
@@ -764,8 +722,6 @@ Do you nderstand to each one grace is given according to the measure of Christ's
 
 So God is giving each one grace according to the portion that he has given them.
 
-Amen.
-
 We are saying God is distributing.
 
 God is choosing.
@@ -806,8 +762,6 @@ See Ephesians chapter 3 and vers 7.
 
 So you see what I'm saying?
 
-Are you paying attention?
-
 Ephesians 3 and verse 7.
 
 He said, "Of which I became a minister according to the gift of the grace of God given to me by the eeffectual working or the effective working of his power.
@@ -837,8 +791,6 @@ Here look at verse 16.
 From whom the body joined and need together by what every joint supplies according to the effectual working in the measure of every part.
 
 That means that grace is working in everybody's measure based on their what part.
-
-Hallelujah.
 
 So how many people have grace?
 
@@ -932,8 +884,6 @@ He gives to us grace for the parts that we are for the measure that we have as a
 
 We are a part each of us are a part in the body with a measure and we have grace for that.
 
-Glory to God.
-
 Okay.
 
 All right.
@@ -970,10 +920,6 @@ Now of course the 12 their ministry was even more significant.
 
 So they were specifying this ministry but each of us yet still have a part in the work of ministry.
 
-Glory to God.
-
-Are we together?
-
 You start out, you know, in the ministry to end up as a leader of the measure that you have as a part in ministry.
 
 So he's called you to function as an apostle, prophet, evangelist, pastor and pastor and teacher in your measure as you carry out the work of ministry.
@@ -1008,8 +954,6 @@ But that value and the priority it won't take away from the fact that most of us
 
 It's only some of us that will do the that will do otherwise.
 
-Amen.
-
 Are we still together?
 
 Now of course for example a gas a gas was found not only giving supporting people that was also found going on missions.
@@ -1020,8 +964,6 @@ Eh it was with Paul.
 
 Acts chapter 20 when Paul was going on missions.
 
-Glory to God.
-
 He was serving.
 
 was active in his spiritual assignment.
@@ -1031,8 +973,6 @@ That means very likely he was able to do more than before.
 Even if was pastoring the church in his house.
 
 So he was doing much more.
-
-Praise the Lord.
 
 And that's how it unfolds.
 
@@ -1094,8 +1034,6 @@ So sometimes I say that he's talking about Paul and he has given them ministry o
 
 That would be very a very not so honest reading of that ext though.
 
-Are we on the same page?
-
 He said he has reconciled us and has given us the ministry of reconciliation.
 
 So it's the new creation that is said to be given the ministry of reconciliation.
@@ -1112,7 +1050,7 @@ Everybody will do their own share will now cause the growth of the body and the 
 
 Say I've been given the ministry of reconciliation.
 
-He xplains that ministry to us because there's a way people can try to make that ministry about well I'm serving in church maybe in Austrian technical all those type of things and I mean this they are good though are you getting what I'm saying that's like you assisting in church in the natural affairs of the church like a deacon you might say all right but that is not what we're talking about the ministry is about a message verse 19 to with or that is God was in Christ reconciling the world to himself not imputing their trespasses onto them and has committed unto us what the Word of reconciliation.
+He xplains that ministry to us because there's a way people can try to make that ministry about well I'm serving in church maybe in Austrian technical all those type of things and I mean this they are good though are you getting what I'm saying that's like you assisting in church in the natural affairs of the church like a deacon you might say but that is not what we're talking about the ministry is about a message verse 19 to with or that is God was in Christ reconciling the world to himself not imputing their trespasses onto them and has committed unto us what the Word of reconciliation.
 
 So this ministry of reconciliation is about it a message.
 
@@ -1160,8 +1098,6 @@ You are serving a redemptive message.
 
 If you are not doing that, you are not doing right.
 
-Amen.
-
 Serve that redemptive message.
 
 Go out and serve it.
@@ -1181,8 +1117,6 @@ But I think you should want to.
 So, but you have to walk in all the benefits of nature and particularly walk in God's purpose and o what?
 
 Fulfill it.
-
-Praise the Lord.
 
 So you have a spiritual assignment to serve the message.
 
@@ -1220,11 +1154,9 @@ We give our whole life for that mission, for that kingdom.
 
 So even what you do, you are doing it for that.
 
-Are you paying attention?
-
 in the natural.
 
-I mean, are you paying attention?
+I mean
 
 And how are you going to know?
 
@@ -1236,8 +1168,6 @@ And as you prosper, well, you'll be able to give better.
 
 Do you know that you are likely to give more percentage when you have more than when you have less.
 
-Amen.
-
 Now, I know that there are people that the heart is bad.
 
 And there's one eternal quote I used to hear.
@@ -1248,13 +1178,11 @@ Now if you don't have discipline of giving originally there's already a problem.
 
 Let's say let's assume someone is giving 10% of what the person earns regularly.
 
-There's a way you have money like do you know some people actually it's the inversion let's say person has 100k if I saw someone post somewhere someone was writing it's easy to be saying all these tight things when you are earning this disease and nobody can be giving that when they earning this and people in the comments say ah okay are you well are you following this that I'm earning this and I'm giving like this but I understood you know do you understand what I'm trying to say if you are earning 100 m now you 10 m look is this to think you have 90 m 10 m with 5 m they okay now the I've already given a lot but you know if you have 100 give thank you like even I know it's not good enough but I will have to give it I'm very faithful so there's there's a discipline part why actually believe that even if you have more if you are not someone that you know you should be able to give even more personally Personally I think so like say you have covered your feeding expenses you have covered your basic you already have a house over your roof give now give much more give beyond commitment now give out of sacrifice or generosity are you paying attention the first thing in giving is commitment to first thing giving is not generosity this is a mistake people make I don't know why they trying to encourage The first rule in giving is not is commitment and it's not manipulated commitment.
+There's a way you have money like do you know some people actually it's the inversion let's say person has 100k if I saw someone post somewhere someone was writing it's easy to be saying all these tight things when you are earning this disease and nobody can be giving that when they earning this and people in the comments say ah are you well that I'm earning this and I'm giving like this but I understood you know do you understand what I'm trying to say if you are earning 100 m now you 10 m look is this to think you have 90 m 10 m with 5 m they now the I've already given a lot but you know if you have 100 give like even I know it's not good enough but I will have to give it I'm very faithful so there's there's a discipline part why actually believe that even if you have more if you are not someone that you know you should be able to give even more personally Personally I think so like say you have covered your feeding expenses you have covered your basic you already have a house over your roof give now give much more give beyond commitment now give out of sacrifice or generosity the first thing in giving is commitment to first thing giving is not generosity this is a mistake people make I don't know why they trying to encourage The first rule in giving is not is commitment and it's not manipulated commitment.
 
 Divor there's no divor doing anything but be committed.
 
 There's only judgment at the end.
-
-Glory to God.
 
 First rule on giving is commitment.
 
@@ -1272,7 +1200,7 @@ Are you getting this at all?
 
 But the first rule is commitment that's basic commitment generosity.
 
-You earn your money you first give out of commitment then generosity maybe someone said that there's a need you remember this person you give out of generosity s is not all the time you are just less ometimes than not s can be an asset many times that's what usually is not giving your capital away can be an asset you already have maybe you have two cars and now says give one car the we on the same page and maybe in your mind you know how you are using it if I use this one for this one I use that one for that one now that's sacrifice praise the lord Let's move on.
+You earn your money you first give out of commitment then generosity maybe someone said that there's a need you remember this person you give out of generosity s is not all the time you are just less ometimes than not s can be an asset many times that's what usually is not giving your capital away can be an asset you already have maybe you have two cars and now says give one car the we on the same page and maybe in your mind you know how you are using it if I use this one for this one I use that one for that one now that's sacrifice Let's move on.
 
 Look at the second parable in that to that effect.
 
@@ -1286,7 +1214,7 @@ So we should live all our lives for the fulfillment of the mission of the church
 
 Do you nderstand?
 
-So in this case the kingdom of heaven the reign of God in this age which is a redemptive work is saying we should give all our lives for it even what you do in the natural have a commitment you can also say generosity and sacrifice towards what fulfilling it amen so we have a spiritual assignment which is the work of ministry say I'm a part I have a measure and I have the grace for my measure We part.
+So in this case the kingdom of heaven the reign of God in this age which is a redemptive work is saying we should give all our lives for it even what you do in the natural have a commitment you can also say generosity and sacrifice towards what fulfilling it so we have a spiritual assignment which is the work of ministry say I'm a part I have a measure and I have the grace for my measure We part.
 
 We have a measure.
 
@@ -1296,7 +1224,7 @@ Now let us start his way.
 
 ## How Spiritual Assignment Begins
 
-When it comes to spiritual assignment, we are called because people ask, okay, what's my spiritual assignment?
+When it comes to spiritual assignment, we are called because people ask, what's my spiritual assignment?
 
 How do I start?
 
@@ -1318,8 +1246,6 @@ You are called into it by the salvific message.
 
 So wherever whatever conditions you find yourself called into God's purpose uh sorry called by you know called to salvation is your calling to God's purpose.
 
-Are you paying attention?
-
 Let let's look at 2 Thessalonians chapter 2.
 
 We are called into God's purpose including our spiritual assignment by the salvific message.
@@ -1334,8 +1260,6 @@ When you are called by the salvific message, you are being called into ministry.
 
 He said, "But we are bound to give thanks to God always for you, brethren, beloved by the Lord because God from the beginning chose you for salvation." And on't forget what I've said God's election was he chose that those who believe be saved.
 
-Are you following this?
-
 Not as much the individuals.
 
 Okay?
@@ -1344,11 +1268,7 @@ He chose you for salvation through sanctification by the spirit and believe in t
 
 So he shows that when people believe in the truth that's how he chose for salvation.
 
-Are you following this?
-
 And they had become sanctified by his spirit they are the ones that are saved.
-
-Amen.
 
 He chose that by belief in the truth and sanctification by the spirit you are saved.
 
@@ -1358,7 +1278,7 @@ Now look at verse 14.
 
 to which he called you by our gospel.
 
-Thank you for the obtaining of the glory of our Lord Jesus Christ.
+for the obtaining of the glory of our Lord Jesus Christ.
 
 So when the gospel is preached to you is how he's calling you into what he has already planned.
 
@@ -1388,8 +1308,6 @@ Let me now say number two.
 
 We are specifically called into our spiritual assignment or the work of ministry by the discipleship message.
 
-Is someone listening to this?
-
 Do you get the drift?
 
 When someone preaches salvation to you, they may not have any intention of making you nderstand God's purpose or helping you to walk in the work of ministry.
@@ -1406,7 +1324,7 @@ But they don't know that when they are preaching the gospel to you for salvation
 
 God's purpose, including your spiritual assignment.
 
-Guys, are you still alive?
+are you still alive?
 
 I'm I don't feel like you I'm not feeling you.
 
@@ -1418,8 +1336,6 @@ Are you getting this?
 
 And many times they will intend that you do your spiritual assignment because they know that you could still do natural normally even they don't tell because on wire you in the first place but discip message is a specific call that will point your attention to your spiritual assignment and the work of ministry.
 
-Amen.
-
 We are specifically called into spiritual assignment and the work of ministry by the disciples message.
 
 How do we know?
@@ -1428,7 +1344,7 @@ Ephesians 4, he gave of for the perfecting of the saints unto the work of minist
 
 It is when katartismos which we know katartismos is for what discipleship Luke 6:40 is when katartismos is being done that it is directly done towards the end of ministry.
 
-Are you are we together?
+Are you
 
 We are specifically called.
 
@@ -1438,13 +1354,11 @@ It's possible that someone calls you to salvation and yet the person might fail 
 
 And God can orchestrate your steps that someone helps you to see ministry.
 
-Are you following this?
-
 Because you can end up a servant of Christ without knowing God's purpose.
 
 Luke 12:47-48 he said the servant of mine that knows my will and does not prepare and do according to it will be beaten with many stripes but he said he that does not know his servant that does not know yet does things of or of deserving of stripes will be beaten with what few are you seeing this it is possible that someone calls you to salvation and you become saved you are a servant of the Lord and yet you don't know his will and purpose including your spiritual assignment is this very Well, he's now saying that if you don't know, well, you'll be beaten still with few because you should have known.
 
-If someone now calls you to that and you now know and you now say, "Ah, but this person was one that preached me and I'm" and you now still don't go and prepare.
+If someone now calls you to that and you now know and you now "Ah, but this person was one that preached me and I'm" and you now still don't go and prepare.
 
 You don't go and receive discipleship and perfectioning of the saints there.
 
@@ -1456,13 +1370,9 @@ But it means now you are now being called by discipleship message to fulfill God
 
 you commit to such a place.
 
-Are you paying attention?
-
 And this is not just of Christ.
 
 I'm saying this as a matter of the principle of the word.
-
-Are you following?
 
 It's the principle of the word.
 
@@ -1476,21 +1386,15 @@ Commit there.
 
 That is the way.
 
-Hallelujah.
-
 That's the principle of God's word.
 
-Say, I'm waiting for God to lead me.
+I'm waiting for God to lead me.
 
 He has already led you.
 
 That's what God's word has already submitted.
 
 That's the leading of the truth on the matter.
-
-Amen.
-
-Thank you very much.
 
 So I'm going to take it again.
 
@@ -1520,8 +1424,6 @@ But now I want to make a point.
 
 You have to commit o the local church that calls you by the discipleship message for God's purpose.
 
-Please are we together?
-
 Because when Jesus sent his apostles, he told them go and make disciples.
 
 People are not meant just are not just meant to call you to salvation but also to what?
@@ -1542,7 +1444,7 @@ Number four, start evangelism and discipleship from where you are.
 
 God already forn knows how you will come to know of your spiritual assignment of the work of ministry that he has allotted for you.
 
-So you say, "Oh, what has God chosen me for?
+So you "Oh, what has God chosen me for?
 
 You know, God chose someone specifically for this.
 
@@ -1568,11 +1470,9 @@ But many times God will call you for something he will equip you for it.
 
 It will the equipping would include the ntire trajectory and orchestration of your life.
 
-Are you following?
-
 If there will be nothing significant you will be adding other than executing the mission.
 
-Execute it as faithfully where you are and as you have received are you are we together?
+Execute it as faithfully where you are and as you have received are you
 
 If it's going to be that way the orchestrations will make it that way.
 
@@ -1580,11 +1480,7 @@ You can't have to.
 
 You don't have to, you know, it doesn't have to be.
 
-You get what I'm trying to say, right?
-
-Amen.
-
-Glory to God.
+You get what I'm trying to right?
 
 Let me say something.
 
@@ -1598,13 +1494,13 @@ Let me tell you one of them.
 
 One of them is character.
 
-Are you following at all?
+at all?
 
 I'm not saying people are always going to I mean all of us are called to work will not be perfect.
 
 But there are some things that it will be part of the equipping because they are part of the conditions.
 
-1 Timothy 3 can say God doesn't qualify the how to say it God doesn't call the qualify the is the same thing we are still saying if particularly for some roles you can see that if your back don't go and risk the life of people are you paying attention with you can already tell you are better served in a very submitting to a very what's it called an already existing system that will help you to be in check to do everything God wants you to do.
+1 Timothy 3 can say God doesn't qualify the how to say it God doesn't call the qualify the is the same thing we are still saying if particularly for some roles you can see that if your back don't go and risk the life of people with you can already tell you are better served in a very submitting to a very what's it called an already existing system that will help you to be in check to do everything God wants you to do.
 
 If you go and do something that takes you t of a system, which pioneering work usually does, no matter how much people say that they having oversight over you, they know that since you are your own.
 
@@ -1613,8 +1509,6 @@ Are you getting what I'm trying to say?
 H you are not built for it.
 
 You know there are things people are built for.
-
-Amen.
 
 If you are not built for it, it can lead to problems.
 
@@ -1628,23 +1522,19 @@ Maybe because some things some be like Joseph.
 
 We don't know whether but there are people that I've know that have said ah maybe there's some truth to it based on because they were personally there and these people are my friend but they now through someone that they are close nough to be honest like that to them.
 
-Are we on the same page?
-
 You can carry out your natural spiritual assignment, the work of ministry, your part and your measure excellently where God called you and as far and wide as possible.
 
 Are you getting what I'm trying to say?
 
 Without risking your life and other people's and walking on a rope all the time.
 
-Are you following what I'm trying to say?
+what I'm trying to say?
 
-Because if God told that these are the conditions and you are saying that h is not your lot yet I mean you can grow then be weary praise the lord me I've become more open to embracing people when it comes to pioneering ministry I still do not think there are times I see people do something I don't even know why I use some examples you don't need to go and I've been in a begging people for money.
+Because if God told that these are the conditions and you are saying that h is not your lot yet I mean you can grow then be weary me I've become more open to embracing people when it comes to pioneering ministry I still do not think there are times I see people do something I don't even know why I use some examples you don't need to go and I've been in a begging people for money.
 
 As much as I know the Lord wants us do a lot, I don't think he's going to get to the point that what he now includes is to be pegging for money.
 
 Are you getting what I'm trying to say?
-
-Are you following this?
 
 You know, you don't need some things.
 
@@ -1656,11 +1546,9 @@ Are you getting what I'm saying?
 
 Whatever the case, you start from where you are and you keep growing.
 
-Amen.
-
 These are some of the issues.
 
-You can't say you want to start now like that's someone you know told me they want to buy this I want to buy that I say I said what you want to buy even we don't have I told the person honestly and maybe the person was assuming that you know the way we are just big like you know we are just we are very confident but now the grace of God they make us confident you get speaker look at this speaker that do I know the guy speaker that is this one cause this I say are you sure because when we started we didn't want o have we just had the grace of God that's it you don't need all that stress I'm not saying you should not be I'm for excellence but still people should be calming down particular this par it should not ever be by force are you getting what I'm trying to say it should not ever be by force amen Hey, it's not by force me.
+You can't say you want to start now like that's someone you know told me they want to buy this I want to buy that I say I said what you want to buy even we don't have I told the person honestly and maybe the person was assuming that you know the way we are just big like you know we are just we are very confident but now the grace of God they make us confident you get speaker look at this speaker that do I know the guy speaker that is this one cause this I say are you sure because when we started we didn't want o have we just had the grace of God that's it you don't need all that stress I'm not saying you should not be I'm for excellence but still people should be calming down particular this par it should not ever be by force are you getting what I'm trying to say it should not ever be by force Hey, it's not by force me.
 
 I didn't tell God to call me.
 
@@ -1670,21 +1558,17 @@ Are you ah it's not by force.
 
 As much as I'm now eager and ambitious to fulfill what he has called me to do, it don't be by force is his work.
 
-Amen.
-
 You can do great things for God without carrying burdens that may not be yours.
 
-And you know it's because today now people have so many examples say ah look at this person know look at Christianity before who are the people if you were in 1930 now you be apost who we have been looking at do you get what I'm trying to say now today now people are seeing so many people now you look at pastor maybe look at bishop look at this he's looking lucrative he's giving lucrative vibes so you might not be seeing all sort of people with all sort of heart and mindset.
+And you know it's because today now people have so many examples say ah look at this person know look at Christianity before who are the people if you were in 1930 now you be apost who we have been looking at now today now people are seeing so many people now you look at pastor maybe look at bishop look at this he's looking lucrative he's giving lucrative vibes so you might not be seeing all sort of people with all sort of heart and mindset.
 
 Praise God.
 
 It doesn't work like that.
 
-Glory to God.
-
 It doesn't work like that.
 
-Commit or Okay, I said commit to discip to a local church that calls you by what?
+Commit or I said commit to discip to a local church that calls you by what?
 
 The discipleship message.
 
@@ -1703,8 +1587,6 @@ I know there are other factors to look out for in the local church.
 You know there are other things but this is a very key one.
 
 A church that calls you by message is the church to commit to.
-
-Amen.
 
 If there are now other things that maybe bother on things like exploitation and abuse then you might have to worry.
 
@@ -1734,11 +1616,9 @@ Are you getting this at all?
 
 These things and you know life has a way of being you have to be careful.
 
-Are you following this?
-
 And you don't want life to no life.
 
-I'm not trying to say life like I don't sound like this type of people but you know there's a way God decides this world and the way I think some of these ages operate it's not good to put yourself on pressure me generally if you're not called avoid it because common love are you following this you know way you be you'll be confident and calm hallelujah and know that you are still going to be careful and cautious but don't be gambling with your life and the lives of people is too risky.
+I'm not trying to say life like I don't sound like this type of people but you know there's a way God decides this world and the way I think some of these ages operate it's not good to put yourself on pressure me generally if you're not called avoid it because common love you know way you be you'll be confident and calm and know that you are still going to be careful and cautious but don't be gambling with your life and the lives of people is too risky.
 
 Start where you are.
 
@@ -1756,8 +1636,6 @@ And that's omething 1 Timothy 3 shows us as well as act 6.
 
 Paul says that well if anybody's like this let them be deacons.
 
-Are you following this?
-
 That's a natural unfolding.
 
 He didn't say there's any special thing there.
@@ -1772,8 +1650,6 @@ You don't need any special pioneering call in carrying out your spiritual assign
 
 This is the order in God's word about your spiritual assignment.
 
-Amen.
-
 Unfold that right.
 
 So start from where you are.
@@ -1786,8 +1662,6 @@ Go as possible.
 
 The system of the church will allow you to be able to do your measure as a part.
 
-Are you paying attention?
-
 Your measure as a part.
 
 And if it's a good church, they might correct you.
@@ -1798,8 +1672,6 @@ If they correct you, that's God's will for you.
 
 It means you will now take that correction and unfold to now be able to lead people.
 
-Amen.
-
 that you now refuse the truth.
 
 Is it going to change the fact that you can still do nothing against the truth but for the truth?
@@ -1807,8 +1679,6 @@ Is it going to change the fact that you can still do nothing against the truth b
 The truth will still show up.
 
 This is the nature of this life for you.
-
-Are you paying attention here?
 
 Unfold naturally by divine arrangement and orchestration into more phases of ministry.
 
@@ -1818,23 +1688,17 @@ As a member, you're learning, as a worker, you're now starting to do the work se
 
 Then you are unfolding to a deacon.
 
-Amen.
-
 You are leading but in an assisting role in the church, then to a bishop.
 
 We might now say in this case, maybe a union leader or something and then maybe a pastor depending on how many institute, you know, denominations might frame it.
 
 Praise God.
 
-Glory to God.
-
 Unfold naturally by the B.
 
 This is the order of the word, the ordinary order of the word.
 
 And that's how I pray that in act six when the need was like that what hey should have just done proactively with a system then how to react and then have deacons.
-
-Praise the Lord.
 
 But now we come to number six.
 
@@ -1882,15 +1746,11 @@ Ambitious.
 
 Hey Jesus, let ambition be righteous.
 
-Are you there?
-
 Use that ambition to look at the world that needs salvation and pursue the souls of men for their salvation, their establishment in and fulfillment of God's purpose.
 
 Channel it the right way.
 
 Don't now channel it the wrong way or in the wrong context or place.
-
-Glory to God.
 
 Do it the right way.
 
@@ -1908,7 +1768,7 @@ There are many things we can argue for that can happen by leading of the spirit 
 
 For example, God cannot lead you to go and do evil to go and commit adultery.
 
-Are you following what I'm trying to say?
+what I'm trying to say?
 
 There are some things we can argue that well they won't happen by lead spirit but let's keep that for another context.
 
@@ -1964,8 +1824,6 @@ Maybe these days, this time I commit o it.
 
 So that there is a way you are channeling the working of God's spirit in you.
 
-Are you following?
-
 If you have already said this is when I want to it's like if there's no time for church people may never go to church.
 
 Are you getting what I'm trying to say?
@@ -1976,13 +1834,9 @@ Even if someone should miss one day he knows there was that time I'm supposed to
 
 There's the next time.
 
-Are you following this?
-
 That I commit to be available like this.
 
 Then you are channeling the working of God's pirit in you to bring you into faithfulness consistency in that.
-
-Are you following?
 
 When you have your conviction make commitment.
 
@@ -2006,21 +1860,17 @@ You know the word is from PTO.
 
 PTO, convinced, committed, and then consistent.
 
-Glory to God.
-
 This life, God will always orchestrate our steps.
 
 How we handle it is a different ball game.
 
 Ensure you are not the one that is not on the side of truth in how you handle God's orchestration.
 
-Are you following this?
-
 Because I can talk a lot about God's orchestration and man's participation in it.
 
 Ensure you are not the one that is not on the side of truth in that matter.
 
-Are you paying attention to what I'm saying at all?
+to what I'm saying at all?
 
 If God orchestrate yourself, he orchestrates yourself.
 
@@ -2029,8 +1879,6 @@ You cannot, there's nothing you can do about it.
 Is the one that orchestrate your steps.
 
 Now, how we now participate in that as men is another thing.
-
-Praise the Lord.
 
 You must learn to you know what's it called?
 
@@ -2068,8 +1916,6 @@ Is this very clear?
 
 All right.
 
-Thank you.
-
 So you have a spiritual assignment in God's word.
 
 Say I have a spiritual assignment in God's purpose.
@@ -2090,8 +1936,6 @@ I commit myself.
 
 I commit myself out of conviction to God's purpose, to my spiritual assignment in God's purpose, and I'm consistent with it by the spirit of God.
 
-Amen.
-
 You know, one of the fruit of the spirit is faith or faithfulness, which is that ability when we are convinced to commit and be consistent.
 
 That's it.
@@ -2108,8 +1952,6 @@ It's inconvenience in all kinds of ways.
 
 But there is that drive in us by God's spirit, faithfulness.
 
-Amen.
-
 We can even talk about discipline as well which is coming up later in our teaching.
 
 I think it's actually the next one.
@@ -2118,19 +1960,15 @@ Discipline the inner man or something.
 
 There's something in us that drives us.
 
-Glory to God.
-
 To be committed to be consistent.
 
 Now you are going to grow in that.
 
 But you have that nature that when you are convinced of something true, you commit o it and you are consistent with it.
 
-Praise the Lord.
-
 ## Closing Exhortation and Prayer
 
-All right brothers and sisters let's just pray for ourselves as we are seated as we wrap up just pray for yourself today we have heard about our natural assignment today we have heard about our spiritual assignment I want you to just you know allow God speak to you about everything we have heard so much you know allow God speak to you about everything start from where you are make those vital commitments to your natural assignment to your spiritual assignment I commit to this I commit to that and I start to grow is about just planting that seed and allowing it to grow.
+let's just pray for ourselves as we are seated as we wrap up just pray for yourself today we have heard about our natural assignment today we have heard about our spiritual assignment I want you to just you know allow God speak to you about everything we have heard so much you know allow God speak to you about everything start from where you are make those vital commitments to your natural assignment to your spiritual assignment I commit to this I commit to that and I start to grow is about just planting that seed and allowing it to grow.
 
 Allowing it to grow, allowing it to grow.
 
@@ -2150,15 +1988,13 @@ Branto.
 
 Our natural assignment, our spiritual assignment.
 
-Amen.
-
 You know one of the things I want us to do when you are alone maybe when you get back home take some time.
 
 No sometimes this our world distraction is o much either you are busy with work or you are scrolling on the social media nd all of that.
 
 Take some time alone.
 
-Set an alarm maybe different from the prayer watch 15 minutes maybe if it not extend maybe just alone and just pray about everything you have he had your natural assignment just take a look at it again you know that's sit down first and count the cost you know it applies to both our natural and spiritual assignment I just do it sit down count you know not count on social media I counting the course like I know how to do things at the same time you are lying I schooling thinking about hat amen Amen.
+Set an alarm maybe different from the prayer watch 15 minutes maybe if it not extend maybe just alone and just pray about everything you have he had your natural assignment just take a look at it again you know that's sit down first and count the cost you know it applies to both our natural and spiritual assignment I just do it sit down count you know not count on social media I counting the course like I know how to do things at the same time you are lying I schooling thinking about hat
 
 Sit down first and do what?
 
@@ -2170,17 +2006,13 @@ Nothing might necessarily change about what you are doing.
 
 But just, you know, be realigned.
 
-Are you following this?
-
-Okay, I'm on track in my walk in God's purpose.
+I'm on track in my walk in God's purpose.
 
 Right?
 
 I'm on track.
 
 Just be realigned.
-
-Praise the Lord.
 
 Take that time.
 
@@ -2211,7 +2043,5 @@ Praise God.
 Let's just minister if the Lord you know you know lays on our heart um what you know what to minister and usually would when it comes to edification.
 
 So let's just pray and if you have something you can describe I want to see whether there's something in that regard.
-
-Glory to God.
 
 Master meodura perag.

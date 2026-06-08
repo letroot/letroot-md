@@ -10,7 +10,7 @@ You are here on earth because of God's purpose. The church exists to ensure that
 
 I want us to go to Ephesians 4. So I'm going to do some explanation there, and it's going to take us into the subject matter we are looking at. Ephesians and chapter 4. Can we turn our Bibles there?
 
-Now in Ephesians 4 and verse 11, Paul, speaking, says that the Lord Jesus gave the apostles, prophets, evangelists, pastors, and teachers. For now, I just want us to understand that as Jesus gave the leaders of the church. So, for example, today I'm functioning as the leader. I'm the one teaching God's word. Amen.
+Now in Ephesians 4 and verse 11, Paul, speaking, says that the Lord Jesus gave the apostles, prophets, evangelists, pastors, and teachers. For now, I just want us to understand that as Jesus gave the leaders of the church. So, for example, today I'm functioning as the leader. I'm the one teaching God's word.
 
 So we are about to find out what's the reason why Jesus gave the leaders of the church. No matter what name or label they go by, they could go by the label bishop. They could go by the label elders. They could go by the label pastor. They may go by the label apostle. No matter what label people go by, the real question we are asking is, why did Jesus give them? Why did Jesus give the leaders of the church?
 
@@ -44,13 +44,13 @@ The problem cannot be your spirit, because now that you have believed on the Lor
 
 So what is the church meant to do? The church is meant to give you the knowledge, number one. Number two, to give you the growth by faith that affects your mind so that you can walk the way God wants you to walk.
 
-So the Lord Jesus died and rose again from the dead not merely to forgive our sins but to restore us into God's purpose. We have seen that. You can't be at this point in level three if you don't know that. Are we still together? So he died, rose again, not just to forgive our sins. This is the mistake sometimes people make. You know, thank you for saving me. Thank you, my Lord. And they are so grateful for redemption, but they think redemption is an end in itself. That is a mistake. Redemption is a means to an end.
+So the Lord Jesus died and rose again from the dead not merely to forgive our sins but to restore us into God's purpose. We have seen that. You can't be at this point in level three if you don't know that. Are we still together? So he died, rose again, not just to forgive our sins. This is the mistake sometimes people make. You know, for saving me. my Lord. And they are so grateful for redemption, but they think redemption is an end in itself. That is a mistake. Redemption is a means to an end.
 
 Imagine the Lord just saved you to save you. If the Lord saved you just to save you, why did he make you? Did he make you so there will be a problem, then save you, now be grateful to him? That kind of person, if someone does that as a human being, puts you in a mess by himself, then saves you just so you'll be grateful, you kind of think that's a psychopath. Am I right? Because that's not a normal person. That's someone that wants to manipulate you.
 
 God did not make man to save man. God had to save man because something went wrong with why he made man. God made man for his purpose. Right? Something went wrong. Man rejected that purpose, rendered himself under the condition of sin and death. He had to be saved and restored back to that purpose.
 
-So if Christianity for you is just forgiveness of sins or salvation, oh my God, you have missed it. Salvation is the fixing of what Christianity was always about, of what God was always about, which is purpose. The reason for your life, for your breath, for your existence, is God's purpose, which Scripture will call sonship. I don't want us to go into that, because we have looked at that in earlier teachings. We could always listen to that or listen to the Pleros podcast. Praise the Lord.
+So if Christianity for you is just forgiveness of sins or salvation, oh my God, you have missed it. Salvation is the fixing of what Christianity was always about, of what God was always about, which is purpose. The reason for your life, for your breath, for your existence, is God's purpose, which Scripture will call sonship. I don't want us to go into that, because we have looked at that in earlier teachings. We could always listen to that or listen to the Pleros podcast.
 
 So we are seeing something. He saved us to bring us back into God's purpose. That's why he's so keen about it. And now that you are saved and you are in my purpose, I need to get you ready to be able to do this.
 
@@ -64,19 +64,19 @@ Now, some people almost accused them of child abuse because from a ridiculously 
 
 So I'm trying to make a point. If you want your kids to become something, and you have a purpose for them in a particular direction, you train them to be able to do it, right? So it's one thing that God has set a course for someone. It is not enough that he tells the person, this is what I want you to do. He is going to give the person the requisite training to ensure the person does that.
 
-So if God made us for his purpose and saved us back into his purpose, he wouldn't just save us and say, come thank me for what I've done. No. He's going to put us under the required training, discipleship, equipping, that will cause us to fulfill that purpose. That is what the church is for. The church is for the discipleship, the training. Right? He's going to give us the required training to ensure that we fulfill that purpose.
+So if God made us for his purpose and saved us back into his purpose, he wouldn't just save us and come thank me for what I've done. No. He's going to put us under the required training, discipleship, equipping, that will cause us to fulfill that purpose. That is what the church is for. The church is for the discipleship, the training. Right? He's going to give us the required training to ensure that we fulfill that purpose.
 
-And what I'm showing us here is that the training is not happening in our spirit. It is happening where? On our mind. Thank you.
+And what I'm showing us here is that the training is not happening in our spirit. It is happening where? On our mind.
 
 But I want to zoom down to something that will take us into our teaching for today. Don't forget we're looking at the newness of life. I'm just going this route to get to where we are headed. And remember, I started by saying the Lord gave the leaders of the church to perfect or equip us so that we can arrive at an end point that makes it possible for us to fulfill his purpose.
 
 If someone is going to become the heavyweight champion, maybe boxing, there is a required build, training, and discipline needed for you to become that. And so whatever God wants us to do in his purpose, there is the required build, training, and discipline necessary for that to be done. There is the required build, training, and discipline necessary for that to be done. There is required discipleship.
 
-No one thing I'm thinking about, for some people that want to go and disciple people, sometimes all you need to do is just give them the Pleros podcast, fifteen minutes. Sit down together, listen to it, and talk about it. Fifteen minutes, listen to it, talk about it. Listen, talk about it, maybe ten. There is a necessary build to fulfill God's purpose. Sometimes you don't have to say anything again. That might be enough. Maybe just pray. There is a necessary build. Amen. To fulfill God's purpose for our life.
+No one thing I'm thinking about, for some people that want to go and disciple people, sometimes all you need to do is just give them the Pleros podcast, fifteen minutes. Sit down together, listen to it, and talk about it. Fifteen minutes, listen to it, talk about it. Listen, talk about it, maybe ten. There is a necessary build to fulfill God's purpose. Sometimes you don't have to say anything again. That might be enough. Maybe just pray. There is a necessary build. To fulfill God's purpose for our life.
 
 ## You Have Not So Learned Christ
 
-Now I want to show you something. What exactly needs to happen on our minds for us to fulfill God's purpose? He says, I don't want you to be like those folks. Their minds are futile. Their minds are darkened. They are ignorant. They are blind in their mind. Now, what do I want you guys to have? Verse 20. Look at it. Ephesians 4:20. But you have not so learned Christ.
+Now I want to show you something. What exactly needs to happen on our minds for us to fulfill God's purpose? He says, I don't want you to be like those folks. Their minds are futile. Their minds are darkened. They are ignorant. They are blind in their mind. Now, what do I want you to have? Verse 20. Look at it. Ephesians 4:20. But you have not so learned Christ.
 
 So you are not supposed to walk like them because you have not so learned Christ. If indeed you have heard him and have been taught by him as the truth is in Jesus, that you put off concerning your former conversation the old man.
 
@@ -100,7 +100,7 @@ And one of Paul's clearest discussions on this reality of this newness that we h
 
 One of his most vital discussions, explanations, is found in Romans chapter 6. In Romans chapter 6 it says, Shall we continue in sin that grace may abound? I mean Romans 6:1. He says, Certainly not.
 
-Here he was talking about sin as sinful conduct. But you can read it as a pattern or a principle, as continuing in anything that is of sin, death, and darkness. Are you getting what I'm trying to say? Of which we can think of other things that are of sin, death, and darkness, such things like sickness and disease. Praise the Lord. We can bring them into the play.
+Here he was talking about sin as sinful conduct. But you can read it as a pattern or a principle, as continuing in anything that is of sin, death, and darkness. Are you getting what I'm trying to say? Of which we can think of other things that are of sin, death, and darkness, such things like sickness and disease. We can bring them into the play.
 
 But directly and primarily, Paul here is talking about sin relative to sinful conduct. So any kind of sinful conduct, maybe people not walking in love, maybe people walking in fleshly conduct or habits. Shall we continue in sin that grace may abound? Because God's grace is on the premise that we are in a mess. So he is saying, well, if he did the grace because we are in a mess, should we stay in the mess so that the grace keeps abounding? And he is saying, certainly not. Because the grace did not just deal with us in the mess. The grace transforms or changes us out of that mess.
 
@@ -108,13 +108,13 @@ He says, certainly not. That means impossible. How shall we who died to sin live
 
 And get to the meat of it, which is verse 3 and 4. Or do you not know that as many of us as were baptized into Christ were baptized into his death? Therefore, I want you to see that verse 4, we were buried with him through baptism into death, that just as Christ was raised up from the dead by the glory of the Father, even so we should walk in the newness of life.
 
-What he's saying here is that Christ has dealt with the realm of death and has given it its just due. He has done everything that death demands and requires. So by the time he redeemed us out of death, death has no right to demand anything of us. Are you paying attention here?
+What he's saying here is that Christ has dealt with the realm of death and has given it its just due. He has done everything that death demands and requires. So by the time he redeemed us out of death, death has no right to demand anything of us.
 
 And now we are in the realm of life. There's only one thing under death that we are still subject to, and that is mortality. And the reason for that is for this dispensation to pass, because it would mean that you wouldn't have been here, for example, if mortality was taken out of the play immediately at finished redemption. God's plan for every person that should exist within this age before this age closes and we enter into the next would have been shut off. So mortality is sustained, is kept, or preserved, in view of the fulfillment of God's purpose in this age. I don't know if we are still together.
 
 All right. But other than mortality, he is saying that we have completely entered into the realm of life. Since we have been buried with him into death and have been raised from the dead, we are now to walk in the newness of life.
 
-Now, two things I want us to notice there. We have entered into the newness of life, but it's our responsibility to do what? To walk in the newness of life. Say, I am in the newness of life. Say, I am in the newness of life. It's my responsibility to walk in the newness of life.
+Now, two things I want us to notice there. We have entered into the newness of life, but it's our responsibility to do what? To walk in the newness of life. I am in the newness of life. It's my responsibility to walk in the newness of life.
 
 I want us to see another text that describes this same reality of the newness of life, but in another way, a slightly different way. Romans chapter 7 and verse 6. Romans 7:6. It says, But now we have been delivered from the law, having died to what we were held by, so that we should serve in what? Do you see that? We should serve in the newness of the Spirit and not in the oldness of the letter.
 
@@ -124,13 +124,13 @@ So it says we are to serve in the newness of the Spirit, not in the oldness of t
 
 ## Knowing and Still Not Walking in It
 
-Now I want you to think. If these people were writing Paul complaining that, hey Paul, shall we continue in sin that grace may abound? It means they were in the newness of life, but they were not walking in it. They were complaining to him that we don't know what's going on. Oh, you told us that we are changed. You told us that we have died to sin, but it's like it's not working. Amen.
+Now I want you to think. If these people were writing Paul complaining that, hey Paul, shall we continue in sin that grace may abound? It means they were in the newness of life, but they were not walking in it. They were complaining to him that we don't know what's going on. Oh, you told us that we are changed. You told us that we have died to sin, but it's like it's not working.
 
 And this is a reality for believers. There are times believers find themselves in that situation that, I don't know, it seems not to be working. You said we are changed. You said we are new. But we still seem to be living under the old.
 
 And Paul even admits that they know these things. Notice something. Go to Romans chapter 6 and verse 3. He said, Or do you not know? Do you know this is a rhetorical question? That means he is saying, you know already now that if we were baptized into Christ, we were baptized into his death. We have been raised with him to walk in newness of life. You already know.
 
-He will go on in verse 6 to say, knowing this, that our old man was crucified with Christ. We know it already. But they still wrote him and said, we don't know what's going on. All the things you told us that we know, we know. We don't seem to be walking in it.
+He will go on in verse 6 to knowing this, that our old man was crucified with Christ. We know it already. But they still wrote him and said, we don't know what's going on. All the things you told us that we know, we know. We don't seem to be walking in it.
 
 And I'm going to get to that later. Why is it that there is knowing, and there seems to be a gap in terms of, I know, but I don't seem to be doing? In the faith of our Lord Jesus Christ, what bridges the knowing and doing gap is faith, faith-stand to be precise. And I'll come to that at the end of this session.
 
@@ -146,9 +146,9 @@ There are two things here. He calls it newness of life. That word newness is to 
 
 So before now, you used to have a different nature. Ephesians 2:1 will tell us that you were dead in sin. You used to have the old man as your nature. The state of your spirit was dead. But now you are born again. Your spirit is now alive. You now have the life of God in you. You are not in a state of death and darkness. You now have light in you. You have his light in you. You have his life in you. You are alive in Christ.
 
-So the newness is contrasting with the old. Let us read verse 5. If we have been united together in the likeness of his death, certainly we shall also be in the likeness of his resurrection, knowing this, that our old man was crucified with Christ, that the body of sin might be done away with, that we should no longer be slaves of sin. Thank you, Lord.
+So the newness is contrasting with the old. Let us read verse 5. If we have been united together in the likeness of his death, certainly we shall also be in the likeness of his resurrection, knowing this, that our old man was crucified with Christ, that the body of sin might be done away with, that we should no longer be slaves of sin. Lord.
 
-So we are in a new reality. But I want us to see the second part: life. What does life mean? We are meant to walk in the newness of life, which means we have entered into the newness of life. What does life mean? What does life mean?
+So we are in a new reality. But I want us to see the second part: life. What does life mean? We are meant to walk in the newness of life, which means we have entered into the newness of life. What does life mean?
 
 So life is a state of vitality or animation that can be expressed. Life is a state of vitality or animation that can be expressed, or another way you can say that, that has expressions. It is a state of vitality or animation that has expressions.
 
@@ -166,7 +166,7 @@ You know, if an animal or even a man is dead, they will say he has lost his life
 
 So when he tells us we are in a new kind of life, that word life being a general word for life, what you need to be concerned about is, when you see a dog life, a dog zoe is different from a cat zoe, is different from a cheetah zoe, is different from a lion zoe, different from a tiger zoe. All of them, these are still zoe, all different kinds of zoe. Am I right? Different.
 
-The kind of animations that happen with creatures, some will be able to see farther than others. Are you following what I'm trying to say? It is part of their animation to be able to see farther. Some can see at night. Some can smell from a longer distance than maybe even men can. Are you following this? It is in the nature of their zoe. The state of vitality and animation they have allows them to be able to do certain things.
+The kind of animations that happen with creatures, some will be able to see farther than others. what I'm trying to say? It is part of their animation to be able to see farther. Some can see at night. Some can smell from a longer distance than maybe even men can. It is in the nature of their zoe. The state of vitality and animation they have allows them to be able to do certain things.
 
 So in this case, when he says we have entered into a kind of zoe, we already had a kind of zoe, our human zoe. So he says we're in the newness of zoe. We have to ask, what pertains to this zoe? What vitality and animations are present in this zoe for us to do what? Express. What vitality and animations are present in this zoe for us to express the newness of life?
 
@@ -178,7 +178,7 @@ There is a second way life can be used. You know someone says life in Nigeria is
 
 But I don't know what is going on right now in the UK. I'm not sure they are in that season, right? Is it hot? It's cold. Yeah. So someone can say life in the UK right now is so different from life in Nigeria. And by life they mean the external condition.
 
-Someone can say life on the moon is different from life on earth. And that's understandable. We are probably in the realm of zero gravity, and people are trying to... I mean, is it zero gravity on the moon? I'm not too sure about that one, but I know in space generally, if they are in the international space station, you see, have you watched some of those videos, them struggling to eat? You know, it can be very terrible. Amen. In fact, you have to train for life there. They will sometimes train them in a zero-gravity environment to prepare them ahead of going there because of the kind of life there.
+Someone can say life on the moon is different from life on earth. And that's understandable. We are probably in the realm of zero gravity, and people are trying to... I mean, is it zero gravity on the moon? I'm not too sure about that one, but I know in space generally, if they are in the international space station, you see, have you watched some of those videos, them struggling to eat? You know, it can be very terrible. In fact, you have to train for life there. They will sometimes train them in a zero-gravity environment to prepare them ahead of going there because of the kind of life there.
 
 So we are seeing life as an internal state of vitality and animation, but another possible use of life is as external conditions in which people function. And these two things are very vital in talking about the newness of life. They are very vital in talking about the newness of life.
 
@@ -192,7 +192,7 @@ If your life is not living like you are an ambassador, like you are functioning 
 
 ## Eternal Life in the Gospels and in John
 
-You will notice that in Scripture the concept of eternal life is mostly described as the state of the life to come, which means the state, the external and internal state, of the life to come. We are talking about the new heavens and new earth. Amen. That's how eternal life is primarily described in God's word, as the condition of the new heavens and new earth, the age to come.
+You will notice that in Scripture the concept of eternal life is mostly described as the state of the life to come, which means the state, the external and internal state, of the life to come. We are talking about the new heavens and new earth. That's how eternal life is primarily described in God's word, as the condition of the new heavens and new earth, the age to come.
 
 Let's see some texts very quickly because our time is moving quite a bit. The very first time we see this idea of life in God's word is Matthew 7:14. But it doesn't give us much detail. I'll just quote it and move on. Matthew 7:14 says, narrow is the gate and difficult is the way that leads to life. But if you are reading well, you will have the idea that he is talking about life to come.
 
@@ -202,29 +202,29 @@ Let me show you another one I think makes it clearer. Matthew 19:16: behold, one
 
 Let me jump to another one, I think probably the clearest one. Matthew 25:46: and these will go away into eternal punishment, but the righteous into eternal life. And this is at the point of judgment. So in the synoptic accounts, which is Matthew, Mark, and Luke, this is the predominant way that word life or eternal life is used, as the reality of the world to come, both the external conditions and internal animations that pertain to that world.
 
-All right. But soon you start seeing that same condition is said to be available now. The conditions of what should happen then are available now because that's the condition God wanted to give us from the get-go. The fact that we are witnessing a world of death and darkness is an aberration to the intended condition God wanted in his world. Are you paying attention here now?
+All right. But soon you start seeing that same condition is said to be available now. The conditions of what should happen then are available now because that's the condition God wanted to give us from the get-go. The fact that we are witnessing a world of death and darkness is an aberration to the intended condition God wanted in his world. now?
 
 So for us to see that, let's jump into John. John is the one that brings that eternal life, the condition of what God intended and what will happen at the end, and brings it as a present reality, both the external and internal conditions. There is a reason why I'm saying this, because people talk about the life of God and all they will say is something like your character. But the life of God includes preservation, protection, safety, because the life of God is the external conditions as well. The newness of life is the external conditions as well. It includes healing. It includes immunity from certain things happening to you.
 
 And if you are not aware, just like they were saying in Romans 6, you won't walk in what is available. There is one thing that is not available: you are not going to walk in immortality. That one we already know. That one will be consummated at the Lord's coming. But what pertains to life now, that we should walk in, we mustn't lose sight of it. It's not just internal animations alone. It is external conditions as well, because we are in his embassy.
 
-John 1:4: in him was life, and the life was the light of men. Thank you, Lord. So it is that the life that is found in him is what is going to use to enlighten, is what is going to use to light up people that are in darkness, give them light.
+John 1:4: in him was life, and the life was the light of men. Lord. So it is that the life that is found in him is what is going to use to enlighten, is what is going to use to light up people that are in darkness, give them light.
 
 Let's look at other ones. John 3:15 and 16. We know this one very well, right? John 3:15 says that whoever believes in him should not perish but have eternal life. At this point you could still be debating it as a future reality. Even at verse 16, you could still be debating it as a future reality. For God so loved the world that he gave... that whoever believes should not perish but have eternal life.
 
 John 3:36 as well. This is John the Baptist speaking. He who believes in the Son has everlasting life. He who does not believe shall not see life. You can see it still looks futuristic again there. But as we press on further in the book of John, you start to see that they understood that life would begin its reality from here. It will begin to be a lived experience. Both the internal and external conditions of that life will begin to be a lived experience from this point.
 
-John 4:14: whoever drinks of the water that I shall give him will never thirst. But the water that I shall give him will become in him a fountain of water springing up into everlasting life. It will be a present reality in him, to be a fountain of water, and that water is active all the way to everlasting life. That means he is living in the reality of what is to come from now. Amen.
+John 4:14: whoever drinks of the water that I shall give him will never thirst. But the water that I shall give him will become in him a fountain of water springing up into everlasting life. It will be a present reality in him, to be a fountain of water, and that water is active all the way to everlasting life. That means he is living in the reality of what is to come from now.
 
-John 5:24. Let's double down. Most assuredly I say to you, he who hears my word and believes in him who sent me has what? You see that? Has. Very present tense in this case. He didn't say shall have. This is has. When the person believes, the person has everlasting life. He believes in the redemption found in Christ, he has everlasting life. Are you seeing that? That means the conditions, internal and external, of that world are present with him. Say, I have everlasting life.
+John 5:24. Let's double down. Most assuredly I say to you, he who hears my word and believes in him who sent me has what? You see that? Has. Very present tense in this case. He didn't say shall have. This is has. When the person believes, the person has everlasting life. He believes in the redemption found in Christ, he has everlasting life. Are you seeing that? That means the conditions, internal and external, of that world are present with him. I have everlasting life.
 
-And I want you to realize, when you say have everlasting life, you are not just talking about the internal animations alone, but also the external conditions. Say, I have everlasting life. He says he has everlasting life and shall not come into judgment, but has passed from death to life. You can see that external condition there. He has passed from death. He didn't say death has been removed from him and life has been put in him. He says he has passed from the conditions of death into life. So he is living in an embassy, in this death-ridden world, in a life embassy, in a kingdom embassy, in a Christ embassy. He has passed from death to life.
+And I want you to realize, when you say have everlasting life, you are not just talking about the internal animations alone, but also the external conditions. I have everlasting life. He says he has everlasting life and shall not come into judgment, but has passed from death to life. You can see that external condition there. He has passed from death. He didn't say death has been removed from him and life has been put in him. He says he has passed from the conditions of death into life. So he is living in an embassy, in this death-ridden world, in a life embassy, in a kingdom embassy, in a Christ embassy. He has passed from death to life.
 
 First John 3:14 will say that we know we have passed from death to life because we love the brethren. So it is not just that death has been taken out of us. There are texts that will say that. But if they want to speak in the most general sense, they will say you are no longer under death, you are now in life. It includes both the external and internal realities and conditions.
 
-Thank you, Lord. He has passed from death to life.
+Lord. He has passed from death to life.
 
-Verse 26, I like this one. It says, for as the Father has life in himself, so he has granted the Son to have life in himself. This one shows that the internal condition we are talking about is a divine one. The animations we have are divine animations. You cannot have hate in you. There is no hate in God. Are you paying attention here? The animations available to you are animations of love, animations of righteousness. There is no sin in you to sin. There is sin in the world you can yield to, but there is no sin in you to sin. The conditions in you are the conditions of divinity. The animations and vitality present to you are the animations of divinity. That is what is in us.
+Verse 26, I like this one. It says, for as the Father has life in himself, so he has granted the Son to have life in himself. This one shows that the internal condition we are talking about is a divine one. The animations we have are divine animations. You cannot have hate in you. There is no hate in God. The animations available to you are animations of love, animations of righteousness. There is no sin in you to sin. There is sin in the world you can yield to, but there is no sin in you to sin. The conditions in you are the conditions of divinity. The animations and vitality present to you are the animations of divinity. That is what is in us.
 
 As the Father has life in himself, he has granted the Son to have life in himself. Verse 39: you search the Scriptures, for in them you think you have eternal life, but they testify of me. But you are not willing to come to me that you may have life.
 
@@ -242,7 +242,7 @@ John 10:28. There are so many texts. Let me just run past them.
 
 ## Life in the Epistles and the Scope of This Reality
 
-So in the epistles we see the same concept of life being emphasized. Romans 8:2 says we have received the Spirit of life in Christ Jesus. So Romans 8:10 will tell us that our spirit is alive even though our body is dead. So our spirit has life even though the body is yet mortal. Say, I have the life of God.
+So in the epistles we see the same concept of life being emphasized. Romans 8:2 says we have received the Spirit of life in Christ Jesus. So Romans 8:10 will tell us that our spirit is alive even though our body is dead. So our spirit has life even though the body is yet mortal. I have the life of God.
 
 So once you have the life of God in you, the external conditions around you are also of the life of God. So we have entered into the newness of life, yet it's possible that one is not walking in that even though he has entered into it. That means it's possible that one is not working in the external conditions and internal animations of what belongs to him.
 
@@ -258,7 +258,7 @@ The external conditions are working for us in this world such that things are al
 
 ## Partakers of the Divine Nature
 
-Second Peter 1:4 says, whereby are given unto us exceeding great and precious promises, that by these you might be made partakers of the divine nature. Say, I'm a partaker of the divine nature.
+Second Peter 1:4 says, whereby are given unto us exceeding great and precious promises, that by these you might be made partakers of the divine nature. I'm a partaker of the divine nature.
 
 Now, why I came here is to emphasize something about the two conditions of this life, both internal and external. You know, when you say nature, that word nature is the word phusis. That word nature is the word phusis in the Greek. It is from the word phuo, that means to puff up, to blow up. It shows the inherent condition of something to spring forth. It is also used for germination.
 
@@ -266,17 +266,17 @@ That means if you plant a seed, it is already in the seed to spring forth. It is
 
 So when you say I am a partaker of divine nature, it means that my inherent conditions are divine. What will naturally come forth from me are the animations of divinity.
 
-Now another thing about the seed is that the seed, except something is wrong, a seed, or a nature, let me use nature because with seed we can start to debate, a nature is always active even when it's not finding expression by reason of the conditions it is in. If you don't plant a mango seed now, you won't know that it can grow. Yet it had all it takes to grow all the while it was not yet properly planted in the soil. Are you following this?
+Now another thing about the seed is that the seed, except something is wrong, a seed, or a nature, let me use nature because with seed we can start to debate, a nature is always active even when it's not finding expression by reason of the conditions it is in. If you don't plant a mango seed now, you won't know that it can grow. Yet it had all it takes to grow all the while it was not yet properly planted in the soil.
 
 So the nature of God in you is always active. Now what I'm trying to say is that when you are in the newness of life, all the realities of the newness of life are always active. There is never a time the external conditions of the life we are in are not active around you or for you. There is never a time. There is never a time the internal conditions or animations of the life we have are not active in you. There is never a time.
 
 If it is not finding expression, it is a matter of your own walk. But they are always there. The newness of life is an ever-active reality, an ever-present and active reality. It is not going to decide to be active on your behalf. It is always active on its own. You are only in faith for its expressions, for its effect in you.
 
-That's why your faith doesn't need to be as constant as that, as long as you're aligned. Your faith just needs to be consistent. Do you understand what I mean? I mean, you don't want to say, I must be in faith every single second, even when I'm sleeping. As long as you're in faith, you stay aligned. It's always working.
+That's why your faith doesn't need to be as constant as that, as long as you're aligned. Your faith just needs to be consistent. Do you understand what I mean? I mean, you don't want to I must be in faith every single second, even when I'm sleeping. As long as you're in faith, you stay aligned. It's always working.
 
-When I'm sleeping, I'm in the conditions of newness of life. When I'm not at the moment exercising my faith in confession, I am in the conditions of life actively because now I'm in faith about it. But its conditions were already working on me. But they are now even more so active with me because I'm in faith. Are you there?
+When I'm sleeping, I'm in the conditions of newness of life. When I'm not at the moment exercising my faith in confession, I am in the conditions of life actively because now I'm in faith about it. But its conditions were already working on me. But they are now even more so active with me because I'm in faith.
 
-Don't let the idea of the new life you have in Christ be something that is dormant to be applied. It is active to be expressed. Some say, ah, I'm waiting to be sick to now apply the power of God. No. The power of God is always working in my body and always working around me. It never stops working. I love that. The power of God never stops working.
+Don't let the idea of the new life you have in Christ be something that is dormant to be applied. It is active to be expressed. Some ah, I'm waiting to be sick to now apply the power of God. No. The power of God is always working in my body and always working around me. It never stops working. I love that. The power of God never stops working.
 
 So we are partakers of the divine nature. We are in the newness of life so that we can do what? Walk in it. The realities of this life are ever active.
 
@@ -290,15 +290,15 @@ So we have this status that we are forgiven. We have the status that we are forg
 
 So this is our status.
 
-What are the things we need to note particularly for our walk? We have certain internal animations for our character. Are you paying attention? So we have the character of God, the character of love, righteousness, and courage. I need to separate that one because of how important it is to our walk in God's purpose. We have the character of love, righteousness, and courage. In this newness of life, part of your internal animations is the character of love, righteousness, and courage.
+What are the things we need to note particularly for our walk? We have certain internal animations for our character. So we have the character of God, the character of love, righteousness, and courage. I need to separate that one because of how important it is to our walk in God's purpose. We have the character of love, righteousness, and courage. In this newness of life, part of your internal animations is the character of love, righteousness, and courage.
 
-What else do we have? Part of our internal animations are the abilities of the supernatural. Are you there? The abilities of the supernatural. We can see, hear, and know in the Spirit. We can speak and do by the Spirit. We can see, hear, and know in the Spirit. We can speak and do by the Spirit.
+What else do we have? Part of our internal animations are the abilities of the supernatural. The abilities of the supernatural. We can see, hear, and know in the Spirit. We can speak and do by the Spirit. We can see, hear, and know in the Spirit. We can speak and do by the Spirit.
 
-So we have internal animations of character, internal animations of supernatural abilities. Internal animations of supernatural character, internal animations of supernatural abilities. Please, are we there, guys?
+So we have internal animations of character, internal animations of supernatural abilities. Internal animations of supernatural character, internal animations of supernatural abilities. Please, are we there
 
 Now let me now wrap the last one. We have external conditions of safety, preservation, deliverance, and the healing power always working in our body. External conditions of safety. Don't forget, internal animation of healing is for your ministering to people. I am saying external conditions of safety, preservation, healing always working in our body.
 
-You are not waiting to be sick for the healing power of God to be put to work. You are a man in whose body the healing power is always working. That's what keeps you. Say, the healing power of God always works in my body from the top of my head to the soles of my feet. My body abhors sickness and disease. My body abhors sickness and disease. It expels them. They can't stay on my body.
+You are not waiting to be sick for the healing power of God to be put to work. You are a man in whose body the healing power is always working. That's what keeps you. the healing power of God always works in my body from the top of my head to the soles of my feet. My body abhors sickness and disease. It expels them. They can't stay on my body.
 
 That's part of the reality of the newness of life. In fact, we can say in this case it is part of the internal animation, but because it's in our body, that's why it is in our body. Our spirit is working in our body that way.
 
@@ -314,24 +314,24 @@ So what are we going to do? How do we walk? This is the answer. Likewise you als
 
 That word reckon is what? It means take into account something you already know. Now you are putting it on record. It is actually to describe our faith-stand, our affirmation. You will change the word from reckon in verse 13 to present yourselves, not as instruments of unrighteousness, but as instruments of righteousness. That means you are standing beside yourself. That word present is the word paristemi, to stand beside yourself.
 
-So you are saying, I'm alive. No, the internal animations in me are of life. They are not of death and darkness. They are not of sin. They are of righteousness. Oh, I am in the newness of life. The power of God is always working in me, working around me, working over me. So you are standing on your realities. I am an embassy of God on the earth. Are you following this? I'm an embassy of life on the earth.
+So you are saying, I'm alive. No, the internal animations in me are of life. They are not of death and darkness. They are not of sin. They are of righteousness. Oh, I am in the newness of life. The power of God is always working in me, working around me, working over me. So you are standing on your realities. I am an embassy of God on the earth. I'm an embassy of life on the earth.
 
 I'm telling you, you can be in a car like this. You are in an embassy of life. Are you not getting what I'm trying to say? You must understand that I am in an embassy of life.
 
-Now, of course, you can extend the graces by faith as you are growing. Are you paying attention here? But you must deliberately mark yourself. I'm in an embassy of life by the Spirit of God. I'm in the newness of life. I'm safe and secure by the power of the Holy Ghost. I'm safe and secure. I'm preserved and delivered at all times. The healing power of God is always working in my body. I'm the healed of God. I'm the healed of God. The life of God is always working in me. Righteousness, love, courage to do all that God has called me to do in his purpose.
+Now, of course, you can extend the graces by faith as you are growing. But you must deliberately mark yourself. I'm in an embassy of life by the Spirit of God. I'm in the newness of life. I'm safe and secure by the power of the Holy Ghost. I'm safe and secure. I'm preserved and delivered at all times. The healing power of God is always working in my body. I'm the healed of God. The life of God is always working in me. Righteousness, love, courage to do all that God has called me to do in his purpose.
 
 We walk in the newness of life by reckoning, by presenting, by affirming, by confessing. We can simply say we walk in the newness of life by faith-stand.
 
 And the primary place of faith-stand, I tell you, is prayer. So what will be my encouragement to you? If you are going to make your walk in the life consistent, you have to have a consistent faith life, which is a consistent prayer life. Make your prayer life consistent.
 
-I can tell you something free of charge. One of the best ways to make your prayer life consistent is to be consistent with corporate prayers, and it will lead to your consistency in private prayers. Are you paying attention here? It is a pattern in God's word. Amen.
+I can tell you something free of charge. One of the best ways to make your prayer life consistent is to be consistent with corporate prayers, and it will lead to your consistency in private prayers. It is a pattern in God's word.
 
-Be consistent with corporate prayers and your consistency in private prayers. So I encourage you, the Pleros prayer watch, join it. Have a consistent faith life, a consistent prayer life. The prayer watch, join it. The podcast, listen to it. You are growing daily, feeding yourself a daily dose of God's word. Is this very clear? Be consistent. Hallelujah. I said, hallelujah.
+Be consistent with corporate prayers and your consistency in private prayers. So I encourage you, the Pleros prayer watch, join it. Have a consistent faith life, a consistent prayer life. The prayer watch, join it. The podcast, listen to it. You are growing daily, feeding yourself a daily dose of God's word. Is this very clear? Be consistent. I said
 
-Thank you, Lord Jesus.
+Lord Jesus.
 
 See, I'm in the newness of life. The external conditions and internal conditions of the life of God are my reality. The external conditions and the internal conditions of the life of God are my reality.
 
-I want us to take just a few minutes and pray for ourselves. You know, just pray for yourself. That means I want you to stand on God's word by faith. I'm in the life of God. I'm in the newness of life. I'm in the newness of life. I'm in the newness of life.
+I want us to take just a few minutes and pray for ourselves. You know, just pray for yourself. That means I want you to stand on God's word by faith. I'm in the life of God. I'm in the newness of life.
 
 Just pray for yourself. Just pray for yourself, affirming, confessing, recognizing, I'm in the newness of life. I'm in the newness of life.

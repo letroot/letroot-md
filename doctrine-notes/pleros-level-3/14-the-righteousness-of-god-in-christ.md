@@ -2,7 +2,7 @@
 
 We are looking at righteousness of God in Christ. Righteousness of God in Christ. I think that is a very important subject matter. But my even greater concern is that people misunderstand what righteousness of God in Christ is.
 
-As I say this, someone can say, What is it about? It is about a righteous nature. Someone else can say, Ah, I have to be careful, because I know people who teach righteousness in a particular way that is not exactly how the Bible teaches righteousness. Some people's view of righteousness is justification, and they are justified in thinking so. Ah, they will be justified in saying so, but it is not wholesome.
+As I say this, someone can What is it about? It is about a righteous nature. Someone else can Ah, I have to be careful, because I know people who teach righteousness in a particular way that is not exactly how the Bible teaches righteousness. Some people's view of righteousness is justification, and they are justified in thinking so. Ah, they will be justified in saying so, but it is not wholesome.
 
 So what we want to do, even though this teaching on righteousness of God in Christ is under our teaching of the newness of life, like it flows from teaching on newness of life, I still want to explain the concept of righteousness in a wholesome way before we zoom in to that particular segment, if I may say it that way.
 
@@ -28,7 +28,7 @@ So I studied a lot then on sin from the Hebrew and the Greek, and I said, Jesus 
 
 There are texts of scripture you can point to to make those kinds of explanations, and it will be fine as a description, but not as the reality of redemption. We have examined that in the teaching of redemption. It will be fine as a description but not as reality, otherwise what you are saying is very dangerous.
 
-So when it says he made him to be sin for us that we might become the righteousness of God in him, notice that the idea of he made him sin is an ontological one, because it is like the person was made to be something. We are talking about a thing. Now, as I am saying that, someone can say, Are you not saying sin nature? No, I am not. But I am trying to show you that the text is speaking about sin, as well as righteousness, more from an ontological point, like a state point, a state of being point, or even a status point.
+So when it says he made him to be sin for us that we might become the righteousness of God in him, notice that the idea of he made him sin is an ontological one, because it is like the person was made to be something. We are talking about a thing. Now, as I am saying that, someone can Are you not saying sin nature? No, I am not. But I am trying to show you that the text is speaking about sin, as well as righteousness, more from an ontological point, like a state point, a state of being point, or even a status point.
 
 So the idea of to be sin is that when we understand what it means to be in a state of sin, it actually begins by being under the reign and bondage of sin. If you have read the teaching on the reality of redemption, we already established that what Jesus became is that he was under the reign of sin, almost like, you can almost use the statement, he went under the reign of sin as though a slave of sin. So that on our behalf, by taking that status, where he is experiencing the effect of it on himself, he can legitimately restore us back to what God wants us to be.
 
@@ -44,11 +44,11 @@ Sometimes in the Greek, when you see the word right, it can be like justified. I
 
 Primarily, correct and not correct are usually about the state of how things are. `2 + 2` is four. Correct. `2 + 2` is five. Not correct. That is a chair. Correct. It is a table. Not correct. Correct and not correct are primarily about the state of how things are.
 
-But it can also move on to conduct. Someone can say, You are a correct human being. This is the way a human being should be, or this is not the way a human being should be. Correct. Not correct. And they are saying you are righteous or you are not righteous. You are not the way a human being should be. Not correct. Not right.
+But it can also move on to conduct. Someone can You are a correct human being. This is the way a human being should be, or this is not the way a human being should be. Correct. Not correct. And they are saying you are righteous or you are not righteous. You are not the way a human being should be. Not correct. Not right.
 
 Righteousness means this thing is correct. This thing is not correct. That is why the legal idea usually comes into righteousness, even though righteousness at its core is ontological. That is what I want you to understand. Even though right at its core is ontological, the legal idea comes into it. It is very ontological. It is also very moral. I can understand why the legal idea comes into it because of that necessary axiom that crosses ontology and morality.
 
-Even when I am saying ontology, if I say this is not how a human being should be, someone can say, According to whose standard? A man should not be dead in sins and trespasses. Who says so? So at that point I am in a moral sphere, a judgment sphere, even though I am making that connection.
+Even when I am saying ontology, if I say this is not how a human being should be, someone can According to whose standard? A man should not be dead in sins and trespasses. Who says so? So at that point I am in a moral sphere, a judgment sphere, even though I am making that connection.
 
 ## The Righteousness of God and Truth
 
@@ -136,7 +136,7 @@ Because Jesus has undergone all that death requires, you are now found not wanti
 
 He is saying God had allowed people to be considered justified even before Christ had done redemption. But because of what he has done in Christ, he has now shown that he was not wrong to have done that.
 
-So, brothers and sisters, righteousness is also legal. And I like the way he shows us here as legal. The fact that Jesus has paid the price that is required existentially by death, if I may use that expression, or better, he has undergone the consequence that is required existentially by death, because if I say paid the price now people start thinking in ransom terms. He has undergone the consequence required essentially by death. Because he has done that, we are now found right. Sin has nothing on us. But also he has made us right.
+So, righteousness is also legal. And I like the way he shows us here as legal. The fact that Jesus has paid the price that is required existentially by death, if I may use that expression, or better, he has undergone the consequence that is required existentially by death, because if I say paid the price now people start thinking in ransom terms. He has undergone the consequence required essentially by death. Because he has done that, we are now found right. Sin has nothing on us. But also he has made us right.
 
 Righteousness is legal. Righteousness is first ontological. Righteousness is legal. And the legal part of righteousness is that if we are ontologically wrong and therefore doing things that are wrong, there is supposed to be a just consequence. Now that consequence, in some theories or descriptions of redemption, will be called punishment, will be called ransom. But because Jesus has dealt with the consequence, which is the best way to describe it, we are now able to come back legitimately to receive life.
 
@@ -172,7 +172,7 @@ Then Ephesians 5:8 onward: "For you were once darkness, but now you are light in
 
 ## What It Means to Say, "I Am the Righteousness of God"
 
-So when we make that statement, "I am the righteousness of God in Christ," you are saying, I have the life of God. Say, I am the righteousness of God in Christ Jesus. You are saying, I have the life of God. I have the nature of God.
+So when we make that statement, "I am the righteousness of God in Christ," you are saying, I have the life of God. I am the righteousness of God in Christ Jesus. You are saying, I have the life of God. I have the nature of God.
 
 The way that is described to us, when we say we are righteousness of God, where we present ourselves as instruments of righteousness in Romans 6, is that we are righteous by nature. It is presented to us from two standpoints: that the flesh has been destroyed entirely, and that the Spirit is now here. So the old man is gone, the new man is here. That is, we have been made righteous.
 
@@ -180,9 +180,9 @@ The old man is what was called wrong. To be dead in sin is what was called wrong
 
 Romans chapter 6, verse 13: "And do not present your members as instruments of unrighteousness to sin, but present yourselves to God as being alive from the dead, and your members as instruments of righteousness to God." See, I am not unrighteous.
 
-There is a way you can say, I do not know why I just feel like always doing this. If you know that feeling is not aligned with righteousness, not aligned with life, not aligned with order, and not aligned with truth, then you do not really feel like doing it in the truest sense of who you are in Christ. You can, in the natural, still say, "I feel like doing that. My desires were like that." But that is not what your desires are in Christ. You must affirm who you are.
+There is a way you can I do not know why I just feel like always doing this. If you know that feeling is not aligned with righteousness, not aligned with life, not aligned with order, and not aligned with truth, then you do not really feel like doing it in the truest sense of who you are in Christ. You can, in the natural, still "I feel like doing that. My desires were like that." But that is not what your desires are in Christ. You must affirm who you are.
 
-Romans 6:13 says do not present your members as instruments of unrighteousness to sin, but present yourself to God as being alive from the dead, and your members as instruments of righteousness to God. Say, I am righteous. He says you present yourself as alive. You see that, life, and as instruments of righteousness. Righteousness is life. I am righteous. My members are instruments of righteousness. I am righteous. My members are instruments of righteousness. I am alive.
+Romans 6:13 says do not present your members as instruments of unrighteousness to sin, but present yourself to God as being alive from the dead, and your members as instruments of righteousness to God. I am righteous. He says you present yourself as alive. You see that, life, and as instruments of righteousness. Righteousness is life. I am righteous. My members are instruments of righteousness. I am righteous. My members are instruments of righteousness. I am alive.
 
 So there are those two sides. We were dead. We were in the flesh. That is gone.
 
@@ -194,13 +194,13 @@ So the righteousness of God means I have life. The righteousness of God means I 
 
 ## Desires, Thoughts, and Ordered Living
 
-Galatians 5:24. So this is what righteousness means. So when we say, Oh, I am standing on the fact that I am the righteousness of God, we are saying I am standing on the fact that I have the life of God, that I do not have the old man, that I am new, that I am dead to sin. I am standing on the fact that I am the righteousness of God.
+Galatians 5:24. So this is what righteousness means. So when we Oh, I am standing on the fact that I am the righteousness of God, we are saying I am standing on the fact that I have the life of God, that I do not have the old man, that I am new, that I am dead to sin. I am standing on the fact that I am the righteousness of God.
 
 I only do ordered things. I do not have disordered behaviors. I do not have disordered conduct. I do not have disordered desires. I only have ordered desires. I do not have disordered feelings, attitudes, conduct, or thoughts. I only have ordered thoughts.
 
-An example of disordered thought is very common in human sexuality. People say, Ah, I do not know, I like a man, or a woman saying I like a woman. Paul called that disordered. You can listen to Truth of Morality for that. If someone finds himself like that, even if he says from birth or whatever, it is time to deal with it. Praise God. There are a lot of things that are evil in this world that people find themselves having. Some can just say, I am just angry. You have to deal with that. That is the flesh.
+An example of disordered thought is very common in human sexuality. People Ah, I do not know, I like a man, or a woman saying I like a woman. Paul called that disordered. You can listen to Truth of Morality for that. If someone finds himself like that, even if he says from birth or whatever, it is time to deal with it. Praise God. There are a lot of things that are evil in this world that people find themselves having. Some can just I am just angry. You have to deal with that. That is the flesh.
 
-So we do not have disordered desires. No, I do not have disordered desires. I do not have disordered thoughts. I do not have disordered attitude. No. I have ordered desires. Ordered desires means I use my sexuality in marriage. This is why I encourage people to marry early as well, if you want to marry. If you do not want to marry, it is okay. But if you want to marry, marry. I am not saying go and make any kind of foolish decision, praise the Lord. But are you paying attention? I do not have disordered desires. I have ordered desires.
+So we do not have disordered desires. No, I do not have disordered desires. I do not have disordered thoughts. I do not have disordered attitude. No. I have ordered desires. Ordered desires means I use my sexuality in marriage. This is why I encourage people to marry early as well, if you want to marry. If you do not want to marry, it is okay. But if you want to marry, marry. I am not saying go and make any kind of foolish decision But I do not have disordered desires. I have ordered desires.
 
 I know this particularly when I talk about legitimate desires like sexuality. It is a legitimate desire, but it must not be disordered. Eating is a legitimate desire, but can be disordered. I know people with disordered eating desires. Have you not seen some? Just eat, eat, eat. That is disorder. They need to stand on God's word. They are dead to sin, to gluttony, and alive to God.
 
@@ -210,13 +210,13 @@ So when we are talking about who we are as the righteousness of God, you start w
 
 I want the life. I want life for other people. I want the good of others, which is, I want life for them. When we say I want to do good, good and life have become so intertwined that we automatically get what we are saying when we say good, or even love. But really the definition of good or love is doing life, giving life, furthering life for others. Do not do something that will damage somebody. What you are saying is, do not do things of death that affect people negatively. You are saying life, the furtherance of life for them.
 
-Say, I am the righteousness of God. From my desires to my thoughts to my attitudes to my words to my conduct, I am the righteousness of God. From my desires to my thoughts to my attitudes to my words to my conduct, to my actions, I am the righteousness of God. My desires are desires of life, desires of truth, desires of order. I do not have disordered desires. I do not have untruthful desires. I do not have desires of death. No. There is life in us. There is hope. Christ is reason for hope. His purpose is reason for hope. Take the challenges as responsibility, as your assignment. Walk at it.
+I am the righteousness of God. From my desires to my thoughts to my attitudes to my words to my conduct, I am the righteousness of God. From my desires to my thoughts to my attitudes to my words to my conduct, to my actions, I am the righteousness of God. My desires are desires of life, desires of truth, desires of order. I do not have disordered desires. I do not have untruthful desires. I do not have desires of death. No. There is life in us. There is hope. Christ is reason for hope. His purpose is reason for hope. Take the challenges as responsibility, as your assignment. Walk at it.
 
 It is a very encompassing reality. When we say righteousness of God, we have his life. It can go even into the supernatural and to love. Even though we always specify love and we like talking about righteousness more to say we do not do the things of the flesh, probably disordered behavior, fleshly conduct, habit, and so on, and we want to separate love, even love is still under righteousness. But I am the righteousness of God. Only the things that are of his life. Only the things that are of his love. Only the things that are of his nature. I am the righteousness of God.
 
 ## Standing by Faith to Walk in Righteousness
 
-What do we do now that we are the righteousness of God? Brothers and sisters, it is good that we know. That is the first part, that we are convinced about the righteousness of God. As we have explained, we see it. Wow. What God considers right is life. Then something went wrong, sin. So legally there is now righteousness, which is that the consequence has been borne and we have been restored. We have been made the righteousness of God in Christ. Now we have that righteousness as our nature and see it in our morality.
+What do we do now that we are the righteousness of God? it is good that we know. That is the first part, that we are convinced about the righteousness of God. As we have explained, we see it. Wow. What God considers right is life. Then something went wrong, sin. So legally there is now righteousness, which is that the consequence has been borne and we have been restored. We have been made the righteousness of God in Christ. Now we have that righteousness as our nature and see it in our morality.
 
 What do we do? What do we do when we know we are the righteousness of God? We stand by faith to walk in it. That is what we do. We stand by faith to walk in it. Primarily, in the place of prayer, we stand by faith to walk in that righteousness.
 
@@ -224,6 +224,6 @@ How do we know that? Several texts. Romans 6:11, reckon yourself to be dead to s
 
 In all regard, we are standing on God's word, presenting yourself. Romans 12:1 and 2: present yourself a living sacrifice. You are not dead. You are alive. A living sacrifice, holy, acceptable unto God, which is your reasonable service. So, as one that is just to serve God, but is alive, a living sacrifice, holy, acceptable unto God, this is your reasonable service.
 
-There are so many texts on that. We stand by faith to walk in it. That is what we do. We stand by faith. Now that we know that we are the righteousness of God, it is not enough to let it remain a title. In the place of prayer and in the place of devotion, you are praying every day. You are putting on. You are getting stronger. You are adorning yourself, your hidden man, as Peter says, with the incorruptible beauty of who you are in Christ. You are putting on, you are putting off. As Paul would say, you put on the new man, you put off the old. I am not this. I am that.
+There are so many texts on that. We stand by faith to walk in it. That is what we do. We stand by faith. Now that we know that we are the righteousness of God, it is not enough to let it remain a title. In the place of prayer and in the place of devotion, you are praying every day. You are putting on. You are getting stronger. You are adorning yourself, your hidden man, as Peter says, with the incorruptible beauty of who you are in Christ. You are putting on, you are putting off. As Paul would you put on the new man, you put off the old. I am not this. I am that.
 
 That is how we walk in the righteousness that we have.

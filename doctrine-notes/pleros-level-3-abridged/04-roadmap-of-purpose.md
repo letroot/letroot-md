@@ -18,24 +18,13 @@ What is the thing that God likes, wants, and decided to have? Ephesians 1:5 says
 
 Now, whenever we talk about God's purpose, God's will, there are certain words we can use to describe it. We have seen `purpose`. We have seen `will`. We have seen `good pleasure`. I want to show us `purpose` itself again in Ephesians 1:11: "In him we have obtained an inheritance, being predestined according to the purpose of him who works all things after the counsel of his will."
 
-There is a lot to say in this issue of the road map of God's purpose, because on one hand I want to show you your own path, but something you cannot miss is God's own path. There is this consistent word, `predestined`. There are people that have argued that it is a mere intention and it could happen or not happen. Brothers and sisters, that is not correct. It is a marking ahead of time. He is setting boundaries ahead of time. It is God's own responses to man's free will until he gets what he wants to get done.
+There is a lot to say in this issue of the road map of God's purpose, because on one hand I want to show you your own path, but something you cannot miss is God's own path. There is this consistent word, `predestined`. There are people that have argued that it is a mere intention and it could happen or not happen. that is not correct. It is a marking ahead of time. He is setting boundaries ahead of time. It is God's own responses to man's free will until he gets what he wants to get done.
 
 When we talk about the road map of God's purpose, there is our part and there is God's part. People can exaggerate either side and have a problem, but both are important. Usually, when we spell out the outline of God's purpose or plan, we say it like this. His purpose is sonship. But the plan by which he is working out that purpose is the entire scheme from the reality of his purpose to how he accomplishes it.
 
-1. God
-2. Good pleasure
-3. Will
-4. Counsel or determination
-5. Purpose
-6. Foreknowledge
-7. Predestination
-8. Election of Christ
-9. Calling
-10. Election of saints
-11. Justification
-12. Glorification
+1. God 2. Good pleasure 3. Will 4. Counsel or determination 5. Purpose 6. Foreknowledge 7. Predestination 8. Election of Christ 9. Calling 10. Election of saints 11. Justification 12. Glorification
 
-Counsel is determination. It is like, okay, I have agreed to do this. After God had the will, then God determined to have it, and that creates purpose. The moment God has determined that this is what he will have, it has become his purpose. Do you know what follows next? Foreknowledge. The moment you understand these dynamics, it changes how you live and how you walk in God's purpose.
+Counsel is determination. It is like, I have agreed to do this. After God had the will, then God determined to have it, and that creates purpose. The moment God has determined that this is what he will have, it has become his purpose. Do you know what follows next? Foreknowledge. The moment you understand these dynamics, it changes how you live and how you walk in God's purpose.
 
 ## All Things Work Together for Good
 
@@ -47,17 +36,15 @@ On one hand, if something bad happens, even something like a death we feel shoul
 
 The fulfillment of God's purpose means we have a glorified body, there will be new heavens and a new earth, but there is also the fulfillment of God's purpose for your life, and this God's part of the equation is very important to you. Something like the church you are in, do you know that it is a dynamic of foreknowledge, predestination, and election for that to happen? The family you are born into, whether believers or unbelievers, is part of the dynamics of foreknowledge, predestination, and election in God's purpose.
 
-Let me read verse 28 again and then into verses 29 and 30. We know that all things, all things, work together for good. There is that confidence I always have. Sometimes you face experiences and you are annoyed in life. You are asking, what is going on? Why did this happen? Why did that happen? But we know that all things work together for good.
+Let me read verse 28 again and then into verses 29 and 30. We know that all things, all things, work together for good. There is that confidence I always have. Sometimes you face experiences and you are annoyed in life. You are asking, what is going on? Why did this happen? But we know that all things work together for good.
 
 I really believe that this truth about the working out of God's purpose via his plan is a core part of the miraculous. If you align in faith, there might be rough patches here and there, but you will see evidence that makes no sense apart from literally God's working step by step in your life.
 
 The two descriptions in Romans 8:28 are describing people that believe, and that shows us another part of the principle. Whilst the general principle applies for salvific faith, the second kind of faith makes for the application of that principle in our walk in God's purpose. If a man does not walk by faith after he has been saved, all things will still work together for good in terms of glorification, new heavens, and new earth. But if that same principle is to apply in his walk in God's purpose, then the person walking by faith is aligned with God, and that means sincerity, repentance, and alignment with God.
 
-Walking by faith should be sincere. You may have made mistakes sometime. Say, Lord, I am sorry, I made a mistake. You may even need to apologize to people. If a man is walking that way, then when he repents it is part of God's orchestration. He is going to use even the mistake. He is going to use the repentance. But if you are walking in unrepentance, you are aiding another kind of orchestration. You are aiding the orchestration of the enemy. That is something you must be aware exists.
+Walking by faith should be sincere. You may have made mistakes sometime. Lord, I am sorry, I made a mistake. You may even need to apologize to people. If a man is walking that way, then when he repents it is part of God's orchestration. He is going to use even the mistake. He is going to use the repentance. But if you are walking in unrepentance, you are aiding another kind of orchestration. You are aiding the orchestration of the enemy.
 
-Let me give you an example. Let us say you were not expecting a situation. You did not plan for it. You wanted that thing later, and now it happens. We know that all things work together for good. That means you should not start doubting at that point. Does God know? Yes. Then he has to act consistently with his own nature.
-
-I always believe that in my work with him. God, it was not me that called myself. I was not even a Christian before, so it was not on my radar to be a pastor. I had my own business. I have given up literally everything for you. So once you say do this, I am sure you are going to back it up. As long as it has happened, because you foreknew and I am in faith, you have to find a way to provide and ensure that it is done.
+If something happens that you were not expecting and did not plan for, do not start doubting at that point. Does God know? Yes. Then he will act consistently with his own nature. As long as he foreknew and I am in faith, he will find a way to provide and ensure that what he wants is done.
 
 Even though in this road map of purpose we will talk a lot about man's path, you must always be seeing that there is God's part of the equation in the walk in his purpose. As long as God foreknows, and he has power, and I am in faith, his power will work.
 
@@ -69,11 +56,9 @@ So proper reasoning there is that all things are working together because he for
 
 The fulfillment of what is in sonship is part of what he foreknows and predestines. He arranged events, and he will arrange events in that light. But I am telling you, a lot of man's part is in this thing. There is a mistake people can make here and just say it is God's part, God's part. There is a lot of man's part in this equation.
 
-Let me give you an example. If you read the same Bible, you will see that Samuel told Saul by revelation that God would have established a kingdom forever. This statement is so strange because, looking at it from one angle, God had already told us from Jacob that it is through Judah, yet he is telling Saul that he would have established a kingdom forever. Which means we sometimes do not understand when God is speaking at a time. That is because he has already allowed man's free will through all time.
+Take Saul as an example. Samuel could tell him that God would have established his kingdom forever, even though from another angle we know the Judah line. That shows that we do not always understand how God's foreknowledge relates to the full play-out of human free will. He has already seen the whole play-out and can speak into moments truthfully.
 
-You say, how can he be telling him that when he had already said earlier that it is Judah? That is your own perspective from a forward-counting view of time. Maybe for him it is just one block of time. He has allowed the play-out of all the events of human free will. It is difficult to conceive because you ask, is he imagining what free will will do, or he knows? This is God, so you cannot say he is imagining. He is in the whole play-out where man's responses are agreeing with him, and he has seen who and exactly how and what will get it done. He can now start speaking to you by word of wisdom at any given time. He can still tell someone what philosophers call a counterfactual, that in the normal event of things he would have established the kingdom with you forever. But because you have done this.
-
-Let me say something, guys. Do not live in unrepentance and do not walk in the flesh. It is the fastest way to have a wrong orchestration. If you walk in the flesh, you are going to create another event entirely because you are partnering with the other side of the spiritual world.
+Let me say something,. Do not live in unrepentance and do not walk in the flesh. It is the fastest way to have a wrong orchestration. If you walk in the flesh, you are going to create another event entirely because you are partnering with the other side of the spiritual world.
 
 ## Predestination, Calling, Justification, Glorification
 
@@ -81,18 +66,7 @@ Romans 8:29-30 says, "For whom he foreknew, he also predestined to be conformed 
 
 So let me give you the outline again:
 
-1. God
-2. Good pleasure
-3. Will
-4. Counsel or determination
-5. Purpose
-6. Foreknowledge
-7. Predestination
-8. Election of Christ
-9. Calling
-10. Election of saints
-11. Justification
-12. Glorification
+1. God 2. Good pleasure 3. Will 4. Counsel or determination 5. Purpose 6. Foreknowledge 7. Predestination 8. Election of Christ 9. Calling 10. Election of saints 11. Justification 12. Glorification
 
 What is predestination about? Predestination is always about God's desired result. The initial desired result of God is sonship. The second result of God is also called sonship. Do you know that the glorification of our body is called sonship again? Because it is within sonship that our bodies must be glorified.
 
@@ -100,13 +74,13 @@ Look at Romans 8:23: "We ourselves groan within ourselves, eagerly waiting for t
 
 Whenever we say he predestined us to sonship, he predestined us to be conformed to the image of the Son. That image of the Son might be the glorified body of the Son. It might be the nature of the Son that we already have. It might be the fulfillment of sonship that he also had in his earthly work. But when you ask, what is God predestining to, God is never predestining to your own outcome. He is always predestining to his own outcome. Your alignment with that is a different thing. The meaning of predestination is that he has already predestined this world to his own eventual outcome.
 
-Do you know what is now good for you? Find out his eventual outcome and align with it in your own part. Predestination has already happened. You can say predestination to salvation, and you are right. You can say predestination to glorification, and you are right. Which means every step in between is for you to ensure that you are part of that, because when he predestined he did not tamper with your free will. If he knows that you did not do it, that is a matter of your own free will. Better ensure that your free will is in that alignment.
+Do you know what is now good for you? Find out his eventual outcome and align with it in your own part. Predestination has already happened. You can say predestination to salvation, and you are right. Which means every step in between is for you to ensure that you are part of that, because when he predestined he did not tamper with your free will. If he knows that you did not do it, that is a matter of your own free will. Better ensure that your free will is in that alignment.
 
 Imagine that in someone's agreement with God, he has to do a natural assignment that is going to be useful for the mission of the church or for some general blessing he will still be judged for at the end, and the person does not do it. God has already predestined that adoption as sons will happen, which requires the fulfillment of his mission. So it means that what that person does not do, someone else will still do it, believer or unbeliever. Even if a person does it inspired by greed, God will still use it.
 
 What he wants to happen is already out there. Salvation is guaranteed. The eventual one is guaranteed. But the one for your life requires partnership. The assured things are salvation and glorification. The one in between is about individuals who have free will, and God is not bent on bending their will. Those ones are not assured, but he is bent on seeing what he wants happen. Is he going to bend people's will? No. It means he will not stop offering what he wants to happen until it eventually happens. The only thing that can happen is delay. What cannot happen is failure of what he wants.
 
-We can see that in Scripture. For example, Moses wasting time, not intentionally, which is why God was patient with him. He was not unrepentant about it. It just happened circumstantially that things were not rightly aligned. So sometimes if you experience delay, yes, you can feel bad about it, but it is okay as long as you are sincere, you are not in unrepentance, and you are walking in the Spirit.
+We can see that in Scripture. For example, Moses wasting time, not intentionally, which is why God was patient with him. He was not unrepentant about it. It just happened circumstantially that things were not rightly aligned. So sometimes if you experience delay, yes, you can feel bad about it, but it is as long as you are sincere, you are not in unrepentance, and you are walking in the Spirit.
 
 ## Election, Calling, and Your Personal Walk
 
@@ -118,11 +92,11 @@ Then there is election of saints, those who believe, which is by faith. Then the
 
 Even after you have entered into it by election, and God has called you, maybe you are supposed to be in this local church, you are supposed to be doing this particular work, and you have accepted it, there is still righteousness. There is still you walking right while at it. That is why sincerity, repentance, and faith are very important, and that is what is going to bring about glorification. You fulfill your assignment.
 
-This is the outline of God's purpose and plan. We must be aware of it if we are going to walk in it. There is the God side of the equation. Never think the two things guaranteed on God's side automatically make your own fulfillment in God's purpose guaranteed. Salvation and glorification, yes. But your fulfillment of God's purpose has many steps of Scripture to show that it is not guaranteed. That one involves your receiving the calling and then walking in righteousness.
+This is the outline of God's purpose and plan. We must be aware of it if we are going to walk in it. Never think the two things guaranteed on God's side automatically make your own fulfillment in God's purpose guaranteed. Salvation and glorification, yes. But your fulfillment of God's purpose involves receiving the calling and then walking in righteousness.
 
 Let me say this. The simple path to fulfilling God's purpose is sincerity, repentance, and faith. Do not let people mess up your heart. It will cost you, no matter who. No matter how offended you feel, and sometimes you might even be justified, do not let people mess up the state of your heart, your sincerity, repentance, and faith. Even if you think you are fulfilling God's purpose, you will not be fulfilling it if your heart is wrong. It is better to deliberately reset your heart and put it in the right place.
 
-Honestly, I am saying it out of general concern, because people talk as if I had some grand sinister plan. I do not have anything like that. I used to wonder, am I that much of a genius that they think I planned everything? There is God's orchestration. Was I alive before I was born? Did I say so that my life will work out well I will be born into a Muslim family, then at a point I will become an atheist, and then we will make the story very sweet? How would it have happened? It just so happened, every single step, even meeting people, how this person started, that led to this. It is very weird. It is orchestration.
+Honestly, I am saying it out of general concern. There is God's orchestration. Many steps in life that look too strange to have been self-arranged are evidence of it.
 
 So please, if you lose your sincerity, repentance, faith, or faithfulness, ensure that your heart is right. Do not mess up your heart because of any reason, whether justifiable or not. Preserve it so that you can actually fulfill God's purpose for your life.
 
@@ -136,15 +110,11 @@ So if every day and every week you do not have a sense that this new day in God'
 
 ## A Race to Finish
 
-Acts 20:24 says, "None of these things move me, nor do I count my life dear to myself, so that I may finish my race with joy, and the ministry which I received from the Lord Jesus, to testify to the gospel of the grace of God." That is the idea of purpose. There is something set before you. You want to get there. He uses the word `race` to describe it.
-
-The Lord Jesus had the same idea. John 4:34: "My food is to do the will of Him who sent Me, and to finish His work." Again, they did not use the word `purpose` there, but it still has that idea because to do his will means there is something to finish. John 17:4: "I have glorified You on the earth. I have finished the work which You have given Me to do."
+Acts 20:24 says, "None of these things move me, nor do I count my life dear to myself, so that I may finish my race with joy, and the ministry which I received from the Lord Jesus, to testify to the gospel of the grace of God." That is the idea of purpose. There is something set before you. You want to get there. He uses the word `race` to describe it. The Lord Jesus had the same idea in John 4:34 and John 17:4: to do the Father's will and finish his work.
 
 Do you see that word `glorified`? If you walk in righteousness, then there will be glorification. He is saying, I have glorified you on earth. I have finished the work you gave me to do. In that, he gets his glorification. God himself becoming man became the model of the walk in his purpose. When God calls you, he has his election for you, he calls you, you accept it, but you now walk in righteousness to fulfill it and be glorified.
 
-That is why I do not like when people describe God's purpose too narrowly. You can explain it as God being glorified, or as knowing Jesus and making him known, but I still think it is best to present it as sonship. Then you can see natural assignment and spiritual assignment more clearly.
-
-Second Timothy 4:6-8 says, "I am already being poured out as a drink offering, and the time of my departure is at hand. I have fought the good fight, I have finished the race, I have kept the faith." You cannot remove this thinking from Scripture. There is a race. I finished the race. I kept the faith. That can refer to the message, but it can also point us to righteousness and faithfulness.
+That is why I do not like when people describe God's purpose too narrowly. It is best to present it as sonship. Then you can see natural assignment and spiritual assignment more clearly. Second Timothy 4:6-8 confirms the same thinking: there is a race, and there is keeping the faith.
 
 ## Run With Endurance
 
@@ -154,9 +124,9 @@ But the principle of that working of God's purpose and plan applies to all human
 
 Hebrews 12:1 says, "Therefore we also, since we are surrounded by so great a cloud of witnesses, let us lay aside every weight, and the sin which so easily ensnares us, and let us run with endurance the race that is set before us." Witnesses of who? People who have walked in God's purpose. People who have run the race. By faith.
 
-Faith always involves sincerity, but it is not perfection. David made a mistake. Sometimes you can walk and then later say, maybe I should not have done that. But we are surrounded by a great cloud of witnesses. Let us lay aside every weight. Lack of faith. Not walking in faithfulness. And the sin that easily besets. Let us run with endurance the race.
+Faith always involves sincerity, but it is not perfection. David made a mistake. Sometimes you can walk and then later maybe I should not have done that. But we are surrounded by a great cloud of witnesses. Let us lay aside every weight. Lack of faith. Not walking in faithfulness. And the sin that easily besets. Let us run with endurance the race.
 
-Why was he saying that to the people there? He was saying it with two intentions. To the people that do not believe: you cannot walk with God without faith. But he also had believers in view. He is telling them that people walked by faith despite opposition. Do not get into doubt, unbelief, compromise. Lay aside everything. Give yourself totally in faith to this. That is how you win.
+Why was he saying that to the people there? Because whether they were unbelievers or believers under pressure, the point was the same: do not get into doubt, unbelief, or compromise. Give yourself totally in faith to this.
 
 He showed us people that had victories, and he also showed us people that had what to the world may be termed defeat. But it was borne out of the pursuit of God's purpose. We must be honest. There is a part of it where the answer is, we do not know, but we stay in faith.
 
@@ -168,11 +138,11 @@ And yes, the writer of Hebrews was talking about walking in God's will despite p
 
 Hebrews 12:2 says, "Looking unto Jesus, the author and finisher of our faith." The nature of the Christian life is that there is a race set before us. The great cloud of witnesses are also people who had the race set before them. Looking unto Jesus, the author and finisher of faith, means the journey of faith.
 
-We saw that the Lord himself, God himself become man, fulfilled it. He had his purpose. He knew there would be sin. He wanted to redeem. He is the finisher of faith. How many times does he finish faith? You can think about it in two ways. What is the first part of finishing faith? Salvation. What is the second part? Glorification. Which one was being talked about there? Glorification.
+We saw that the Lord himself, God himself become man, fulfilled it. He had his purpose. He knew there would be sin. He wanted to redeem. He is the finisher of faith. How many times does he finish faith? You can think about it in two ways. What is the first part of finishing faith? Salvation. What is the second part? Glorification. Which one was being talked about there?
 
 Remember the beginning of that discussion in Hebrews 10:38-39: we are not of those who draw back to perdition but of those who believe to the saving of the soul. And that saving of soul is the glorification of our body. We have seen him do it in his earthly work. We have seen him do it about salvation. He will do it also about glorification. We are taught to walk in faith.
 
-So do not think of faith here as some small side issue. It is the mode of the journey itself. The way we walk in God's purpose is by faith. The way we continue when we do not fully understand is by faith. The way we continue after a mistake, with repentance, is by faith. The way we continue through delay is by faith. The way we continue through opposition is by faith. The way we continue until the end is by faith.
+So do not think of faith here as some small side issue. It is the mode of the journey itself. The way we walk in God's purpose is by faith. The way we continue when we do not fully understand is by faith. The way we continue after a mistake, with repentance, is by faith. The way we continue through delay is by faith. The way we continue until the end is by faith.
 
 ## Joy Set Before Us
 
@@ -192,8 +162,7 @@ Let us start with Romans 8:16. Sonship is God's purpose, and we have received th
 
 So we are seeing two realities that make up sonship:
 
-1. Child of God
-2. Heir of God
+1. Child of God 2. Heir of God
 
 Everything we want to talk about in God's purpose can be summed up in those two things: child of God and heir of God.
 
@@ -205,9 +174,7 @@ Number two, we are supposed to walk in our nature. Number three, we are supposed
 
 So we can say three things make up being a child of God:
 
-1. Fellowship with God
-2. Walking in our character
-3. Walking in our nature
+1. Fellowship with God 2. Walking in our character 3. Walking in our nature
 
 Now notice this carefully. For the child part of the equation in God's purpose, there is not as much a road map as there is something to be maintained. Every step of this journey, you are meant to maintain fellowship, walk in character, and walk in nature. That one is simple and constant.
 
@@ -219,9 +186,7 @@ Now there is the second side, heirs of God. In the general Scripture context, be
 
 Turn to 1 Corinthians 7. There must be that mentality in believers about God's orchestration or providence. First Corinthians 7:17 says, "But as God has distributed to each one, as the Lord has called each one, so let him walk." Do you see the outline of God's plan here? As God has distributed to each one, as God has called each one, let him walk.
 
-What is this issue of distribution? It is election. He has distributed or apportioned to each one. Whatever God has called you to, walk in it. At that point the actual issue in the text was marriage. He was telling them that ordinarily we are to marry believers, but if you had already married an unbeliever before you got saved, God knew.
-
-It also touches identity and natural estate. If you were circumcised, no big deal. If uncircumcised, no big deal. God knew. You are male, you are female, God knows. It even touches unusual complications. We are meant to marry believers and be monogamous, but if someone gets born again and is already in a complicated situation, as God has distributed to him, as God has called him, let him walk. The only problem may be limits in certain forms of leadership because of the example. But you must not throw away the truth of God's word.
+What is this issue of distribution? It is election. He has distributed or apportioned to each one. Whatever God has called you to, walk in it. At that point the actual issue in the text was marriage. He was telling them that ordinarily we are to marry believers, but if you had already married an unbeliever before you got saved, God knew. It also touches identity and natural estate. If you were circumcised, no big deal. If uncircumcised, no big deal. God knew. The principle is that God knows your starting point.
 
 The principle is: God knows your steps. There was a time you did not know about God's purpose at all, and he knew that you would know about his purpose and be in this situation. You will now start to appreciate your natural assignment at this time. That is where he wants you to start walking from. So the first truth in the road map of purpose as touching natural assignment is: start where you are.
 
@@ -233,33 +198,25 @@ Sometimes someone's vision and ambition may need to be expanded. In some cases i
 
 First Corinthians 7 goes on: "Were you called while a slave? Do not be concerned about it; but if you can be made free, rather use it." So the first truth is start where you are. The second one is use opportunities.
 
-These ones are not things already fixed by nature. They are opportunities. If you can be made free, use it. Do not be the kind of person that does not take advantage of opportunities. He did not say, if you can be made free, God must speak a voice to you before you use it. Of course, always be open to the leading of the Spirit. But the ordinary disposition should be that this is an opportunity, use it.
+These ones are not things already fixed by nature. They are opportunities. If you can be made free, use it. Do not be the kind of person that does not take advantage of opportunities. He did not if you can be made free, God must speak a voice to you before you use it. Of course, always be open to the leading of the Spirit. But the ordinary disposition should be that this is an opportunity, use it.
 
-Not that you are always waiting for every i to be dotted and every t to be crossed. Otherwise you sabotage yourself by self-doubt. He said, use it. Who knows? It might work. It might not work. Use it. Take a risk. Everything in this life is a risk anyway. Naturally, you do not know anything with absolute certainty. All we do is trust God.
+Not that you are always waiting for every i to be dotted and every t to be crossed. Otherwise you sabotage yourself by self-doubt. He said, use it. Take the opportunity while still trusting God.
 
 So if you can be made free, use it. This means the believer's heart should have an eye for opportunities. Your heart should be trained for opportunities. You should be able to interpret and understand by wisdom opportunities. That means clarity, wisdom, thinking through.
 
 ## Natural Assignment: Pursue Your Desires
 
-The third step is pursue your own desires. Unlike spiritual assignment, natural assignment allows for the liberty of your desires in what you pursue. Look at 1 Corinthians 7:29-31, especially the end of it: "Those who use this world as not misusing it." Do you notice? They are the ones using it. It is talking to believers. There is a liberty there. So the third step is pursuing your own desires.
+The third step is pursue your own desires. Unlike spiritual assignment, natural assignment allows for the liberty of your desires in what you pursue. First Corinthians 7:29-31 shows that there is a liberty there.
 
-If you notice, these unfold one by one. Many times you start with constraint. Not everybody does, but many do. Another person may begin from slavery or lack. But generally it unfolds like this:
+If you notice, these unfold one by one. Many times you start with constraint. But generally it unfolds like this:
 
-1. Start where you are.
-2. Take advantage of opportunities that come to you.
-3. Use this world. Pursue your desires within righteousness.
+1. Start where you are. 2. Take advantage of opportunities that come to you. 3. Use this world. Pursue your desires within righteousness.
 
-You say, I do not know what to do. Are you sure you do not know what to do of all the things in your hand? Or are you blind to opportunities? Part of God's word is that you are supposed to use opportunities.
-
-For the form of this world is passing away. That means do not be too attached to the world. First Timothy 6:17 says, "Command those who are rich in this present age not to be haughty, nor to trust in uncertain riches but in the living God, who gives us richly all things to enjoy." So he said we have all things to enjoy. Let them do good, be rich in good works, ready to give, willing to share. You are at liberty to use the world and even enjoy the world. God is not against you enjoying the world. He is against greed.
+If you say you do not know what to do, ask whether you are missing the opportunities already in your hand. Part of God's word is that you are supposed to use opportunities. Do not be too attached to the world. God is not against enjoyment. He is against greed.
 
 ## Natural Assignment: Be Open to the Spirit
 
-Number four: be open to the leading of the Spirit. There is nothing in a believer's life where he is not supposed to be open to the leading of the Spirit. We can see it from narrative in Scripture. God led people on natural things. He told Abraham, get out of this place. He told Isaac, do not go anywhere, sow in this land. He told Jacob to do this and that.
-
-Sometimes it can be to caution you. Sometimes it can be to steer you. God can show you a vision. These things have happened and they are still happening. If you have closed it in your mind via doctrine, it is not that God will not be sending things to you. It is that you will not be receiving, and that would be unfortunate.
-
-Why cannot God speak to you about natural assignment? For goodness' sake, who called you to do natural assignment? Did he not put you in a world where you have natural assignment even for survival? It is not that he always does in the same dramatic way. He has already spoken by his word, by the direction of his word. But you must now be open to the leading of the Spirit, whether an inward witness, still small voice, sight and sound, some visual impression. Be open.
+Number four: be open to the leading of the Spirit. There is nothing in a believer's life where he is not supposed to be open to the leading of the Spirit. Scripture shows God leading people on natural things. He may caution, steer, or direct. He has already spoken by his word, but you must still be open.
 
 ## Natural Assignment: Maximum Productivity
 
@@ -279,7 +236,7 @@ Does it mean they should only talk the gospel online? No. There are things I see
 
 And even beyond broad public posting, there is also the simple flow of the Spirit between people. Sometimes not every ministry expression is, let us all gather and minister formally. Sometimes you just have a word for a person. Sometimes God just tells you to text somebody. Sometimes he tells you to tell someone something specifically, and that is it. If you shut your mind to only one expression, you will miss many other expressions of ministry that are very real.
 
-You can share on Twitter one day. Share on TikTok. Do a video. I have seen people like that online. They are not pastors and they are sharing the gospel. Some people will listen to you. And yes, sometimes you wake up in the morning and God says, text this person and say such and such, and it turns out that was exactly what was going on. If you do not know that is part of it, you will miss many opportunities.
+You can share on Twitter one day. Share on TikTok. Do a video. I have seen people like that online. They are not pastors and they are sharing the gospel. Some people will listen to you.
 
 Go. Seek every avenue. Do not reduce ministry to one narrow thing. Yes, serve in church. Yes, be discipled in church. Yes, communicate the word in ordered ways. But also recognize that the Spirit can flow in those smaller moments.
 
@@ -289,13 +246,9 @@ So first: commitment. Second: seek every avenue of communicating God's word. Thi
 
 Fourth: evangelize. Evangelism is that you are preaching the message unto salvation to any and everybody. Then disciple those who are recipients. If you see an avenue you can afford to put the word on, and it is righteous and not offensive, put it out there.
 
-I do not like when people present the gospel in an offensive manner. Sometimes they think they are helping the gospel. They are not. There was something someone did. It was quite a bold move, and people were commending his boldness. I was so happy when I started watching the video. I thought, wow, this is what I should be doing. But as I went on, the manner in which he went about it was offensive. It was counterproductive.
+I do not like when people present the gospel in an offensive manner. Sometimes they think they are helping the gospel. They are not. You can be bold without being offensive. You can confront error without a fleshly spirit. You can disagree without contempt. You can preach Christ without sounding like you enjoy humiliating the hearer.
 
-You can be bold without being offensive. You will just be creating hardness of heart for people if you are offensive. You do not need to speak to people as if you are attacking, insulting, or denigrating them or what they believe. Rise up to the occasion. Do it at a better level. You can confront error without a fleshly spirit. You can disagree without contempt. You can preach Christ without sounding like you enjoy humiliating the hearer.
-
-That is why you must always leave avenues for people to be able to get back to you. Someone can come to your DM or send you a message. Need further help, call this number. That is now discipleship. If it is direct, your discipleship is that you stay with the person until the person commits or pushes you away. And even if someone needs some distance, you do not have to be harsh. You can say, if you need peace for a while, that is okay, but keep listening, and after a while maybe you will see me again. That kind of heart shows you have faith in God.
-
-Do not act as if once a person withdraws a bit, that means everything is over. Sometimes wisdom is to give a little space while keeping a gentle avenue open. That itself can be part of discipleship.
+That is why you must always leave avenues for people to be able to get back to you. Someone can come to your DM or send you a message. Need further help, call this number. That is now discipleship. If someone needs some distance, you do not have to be harsh. Sometimes wisdom is to give a little space while keeping a gentle avenue open.
 
 ## Spiritual Assignment: Serve Unto Leadership
 
@@ -303,10 +256,8 @@ The fifth step is serve in the local church unto leadership. Very key. Our spiri
 
 ## Closing Exhortation
 
-The road map of God's purpose, we have seen it. Maintain what you are supposed to as a child of God. As a child of God, what do you maintain? Fellowship with God, walk in character, walk in nature.
+The road map of God's purpose, we have seen it. Maintain what you are supposed to as a child of God: fellowship with God, walk in character, walk in nature.
 
-But for natural assignment and spiritual assignment, do what God has called you to do, and let it unfold. Natural assignment. Spiritual assignment. Let it unfold.
-
-Brothers and sisters, now that you know the road map of God's purpose, pursue it. Pursue it with purpose of heart. Pursue it as a race. Pursue it with faith. Pursue it with sincerity. Pursue it with repentance. Pursue it with a guarded heart. Pursue it with an eye for opportunity. Pursue it with openness to the Spirit. Pursue it with productivity. Pursue it with compassion, not competition. Pursue it with joy set before you.
+But for natural assignment and spiritual assignment, do what God has called you to do, and let it unfold. Now that you know the road map of God's purpose, pursue it with purpose of heart, faith, sincerity, repentance, a guarded heart, an eye for opportunity, openness to the Spirit, productivity, compassion, and joy set before you.
 
 We are going to see spiritual growth, the capacity to bear it, in the next teaching. God bless you.

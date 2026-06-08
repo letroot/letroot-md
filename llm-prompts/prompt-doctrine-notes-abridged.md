@@ -8,6 +8,7 @@ Instructions:
 - Do NOT add interpretation sections such as Key Insights, Action Items, Commentary, Study Notes, Prayer Points, or takeaways unless explicitly requested.
 - Preserve the speaker's real teaching, argument, definitions, distinctions, scripture movements, and practical implications.
 - Keep the output transcript-shaped and faithful to the original line of argument.
+- Remove non-substantive spoken interaction markers and audience-address phrases when they do not carry doctrinal content, such as `are we together`, `are you there`, `pay attention`, `brothers and sisters`, `all right`, `amen`, `glory to God`, `hallelujah`, `somebody say`, and similar expressions.
 - Compress repeated restatements, filler transitions, setup chatter, room-management talk, mic checks, repeated audience checks, and other non-essential transcript drag.
 - Remove transcript noise, timestamps, markup, subtitle artifacts, speaker-label clutter, duplicate lines, and obvious caption/transcription errors.
 - When a missing, broken, or clearly wrong word can be recovered with high confidence from the immediate and broader thematic context, restore or correct it.
@@ -16,6 +17,7 @@ Instructions:
 - Do not guess at uncertain words, especially specialized terms, names, or Greek expressions; if the intended wording is not reasonably clear from context, preserve the safest readable form instead of inventing content.
 - Keep representative quotations, major examples, long-form explanations, and scripture-based argument chains where they carry real doctrinal weight.
 - If multiple examples make the same point, you may compress by keeping the strongest representative example rather than every repetition.
+- Remove exhortative repetition aggressively when it does not add new content.
 - Break the text into natural, readable paragraphs.
 - Insert descriptive, content-based `## Heading` sections where the topic clearly shifts.
 - Keep headings specific to the content, not generic.
@@ -24,7 +26,7 @@ Instructions:
 - The final result should feel like a faithful abridged transcript, not a summary.
 
 Compression target:
-- Aim for roughly 45% to 70% of the source transcript length.
+- Aim for roughly 40% to 60% of the source transcript length.
 - If the output is much shorter than that, it is probably over-compressed.
 - If the output is much longer than that, it is probably not abridged enough.
 

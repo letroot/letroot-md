@@ -1,6 +1,6 @@
 # True Worship
 
-All right guys, we are looking at level three now. This is still true temple, true worship. Sorry, true worship. There is the teaching true temple worship. You can also listen to that. But the title of this one is true worship.
+we are looking at level three now. This is still true temple, true worship. Sorry, true worship. There is the teaching true temple worship. You can also listen to that. But the title of this one is true worship.
 
 The reason why it is different is that whenever we talk about prayer, we often limit prayer to speech. Many times people limit prayer to speech. We are talking to God, and I think it makes sense that we do that. So we would have that idea when we are talking about prayer, that it is just about speech. But worship seems to encompass more or extend beyond speech. Worship may be seen as a more dynamic and encompassing interaction with God beyond speech.
 
@@ -12,7 +12,7 @@ All those extra theology are our own imputations. I am trying to help us underst
 
 The reason why they are essentially the same is because by the time you look at the very words, you see that they are speaking to the same thing. The word prayer we already saw is a word like `proseuche` or `proseuchomai`, whilst the word worship is `proskuneo`. So `proskuneo`, that word, is from two words, like the word prayer we also saw two words. The word `pros`, and the other word `kuneo`, is used for dogs and the act of a dog licking someone. When a dog is licking someone, it is out of love, probably its boss or master, or owner rather, and there is that sense of endearment, out of love, out of submission. The dog is licking, showing affection.
 
-Now I have given that general background to how we are using the term, because the term may be used in different ways, but this is how we are choosing to use the term. Amen.
+Now I have given that general background to how we are using the term, because the term may be used in different ways, but this is how we are choosing to use the term.
 
 Probably another thing I should say at the foundation, because I have made this connection between prayer and worship, is that worship is also a matter of purpose, since we are seeing that the life of purpose is a life of prayer. We are invariably also saying that the life of purpose includes, maybe I should say in this case, a life of worship. We may not necessarily say worship fulfills everything that purpose entails for prayer. Prayer fulfills everything that purpose entails, whether child of God, hearer of God's mission, everything is directly connected with prayer in the sense in which we are talking about prayer. But if we now say prayer is part of worship, you can say yes. Just understand worship as this more dynamic and encompassing part of interacting with God, entailing things like music, sacrifices, actions like dancing, rejoicing, laughing, celebrating, all the things that are entailed.
 
@@ -30,7 +30,7 @@ Even saying the Father changes many things for her. I am sure she is not used to
 
 Now verse 23: "The hour is coming, and now is, when the true worshipers will worship the Father in spirit and in truth." That statement, in spirit, is answering the question about the place of worship. The woman brought up the place of worship first. We worship here, you worship there. Where are we supposed to worship? He said you will neither worship there in Jerusalem nor on the mountain. That is not where you are going to worship the Father.
 
-Now the use of truth here is different from maybe the typical use of truth. He is not saying people have been worshiping God falsely, in this case. There is a use of truth that can be truth versus false. But the use of truth here is reality versus depiction. Amen.
+Now the use of truth here is different from maybe the typical use of truth. He is not saying people have been worshiping God falsely, in this case. There is a use of truth that can be truth versus false. But the use of truth here is reality versus depiction.
 
 And they take blood and they sprinkle it. Is that the true sanctification that is required to come before God? No. It is the work of redemption that sanctifies us. So he is saying a lot of your worship has been in depiction. It is not that you are worshiping a false god. Here it is still the true God, but in depiction, not in reality. Now I am calling you to worship in truth, in reality, as it really is.
 
@@ -60,7 +60,7 @@ That means in the spirit there are other places, or essentially we can say there
 
 It is the same way when he talks about the temple of idols in contrast with the temple of God as a spiritual place. 2 Corinthians chapter 6 and verse 16: "What agreement has the temple of God with idols?" He is actually saying there is the temple of God and there is the temple of idols. "For you are the temple of the living God. For God has said, I will dwell among them. I will dwell in them and walk among them. I will be their God, and they shall be my people."
 
-So it says where God dwells is in us, the believing ones, in the spirit. That is where he dwells. It is in us, the believing ones, in the spirit. Thank you, Lord Jesus.
+So it says where God dwells is in us, the believing ones, in the spirit. That is where he dwells. It is in us, the believing ones, in the spirit. Lord Jesus.
 
 ## Zion and the Dwelling Place of God
 
@@ -80,7 +80,7 @@ So imagine now, to make up this building that we are in, there are many spaces. 
 
 I want to show you the implication. If we collectively make up the Father's house, what is happening to us individually? John 14:21-23. Individually it means the Father and Son are with each one of us.
 
-So individually the Father and the Son are making their home with you. No matter where you are, the Father and the Son are making their home with you. Collectively we make up the house of God. Hallelujah.
+So individually the Father and the Son are making their home with you. Collectively we make up the house of God.
 
 So it says we are going to worship in the spirit, and other texts have made it clear to us where in the spirit we are worshiping. We are worshiping in the dwelling place of God in the spirit, which is the congregation of believers, which to each of us as individuals is the Father and the Son making their home with us.
 
@@ -102,7 +102,7 @@ There was a time you were completely unaware and it concerned you not at all. Bu
 
 So by the time the Lord says they are active with their mouths, they are active with their lips, do you notice what he said? They draw near to me with their mouth. They honor me with their lips. Yet their heart is far from me. If your mind is not present in any worship activity, you are praying, you are singing, you are doing whatever, your heart is not present with the Lord. Your heart is far from him. It is vain.
 
-So you go to the temple, you kill an animal, you do this. There are now many Christian organizations that also still use natural things, and it is okay if they choose to. Of course, I do not think the scripture expects us to be so disposed. But your use of those things, you go in, you wear a vestment, you use some incense, you eat something, you bow this way, you go to a particular place and kiss something, well, it is fine if you want to, but it is not true worship if your mind is not present with the Lord.
+So you go to the temple, you kill an animal, you do this. There are now many Christian organizations that also still use natural things, and it is if they choose to. Of course, I do not think the scripture expects us to be so disposed. But your use of those things, you go in, you wear a vestment, you use some incense, you eat something, you bow this way, you go to a particular place and kiss something, well, it is fine if you want to, but it is not true worship if your mind is not present with the Lord.
 
 You know, your mind can be in the natural and your mind can be in the spirit. When John was in the Spirit on the Lord's day, since he already makes up God's dwelling place in the spirit, what was in the spirit was his mind, his own presence in the spirit. Your mind can be natural now, but it is very possible that your mind can be in the spirit and you are seeing a vision. When you are in the spirit, part of your mind is still natural. You still know you are in the meeting, you are hearing the voice, but you are seeing something else at the same time.
 
@@ -148,7 +148,7 @@ This is why we do not see a kind and level of flow in certain congregations. The
 
 Let us look at 1 Samuel chapter 10 and verse 5. Samuel was prophesying to Saul that he was going to have a certain experience: after that you shall come to the hill of God where the Philistine garrison is, and it will happen, when you have come there to the city, that you will meet a group of prophets coming down from the high place with what? Stringed instruments. What do you have in KJV? Psaltery. Yes. A stringed instrument, a tambourine, a flute, and a harp before them, and they will be doing what? They will be prophesying.
 
-Now let us look at Psalm 149 and then we look at other effects. Psalm 149 says, let them sing praises to him with the timbrel and harp, and the Lord takes pleasure in his people. Let the saints be joyful in glory. Let them sing aloud on their beds. Let the high praises of God be in their mouth. Then Psalm 147:7, sing praises on the harp to our God. Psalm 150 and verse 3: praise him with the sound of trumpet, praise him with the lute and harp, praise him with the timbrel and dance, praise him with stringed instruments and flutes, praise him with loud cymbals, praise him with clashing cymbals. Let everything that has breath praise the Lord.
+Now let us look at Psalm 149 and then we look at other effects. Psalm 149 says, let them sing praises to him with the timbrel and harp, and the Lord takes pleasure in his people. Let the saints be joyful in glory. Let them sing aloud on their beds. Let the high praises of God be in their mouth. Then Psalm 147:7, sing praises on the harp to our God. Psalm 150 and verse 3: praise him with the sound of trumpet, praise him with the lute and harp, praise him with the timbrel and dance, praise him with stringed instruments and flutes, praise him with loud cymbals, praise him with clashing cymbals. Let everything that has breath
 
 ## Joy and Rejoicing as Effects of Worship
 
@@ -160,23 +160,22 @@ That means it was not a performative or self-coordinated dance. It was something
 
 Again, we must be clear. Laughter and rejoicing are the effect of worship. Sometimes people have taken it and extended it beyond limits. They are effects. They are not performances of true worship. You cannot just tell someone now, just rejoice, in a way that becomes performative. Of course believers can act on the word of God. You can say rejoice, and because we are full of the word we have things to rejoice about, we rejoice. But it cannot become performative. It is rather an effect.
 
-So someone can be on his own rejoicing. A whole congregation might be rejoicing because someone is rejoicing, and still let us keep it as what it is, an effect. Can rejoicing be instructed? It can. Philippians 4, rejoice, again I say rejoice. So there can be ways we have maybe taught the gospel and say glory. There will be an atmosphere already filled with joy based on what has been taught. Maybe people have just heard about salvation in Christ. Someone says, guys, glory to God, can we just rejoice about that? The atmosphere already has it.
+So someone can be on his own rejoicing. A whole congregation might be rejoicing because someone is rejoicing, and still let us keep it as what it is, an effect. Can rejoicing be instructed? It can. Philippians 4, rejoice, again I say rejoice. So there can be ways we have maybe taught the gospel and say glory. There will be an atmosphere already filled with joy based on what has been taught. Maybe people have just heard about salvation in Christ. Someone says,, can we just rejoice about that? The atmosphere already has it.
 
 ## Laughter, Singing, and the Atmosphere of Joy
 
-The last one we are going to look at is dancing and clapping, but first Psalm 126 and verse 1. "When the Lord brought back the captivity of Zion, we were like them that dream." Imagine you think about your redemption. When you understand redemption, sometimes you sit down and think about your life and say, wow, thank you Lord, glory to God, and you can just rejoice. That rejoicing is like the person is jumping around, twirling about, rejoicing, glory to God. There is joy on the person's heart. It is like a jubilation.
+The last one we are going to look at is dancing and clapping, but first Psalm 126 and verse 1. "When the Lord brought back the captivity of Zion, we were like them that dream." Imagine you think about your redemption. When you understand redemption, sometimes you sit down and think about your life and wow, Lord,, and you can just rejoice. That rejoicing is like the person is jumping around, twirling about, rejoicing There is joy on the person's heart. It is like a jubilation.
 
-Psalm 126 says, we were like those who dream. Then our mouth was filled with laughter and our tongue with singing. Have you ever been happy and you just start to sing? Sometimes a song is just on your heart and you just sing. He said there are times you can be full of joy, you are just laughing. Ah God, thank you. I am just laughing. Oh my God. Can you believe this? It is like a dream.
+Psalm 126 says, we were like those who dream. Then our mouth was filled with laughter and our tongue with singing. Have you ever been happy and you just start to sing? Sometimes a song is just on your heart and you just sing. He said there are times you can be full of joy, you are just laughing. Ah God I am just laughing. Oh my God. Can you believe this? It is like a dream.
 
 There is such a laughter in the spirit, but it is an effect. If we make it performative, we start to get out of hand and out of the boundaries of the spirit, and it cannot be imposed on that person. You can be in that atmosphere and state, and another person may even be with a burden that is by the Spirit. Let us have the generic flow of the Spirit.
 
-So laughter and rejoicing are effects of true worship. In that place, I worship, thank you, look what you have done, oh, thank you Lord. There is laughter. There is joy.
+So laughter and rejoicing are effects of true worship. In that place, I worship,, look what you have done, oh, Lord. There is laughter. There is joy.
 
 ## Dancing and Clapping
 
 Like I said earlier, I want to repeat again, when Dan taught us this, his intentions were very clear, and those intentions, if we wish them away, we will suffer the repercussion by going back to some mess. It was clear that people were in the flesh. In fact, people were doing dance steps. He was mentioning some kind of dance step, maybe kangaroo or something. I am not sure those dance steps exist. Then he said even the women would be dancing ballet. He said, how can this ballet be in the spirit? He said that was distracting the brethren. He said this thing is not, there is no flow of the Spirit in this thing.
 
-That kind of atmosphere is not a super, it cannot be that supernatural. And there might be nothing wrong with you because someone can dance normally, and someone can even dance with love for the Lord on their heart and that intention being present, even with their personal fun. But you know that kind of atmosphere is not the beginning of true worship. People just say, all right guys, are you ready? That kind of thing, you are not in the spirit, and the worship of God as we are called to is in the spirit.
+That kind of atmosphere is not a super, it cannot be that supernatural. And there might be nothing wrong with you because someone can dance normally, and someone can even dance with love for the Lord on their heart and that intention being present, even with their personal fun. But you know that kind of atmosphere is not the beginning of true worship. People just are you ready? That kind of thing, you are not in the spirit, and the worship of God as we are called to is in the spirit.
 
 We have to have that right atmosphere first. If at all the result can be laughter and rejoicing, or even if at all the result may be dancing or clapping, we must have first interacted with the Father, we must have fellowshiped. Sometimes what people are even looking forward to is the dancing, and they know why they are looking forward to it. It is fun, is it not? It is the dopamine that they got from that dancing.
-

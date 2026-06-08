@@ -44,7 +44,7 @@ Notice again how careful the argument must be. Peter does not merely report an e
 
 Acts 19 gives another very important angle. Paul asks in verse 2, "Did you receive the Holy Ghost when you believed?" They answer that they had not even heard whether there be any Holy Ghost. Then Paul asks, "Into what then were you baptized?"
 
-That means Paul's question about receiving the Holy Ghost is directly tied to a baptism experience. "Did you receive the Holy Ghost when you believed?" and then, "Into what then were you baptized?" They say, "Unto John's baptism." Paul explains John's baptism, ministers Christ to them, baptizes them in the name of the Lord Jesus, lays hands on them, and verse 6 says, "The Holy Ghost came on them; and they spake with tongues, and prophesied."
+That means Paul's question about receiving the Holy Ghost is directly tied to a baptism experience. "Did you receive the Holy Ghost when you believed?" and then, "Into what then were you baptized?" They "Unto John's baptism." Paul explains John's baptism, ministers Christ to them, baptizes them in the name of the Lord Jesus, lays hands on them, and verse 6 says, "The Holy Ghost came on them; and they spake with tongues, and prophesied."
 
 So there is no doubt from Scripture that there is a reality called the baptism of the Holy Ghost. If someone denies that such a reality exists, the person is not being faithful to the text. The question is not whether the reality exists. The question is what exactly it means and how Scripture describes it.
 
@@ -80,7 +80,7 @@ Why say it that way? Because there is an internal reality or expression of the S
 
 Now, analytically, Paul's question in Acts 19 shows that someone may have believed and yet still be lacking this reality in the specific sense under discussion. But that does not mean the person lacks the Spirit absolutely. This is where many people think wrongly.
 
-If we miss that distinction, we fall into avoidable confusion. Some will say, If a person believed, then the person must already have all that is being discussed here in every sense, so this baptism cannot be a meaningful category. Others will say, If a person lacks this experience, then perhaps the person does not have the Spirit at all. Both conclusions fail because they collapse internal reality and external expression into one undifferentiated idea.
+If we miss that distinction, we fall into avoidable confusion. Some will If a person believed, then the person must already have all that is being discussed here in every sense, so this baptism cannot be a meaningful category. Others will If a person lacks this experience, then perhaps the person does not have the Spirit at all. Both conclusions fail because they collapse internal reality and external expression into one undifferentiated idea.
 
 ## The Internal Expression and the External Expression
 
@@ -124,7 +124,7 @@ Acts 2:4 says, "They were all filled with the Holy Ghost, and began to speak wit
 
 There may be other passages like Acts 8 or Acts 9 where the narrative does not restate the detail the same way. But where Scripture directly shows us the reception in clear terms, the primary initial mark is speaking with tongues. That much is indisputable from the text.
 
-So when Jesus said, "You shall receive power after that the Holy Ghost is come upon you," what do we actually see happening in Acts? Tongues. When Peter said God gave them the same gift, what was the narrated evidence? Tongues. When Paul asked whether they had received the Holy Ghost and then ministered to them, what happened? Tongues and prophecy. The pattern is not weak. It is strong.
+So when Jesus said, "You shall receive power after that the Holy Ghost is come upon you," what do we actually see happening in Acts? Tongues. When Peter said God gave them the same gift, what was the narrated evidence? When Paul asked whether they had received the Holy Ghost and then ministered to them, what happened? Tongues and prophecy. The pattern is not weak. It is strong.
 
 That is why this subject cannot be handled faithfully while trying to avoid the subject of tongues. The texts keep bringing the two matters together.
 
@@ -186,11 +186,11 @@ That is also why gift language helps. A gift can truly be given and yet not be a
 
 ## Receiving, Faith, and Acting on the Word
 
-But we must be more precise. What does it mean to say, "I receive"? It does not mean merely saying words while waiting passively for something else to happen apart from you. It means receiving for external expression by faith to do the external expression.
+But we must be more precise. What does it mean to "I receive"? It does not mean merely saying words while waiting passively for something else to happen apart from you. It means receiving for external expression by faith to do the external expression.
 
 If I receive the baptism of the Holy Ghost, then I receive to speak. I receive to do. I receive to enter those external expressions that Christ has supplied. Primarily, I receive to speak with tongues, and that becomes the leading entrance into other gifts.
 
-The logic of faith here is not, "I receive, and perhaps later I may have it." The logic of faith is, "I believe I receive, and I have." So if I say, I have received the baptism of the Holy Ghost, that means I have received the external expression. It cannot stop at a bare confession with no corresponding action.
+The logic of faith here is not, "I receive, and perhaps later I may have it." The logic of faith is, "I believe I receive, and I have." So if I I have received the baptism of the Holy Ghost, that means I have received the external expression. It cannot stop at a bare confession with no corresponding action.
 
 That is why merely waiting passively can become a mistake. If by faith I say I receive the baptism of the Holy Ghost, then by that same faith I must recognize that I have received to speak. I have received to enter that expression. Faith here is not vague religious expectation. It is a response to a gift already supplied in Christ.
 
@@ -204,7 +204,7 @@ That is the pattern: the gift is there, the influence of the Spirit is there, th
 
 ## On Utterance, the Mouth, and Fear
 
-This is where many people stumble. They say, But this is a non-human language, how will I know what to say? The answer is that none of us knows ahead of time by natural analysis. The Spirit gives utterance. You do not pre-approve it by the natural mind before you obey.
+This is where many people stumble. They But this is a non-human language, how will I know what to say? The answer is that none of us knows ahead of time by natural analysis. The Spirit gives utterance. You do not pre-approve it by the natural mind before you obey.
 
 Some people sense what is about to come and then resist it because it does not sound how they expected. But that is not your business. You are not the one generating the utterance. The Spirit gives utterance; you supply the speaking. As long as you are in faith, receiving what Christ has given, you are not in danger of doing something alien to God.
 

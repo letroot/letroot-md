@@ -158,7 +158,7 @@ It's good testimony.
 
 He says that I'm going to come and perfect what is lacking in your faith.
 
-So he was commending them, you know, like, oh, I heard this testimony from Timothy about how well you guys are doing and all of this and that, but you know what?
+So he was commending them, you know, like, oh, I heard this testimony from Timothy about how well you are doing and all of this and that, but you know what?
 
 That means we must not have the wrong mindset where we think that failure in one part means abandonment of the faith altogether.
 
@@ -232,7 +232,7 @@ Walk in him.
 
 ## The Christian Walk Is the Walk of Faith
 
-Now I mean at this juncture you're like okay so we should do the word.
+Now I mean at this juncture you're like so we should do the word.
 
 You are just saying now that we are saved we should o it as if it's not enough that we are saved.
 
@@ -390,19 +390,13 @@ What example can I use now someone knows is a new creation but presently he's se
 
 I'm not like this.
 
-Are you following this?
-
-Amen. and the person says no I'm not like this he's walking by faith not by sight it's the same thing when we see our mortal body we already know that the truth of the faith of Christ by evidence it has given which we have seen that can also be observed by the senses are you there at all has told us that there is already the victory of life over death that was also seen people saw the resurrection of the Lord Jesus are you paying attention here the resurrected Lord amen now that faith in that truth if we see something contrary like our mortal bodies we say no there is victory over death already even though we are presently still seeing this glory to god we are saying that there's a superior truth what we are believed is superior to what we are witnessing we can contextualize what we are witnessing within what HAS HAPPENED DO YOU KNOW THE interesting fact what we are seeing is accepted in our faith it's only that here is a superior reality to that here is victory over what we are seeing amen Amen.
+and the person says no I'm not like this he's walking by faith not by sight it's the same thing when we see our mortal body we already know that the truth of the faith of Christ by evidence it has given which we have seen that can also be observed by the senses at all has told us that there is already the victory of life over death that was also seen people saw the resurrection of the Lord Jesus the resurrected Lord now that faith in that truth if we see something contrary like our mortal bodies we say no there is victory over death already even though we are presently still seeing this we are saying that there's a superior truth what we are believed is superior to what we are witnessing we can contextualize what we are witnessing within what HAS HAPPENED DO YOU KNOW THE interesting fact what we are seeing is accepted in our faith it's only that here is a superior reality to that here is victory over what we are seeing
 
 It's just that we have that truth in that faith that there's already victory over that.
 
 I'm not like this.
 
-Are you following this?
-
 I know this has happened but I'm not like this.
-
-Are you paying attention?
 
 Therefore I'm the you of God.
 
@@ -424,8 +418,6 @@ The victory of life over death, the victory of light over darkness.
 
 And that's where we now go into argument of sense knowledge versus this.
 
-Are you paying attention?
-
 Sometimes abuse Thomas on that.
 
 The Christian faith is not just for being.
@@ -439,8 +431,6 @@ And this walk is by faith. 2 Corinthians 1:23.
 Moreover, I call God as witness against my soul that to spare you, I came no more to Corinth.
 
 And it's so important that preachers take this disposition.
-
-Are you paying attention here?
 
 But we are fellow workers for your joy.
 
@@ -600,15 +590,13 @@ That means your spirit is changed from old to new.
 
 In our WLK, it doesn't WR K that way.
 
-Are you following this?
-
 It brings about increase or growth.
 
 That means there's a there's an area where we are speaking about faith where faith increases grows where it gets stronger as opposed to being weak.
 
 If we don't understand this seed principle to faith where it increases, grows or gets stronger onto the result supposed to get, we'll be confusing things and leading ourselves to frustration.
 
-Are you following this at all?
+at all?
 
 Someone can pray for someone now that is going through something and that thing seizes.
 
@@ -712,8 +700,6 @@ The idea that faith grows and as one persist records presents which is usually w
 
 The effect of faith is seen in our what?
 
-Are you following this?
-
 I am the healed of God.
 
 I am the healed of God.
@@ -762,7 +748,7 @@ The walk of faith. 1 Thessalonians 3 and verse 5.
 
 Wow, I love this.
 
-What's going on with you guys?
+What's going on with you
 
 So can the enemy mess with people's faith?
 
@@ -796,7 +782,7 @@ You will see him that still praying that he may see them.
 
 So there is still yet something lacking their faith.
 
-Brothers and sisters, there is the fruit of faith is seen in the increase of faith.
+there is the fruit of faith is seen in the increase of faith.
 
 There was the fruit of faith which should now be seen in the result hat you are getting.
 

@@ -76,7 +76,7 @@ Ephesians 4:17 says, "This I say therefore and testify in the Lord that you shou
 
 ## The World's Way and the New Creation's Way
 
-And listen good because we want to look at some things.
+And because we want to look at some things.
 
 I've told you something about the way the world works versus how the new creation works.
 
@@ -258,7 +258,7 @@ So we can say that he's telling us walk in righteousness and love.
 
 We can infer power since he said be filled with the spirit.
 
-But he said, "And if you don't even invite here, by the time you get to Ephesians chapter 6, when he was talking about putting on the whole armor of God and all, we can definitely see he's leaning towards power as well." Are we together, brothers and sisters?
+But he said, "And if you don't even invite here, by the time you get to Ephesians chapter 6, when he was talking about putting on the whole armor of God and all, we can definitely see he's leaning towards power as well."
 
 So, we can see that he's telling us walk in the supernatural.
 
@@ -358,7 +358,7 @@ He said tell it to the church.
 
 They said, "Let him be unto you like an Eden or tax collector." That means you withdraw the kind of familiarity you have with believers from him.
 
-So we might see someone that is an unbeliever and you know in the gospel when I say unbeliever you understand that context you know and we relate freely with the person to that degree but the kind of extra freedom we might have with a believer we might withdraw it if the believer is working on repentance why so hallelujah that's very important so 1 Corinthians 5 tells us that now 2 Corinthians chapter 6 he was talking again about you have issues with believers.
+So we might see someone that is an unbeliever and you know in the gospel when I say unbeliever you understand that context you know and we relate freely with the person to that degree but the kind of extra freedom we might have with a believer we might withdraw it if the believer is working on repentance why so that's very important so 1 Corinthians 5 tells us that now 2 Corinthians chapter 6 he was talking again about you have issues with believers.
 
 Why are you taking those oh so sorry not 2 Corinthians 1 Corinthians chapter 6.
 
@@ -372,7 +372,7 @@ Let me tell you something because this text can sometimes want to abuse it.
 
 But do you know that if you do Matthew 18 and spiritually that you talk to the person and the person stays unrepentant and you are now treating the person like a tax collector and Eden, an unbelieving person, you might now be able to take the person since the person is not yielding to spiritual authority to the authority that the person can yield to.
 
-Since the person is proving himself not believing are you paying attention he can he should be able to listen to spiritual authority you don't need to go there now say ah you have to do this that should be like the court of law has said you have to do this you can judge these matters if that one cannot work for you and you not listen to authority then you are pretending you are not submitted there let them deal with you the way you are claiming now that you what ah are you there but why didn't you trust spiritual leadership what first amen And I admit that Paul did say things that like you can also give it up.
+Since the person is proving himself not believing he can he should be able to listen to spiritual authority you don't need to go there now say ah you have to do this that should be like the court of law has said you have to do this you can judge these matters if that one cannot work for you and you not listen to authority then you are pretending you are not submitted there let them deal with you the way you are claiming now that you what ah but why didn't you trust spiritual leadership what first And I admit that Paul did say things that like you can also give it up.
 
 Have you seen death recovery issue in church is a difficult matter.
 
@@ -406,7 +406,7 @@ People can say h why is he talking like that?
 
 It's not that we are saying they are not esteemed at all but indicator of estimation.
 
-It can never happen any I love you guys so much.
+It can never happen any I love you so much.
 
 I can't love you like that.
 
@@ -414,7 +414,7 @@ That's he that does not ake care of his whole is worse than what and so and this
 
 The saying your wife is more important han maybe the mission or the church.
 
-There's the way you are saying that statement is definitely not correct because the Lord Jesus said in Luke 14:26 he that does not eat father mother say wife children brother sister and even his own life are you paying attention cannot be my disciple there's a way you are saying that you are taking it to an extreme but there's another way you can say well for me the church is not important my family and you are saying absolute nonsense because first he that does not ake care of his family is worse than ot an infidel we must know how to just be righteous.
+There's the way you are saying that statement is definitely not correct because the Lord Jesus said in Luke 14:26 he that does not eat father mother say wife children brother sister and even his own life cannot be my disciple there's a way you are saying that you are taking it to an extreme but there's another way you can say well for me the church is not important my family and you are saying absolute nonsense because first he that does not ake care of his family is worse than ot an infidel we must know how to just be righteous.
 
 How do you esteem where in the latter of estimation is the stimation of your particularly it comes up with female the estimation of your husband relative to the estimation of spiritual authority?
 
@@ -432,7 +432,7 @@ But in terms of how relationship wise honor wise things should play out please f
 
 by your spiritual authority should be giving you that um what's it called?
 
-relationally which is almost every day that's how it is positionally ou know that oh this person um you know is having under God and therefore we honor him like that but relationally this is my husband he's my head the leader of our union amen which of course our union we have matched our life together praise the lord so that should be it but positionally generally you can ow say that because of you know difference in the case of resolution of issues and so on and so forth Please note that difference.
+relationally which is almost every day that's how it is positionally ou know that oh this person um you know is having under God and therefore we honor him like that but relationally this is my husband he's my head the leader of our union which of course our union we have matched our life together so that should be it but positionally generally you can ow say that because of you know difference in the case of resolution of issues and so on and so forth Please note that difference.
 
 Please don't walk in the flesh.
 
@@ -482,7 +482,7 @@ Romans 13 and 1, let every soul be subjected to the governing authorities for th
 
 That means God has instituted that there must be order and people are going to be the ones to play it out.
 
-God has already instructed you told me Emmanuel sorry right yes as I'm seeing you hold your phone even though I believe you're on your Bible my mind is not set I don't rust that you might not be checking what notification at all can someone give me a Bible so you your Bible and I'll be sure that you are completely away from distraction I know you might have to you are not so familiar you have to still train yourself but use your Bible okay so Romans chapter 13.
+God has already instructed you told me Emmanuel sorry right yes as I'm seeing you hold your phone even though I believe you're on your Bible my mind is not set I don't rust that you might not be checking what notification at all can someone give me a Bible so you your Bible and I'll be sure that you are completely away from distraction I know you might have to you are not so familiar you have to still train yourself but use your Bible so Romans chapter 13.
 
 Every soul should be sub to the governing authorities, but there's no authority except from God.
 
@@ -500,65 +500,7 @@ There are different kinds of relationship.
 
 Let me list the general kinds of relationship we have.
 
-Um because we spoke about esteeming relationship.
-
-So I'm going to list relationship in the order of hierarchy biblically.
-
-Number two of course when you say God we are saying the father saying the son can also say the spirit.
-
-I do think there should be a bit of weariness with the way people have taken this issue of relating with the spirit.
-
-You know I think they have dragged the personal relation to the holy spirit.
-
-they have taken it maybe a bit too beyond what is biblically uh well someone say that well not everything is in the Bible so it wasn't stated here and all that it's easier for nonprotestants say that and I've seen them say that I always wonder for protestant that always claim the Bible is sufficient now saying that I don't think there is like necessary and good measure to extend that relationship beyond necessary limits are you paying attention so let me just leave it all that but the relationship with God there's the spiritual authority biblically God's spiritual authority.
-
-Spiritual authority, they have their limits.
-
-They start to overly serve the spiritual authority maybe more than they are serving their family.
-
-You cannot be serving authority more than your family because if everybody is serving them partially, it will aggregate what they are supposed to do in the first place.
-
-Nobody can be giving to spiritual authority more than their family.
-
-I'm not saying you don't love them, you don't honor them and all them.
-
-God spiritual authority.
-
-Then marital relationship biblical because your domestic family is taken as primary.
-
-1 Timothy 5:8 is one of the core texts on that.
-
-That's why I'm putting marital as primary here.
-
-God spiritual authority marital.
-
-Then your core friendships then your church relationships or friendships.
-
-Then employment relationship as much as you love your employer or you love your employees don't disobey governmental authority.
-
-stick with the rules of your nation of your community and also still ove your you know employer employee whichever the case may be then there's general friendships I think it's even more than 10 now there's general friends and then I'll say lastly you can now say others acquaintances etc praise God others acquaintances etc is that very clear so for the first three I'm sure the order is right but I forgot because I didn't refer to the older teaching and I'm just thinking I don't know the order of the remaining but you can say there's core friendship there's church friendship there is general friendship are you following this at all the fact hat you are friends in church does not make them your core friends even though it might be a good thing for your core friends to come from church but they are your core friends and there's just church friendship generally amen and there's general friends because there's kind of familiarity we also have as church members that should be stronger than general friends there's a way we owe church members that my old general friends.
-
-Even more than church members generally.
-
-You your relationship has grown to that point.
-
-So I was mentioning spiritual authority or pastoral authority.
-
-There's 1 chapter 5 and 12 and 13 esteem them very highly let me say it this way all of us have an affection bank right and the truth is that you know there's a way we can have affection like there's an affection like I have for my friends you know some you know my friends already like I have c friends but I have like friends I have friends I have what am I have no idea what I'm saying again.
-
-Even though I don't know why I have to confess this for my friends I've noticed that sometimes they are parole not just one more than one their parole are usually concerned about their friendship with people even the ones that in this church like I like ah how many times are we ven talking you know and I think it's because you know we had I mean we are free but maybe ven my wife who knows sometimes might also be concerned that you know maybe when we allow G like a the way the G is just going I don't know whether she feels that way but I think my it's pretty clear that my affection like most of it is you know and we talk freely and well but I feel for some of I can get it like maybe the way we can talk freely maybe me and my wife I think some of them for and not in church I don't think so but they might not be able to talk on some doctrinal matters the way we talk about it and all that and so they might be feeling somehow that what's going on but we don't talk that much so and Of course, if I talk about we can't even talk that much but I'm very busy.
-
-I have my wife but maybe when we talk like we all the things our shared interest and because we don't talk that much we talk ah everything just start talking from one place we jump to the other one.
-
-But your affection towards the Lord towards your marital relationship if you in one cuz you're the one that has chosen to call someone into that life with you the person deserves not as a matter of an option.
-
-You have already called the person that life is a matter of obligation that affection from what?
-
-You know there is other kinds of relationship.
-
-He's one of the people I do that just has so many is really working this relationship thing very well and I think he's in the newness of life.
-
-So I don't know why I want to navigate you know superal glory to his name not's name glory to the name of the Lord God have mercy let's get back to so I've stablished the fact that there is in relation to the faith of Christ there are different kinds of what relationship there's even an hierarchy as well but I've given you like a kind of hierarchy it's not perfect but it's fair.
+Because we spoke about esteeming relationship, let me list them generally in hierarchy: relationship with God, spiritual authority, marital relationship, family, core friendships, church relationships, governmental or secular authority, employment relationships, general friendships, and acquaintances. The exact ordering of some of the middle categories can be argued, but the point is that Scripture teaches relational order and proper esteem.
 
 ## Following God's Example in Relationship
 
@@ -588,41 +530,4 @@ Wives ubmit to your wives and Jesus have mercy.
 
 I beg because all some people we here they don't even notice like what cuz we are going global now you know God have mercy wife submit to your husband please very your own husband in fact wife submit to your own husband as to the Lord for the husband is the head of the wife as Christ is the head of the church and is the savior of the body.
 
-It was like stop exposing your mind to all these stories about and me I'm like that I hate negative stories so much it can annoy ou like I hate I hate negative gist.
-
-Why do you know if you watch things that you are training your mind?
-
-Because some things in my thought life is even a struggle to even imagine it happening.
-
-If you are training your mind like that, you are hearing someone saying men are like this, women are like that.
-
-How people are cheating on people.
-
-Cheating that I used to think is how do the people cheat?
-
-I used to wonder like how the space, the time, the situation, the buildup you have to have for it to happen, how does it even happen?
-
-Like you not start to you now stand okay that's how it happened.
-
-You are training your mind for something that you don't want to happen.
-
-But see this life sorry to say but you have to be selfish.
-
-Your mind is not a dumb ground.
-
-You have your own life to live.
-
-You can't use your mind to contain all the problems of the world.
-
-Do you know how much problems happen in this world?
-
-Why are you not feeding on other ones?
-
-Your life is for God's purpose.
-
-Oh, my own mind is so that I can feed it with life.
-
-Why am I trying to study that deeply?
-
-Why am I studying that deeply?
-
+Stop feeding your mind on narratives that train you into suspicion, bitterness, and relational fear. Your mind is not a dumping ground. Your life is for God's purpose, so feed it with life.

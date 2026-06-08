@@ -1,6 +1,6 @@
 # Your Place in the Local Church
 
-We are looking at a very important teaching: your place in the local church, on discipleship. The long and short of this teaching is to make it clear that the place where discipleship happens is the local church. Of course, that came up in our study on discipleship, where one of the key things we saw is that we commit to the local church. But this teaching has another gist to it. It is like being in a family.
+We are looking at a very important teaching: your place in the local church, on discipleship. The long and short of this teaching is to make it clear that the place where discipleship happens is the local church. That came up in our study on discipleship, where we saw that we commit to the local church. But this teaching has another gist to it. It is like being in a family.
 
 When you are in your family, there is a place you have, and your place changes over time. When you were first born, everybody was attending to you. Everybody put their attention on you. But there is a point where the place of that child changes. The person is now a participant. In fact, there is a time when the child is expected to be contributing to the family. So you can see that in a family your place changes.
 
@@ -14,7 +14,7 @@ In Matthew 28:18 the Lord Jesus said, "All authority has been given to Me in hea
 
 Now let us see Matthew 16:18. He said to Peter, "You are Peter, and upon this rock I will build My church, and the gates of Hades will not prevail against it."
 
-I do not want to delve too much into all the debates about Peter here. Peter clearly had primary leadership in the early church. There is abundant evidence that Peter had a place of primary leadership. But that is not the same thing as saying the church was built on Peter in the ultimate sense.
+I do not want to delve too much into all the debates about Peter here. Peter clearly had primary leadership in the early church. But that is not the same thing as saying the church was built on Peter in the ultimate sense.
 
 When Jesus said, "Upon this rock I will build My church," it was not about Peter's primary leadership as the foundation. Rather, it was about Peter's identification with Him who was the Rock upon which the church is built, something Peter himself later teaches. In 1 Peter 2:4 he speaks of Jesus as a living stone rejected by men but chosen by God and precious, and then says, "You also, as living stones..." So Peter understood that the Lord was teaching that He Himself is the foundation, and His people are part of the building.
 
@@ -24,7 +24,7 @@ Now when the Lord says, "the gates of Hades will not prevail against it," this i
 
 Out of that, the church is undefeatable by death. This is not something we need to keep hoping will become true. It is settled in the past. Once you are saved, death has no hold on you and Hades has no hold on you. It is not mainly about whether somebody can die physically. It is that once you are part of the church, you are out of the domain of death and now in the domain of life.
 
-I do believe there is also a guarantee in God's word that the church on earth will not be defeated until the coming of Christ, and there are other Scriptures we can use for that. But this particular text in Matthew 16 is primarily about the victory over death secured in Christ's work.
+I do believe there is also a guarantee in God's word that the church on earth will not be defeated until the coming of Christ. But this particular text in Matthew 16 is primarily about the victory over death secured in Christ's work.
 
 Then look at verse 19: "I will give to you the keys of the kingdom of heaven, and whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven." Interestingly there it is singular, again showing Peter as having primary authority.
 
@@ -40,7 +40,7 @@ Do you see that the issue of binding and loosing comes up again, and the issue o
 
 So there is ecclesial authority. That is the authority that the church, particularly leadership, can wield. Leadership in partnership with the congregation, yes, but leadership usually decisively can wield it.
 
-Why do I say that? Because some people like to press a purely congregational model. But if you really square everything with Scripture, it is not as simple as that. For example, when Paul instructed them in 1 Corinthians to withdraw fellowship from the man who took his father's wife, not everybody obeyed. In the second letter he speaks in a way that suggests that some obeyed and some did not, but leadership still took the initiative and went on.
+Why do I say that? Because some people like to press a purely congregational model. But if you really square everything with Scripture, it is not as simple as that. When Paul instructed them in 1 Corinthians to withdraw fellowship from the man who took his father's wife, leadership still had to take the initiative.
 
 So when Jesus says, "Tell it to the church," in this kind of case it is very likely the church's episcopal authority saying, this matter has been considered, this person has been warned, there has been no change, and the church withdraws fellowship from the person. This obviously presumes the person is committed to that body.
 
@@ -90,15 +90,9 @@ Why does He want us to make disciples? Because of God's purpose. We can say that
 
 That is why I started out using the family idea to describe your place in the local church. He sets the solitary in families. What is the church at the core? God's family. Every individual there is in God's purpose and in His sonship, which means they are children of God. If we ask for the most definitive way to say it, the church is the family of God.
 
-Why then did He give instruction on discipleship? Because that family needs to be trained to fulfill God's purpose, to function as children and heirs. Being a child of God and being an heir of God are family issues. Even our assignments are family issues. As members of God's family, we have work to do.
-
-So when Jesus gave the instruction on discipleship, it is because discipleship is how the family purpose that God has will be fulfilled. That is what makes discipleship the core of the local church, because the local church at its core is about family.
-
-Sometimes people want to speak as though it is really about mission and training, and family is secondary. But the mission is a family affair. The training is a family affair. In the Greco-Roman world, training was itself a family matter. You took your child through a definite training. The church is a place of discipleship for the sake of family.
+Why then did He give instruction on discipleship? Because that family needs to be trained to fulfill God's purpose, to function as children and heirs. So discipleship is how the family purpose of God is fulfilled.
 
 If I can get that into you, then the major thing is done. When we talk about your place in the local church, we are talking about your place in your most important family, your core family.
-
-Even our natural families should reflect the church. Imagine if homes functioned like church units, where fellowship activities go on, where parents are pastoring children, and families are learning to pastor other families. If we appreciate family within God's purpose well, it will help the mission greatly. The church should reflect that family.
 
 ## Your First Place: Saint, Believer, Learner
 
@@ -122,7 +116,7 @@ Your second place in the church is a member. You are saved. You are coming to ch
 
 Member means you have now joined the church. The church may have different ways of measuring that, but there is such a thing as joining a church. You have been around, you are a saint, you have been coming around, but you have now joined.
 
-Some people think that language is strange. They say people are just joining church today and not joining the kingdom. But you can join church. The word join is in the Bible.
+Some people think that language is strange. But you can join church. The word join is in the Bible.
 
 Acts 5:13 says, "Yet none of the rest dared join them." So you can join the church. There is such a thing as commitment. Acts 17 says that when Paul preached in Mars Hill, many did not believe, but some who believed joined him. So there is such a thing as joining the local church.
 
@@ -134,7 +128,7 @@ The third place in the local church is worker. The interesting thing is that all
 
 The third place is that of a worker. In 2 Corinthians 5 it is clear that when we get saved and become a new creation, we are meant to be workers. We are meant to serve. It is also clear that believers can be weak and may not yet be functioning in their role, so we are showing how this unfolds.
 
-Some people can unfold speedily. Someone can get saved and join and even start serving in one day. It is possible. For another person it can be a journey. What do we do in both cases? We make available everything to help them grow. Sometimes because we are seeing someone grow speedily, we put pressure on the person who is not like that, and someone who might have become strong collapses under the pressure. That is not the best way.
+Some people can unfold speedily. Someone can get saved and join and even start serving in one day. For another person it can be a journey. What do we do in both cases? We make available everything to help them grow. We must not crush slower people with pressure.
 
 But we are called to be workers. We are already designed as workers from the point of salvation.
 
@@ -152,9 +146,7 @@ So let us recap quickly. First place: saint. You are saved, a believer, and a le
 
 The fourth place in the local church is deacon. Yes, deacon. You are supposed to serve as an assistant leader. The word deacon just means servant. The idea of a deacon is that the deacon is serving a person, assisting a person in a work. That is why one of the best ways to describe a deacon is to say assistant leader.
 
-There is the argument from Acts 6 that those men were deacons, even though the passage does not use the formal label there. They were called to come and serve tables. That is why we have that idea. They were assisting those who were doing the primary duty of ministering the word at that oversight level.
-
-You hear of Elisha pouring water on Elijah's hands. You hear of Joshua serving Moses. So the idea of deacon is that you are serving a person doing a work. You are assisting the person.
+There is the argument from Acts 6 that those men were deacons, even though the passage does not use the formal label there. They were called to come and serve tables. That is why we have that idea. They were assisting those who were doing the primary duty of ministering the word.
 
 Look at Acts 6. When the number of disciples was multiplying, the apostles did not have the structure to carry the growing demand, so people were getting neglected. This is why structure is very important, and structure involves people.
 
@@ -174,7 +166,7 @@ And he says that those who have served well as deacons obtain for themselves a g
 
 The fifth place in the local church is bishop, leader, pastor, elder. That is how we will summarize it for now. You start as a saint. You become a member. You become a worker, a deacon, and then a leader, a bishop.
 
-Anyone that does not function in leadership in some measure, brothers and sisters, I am not sure that the person has fulfilled God's purpose in the ordinary sense. I say that with the allowance that there can be exceptions because of circumstances and time, but the general trajectory of our spiritual assignment and our participation in the church ought to terminate in leadership.
+Anyone that does not function in leadership in some measure, I am not sure that the person has fulfilled God's purpose in the ordinary sense. I say that with the allowance that there can be exceptions because of circumstances and time, but the general trajectory of our spiritual assignment and our participation in the church ought to terminate in leadership.
 
 Before coming back to 1 Timothy 3, let us see Ephesians 4:7, that this is already designed by God for believers.
 
@@ -190,9 +182,9 @@ To show that leadership is open to believers in this trajectory, look at what Pa
 
 First Timothy 3:1 says, "If a man desires the position of a bishop, he desires a good work." Very clear, very open. As desirable as it is, if you do not have the character for it, then it is not right to be dabbling in it. You should first deal with the character.
 
-Then he gives the qualifications: blameless, husband of one wife, temperate, sober-minded, good behavior, hospitable, able to teach, not greedy, not proud, not a novice, with a good testimony among those who are outside. These qualifications matter because these are the very kinds of things that can damage the church if neglected.
+Then he gives the qualifications: blameless, husband of one wife, temperate, sober-minded, good behavior, hospitable, able to teach, not greedy, not proud, not a novice, with a good testimony among those who are outside.
 
-This is your place in the local church. It is like a person born into a house. At first everybody is taking care of the person. Then over time the person grows, starts serving, and eventually starts carrying responsibility for others. So your place in the local church begins with the place of a saint, then member, worker, deacon, and then leader.
+This is your place in the local church. Your place begins with saint, then member, worker, deacon, and then leader.
 
 ## What Determines How You Unfold
 
@@ -208,7 +200,7 @@ Number three is orchestrations and leadings. God can orchestrate that you are su
 
 You have two things in your control immediately: your growth and your service. Plug in. If you cannot do visible service because you are weak, start with your growth. There is nobody that cannot do growth. Once you are growing, you will get to the point where you can now serve. And once that is happening, God is always faithful to His orchestration and His leading.
 
-Sometimes there will be no dramatic leading. It is just normal orchestration. Everything is being arranged because God wants you to lead some people, and it just happens over time. We just have these people and say, ah, brother so-and-so should lead this team, this unit, maybe even a virtual unit. With that, you are leading them, and before you know it you are becoming stronger.
+Sometimes there will be no dramatic leading. It is just normal orchestration. Everything is being arranged because God wants you to lead some people, and it just happens over time. We just have these people and ah, brother so-and-so should lead this team, this unit, maybe even a virtual unit. With that, you are leading them, and before you know it you are becoming stronger.
 
 And then before you know it, God can orchestrate that you are supposed to go to another place and perhaps start or continue a work there. Or there may be a direct leading: I want you to go to this particular place and do something there.
 

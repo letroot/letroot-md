@@ -1,6 +1,6 @@
 # Reality of Redemption
 
-This morning we are starting a very important teaching: the reality of redemption. The reason for that title is that there are many descriptions people give to redemption, what many would call theories of atonement. But when we say the reality of redemption, we are asking something more basic. What does redemption actually entail? What is the actual event pertaining to redemption? What did redemption actually do?
+This morning we are starting a very important teaching: the reality of redemption. The reason for that title is that there are many descriptions people give to redemption, what many would call theories of atonement. But when we say the reality of redemption, we are asking something more basic. What does redemption actually entail? What is the actual event pertaining to redemption?
 
 That event can then be described in many ways depending on the audience. If you are speaking to an audience that is more legally inclined, you may explain redemption from the angle of justification. That can come across as a law term. There is a sense in which justification is making something right, and we will see that. But you will also notice that there are places where guilt, a guilty person before a judge, and exoneration are used to describe redemption. Still, that description is not the reality of redemption.
 
@@ -14,7 +14,7 @@ Let me give an example. The Lord Jesus told that parable about prayer: a friend 
 
 Even when Scripture itself uses metaphor, the fact that the communicators of the message chose certain metaphors does not mean they are saying the metaphor is the reality. Scripture can speak of forgiveness in a way that sounds like God simply let what you did go. It can speak of wrath, ransom, sacrifice, reconciliation, victory, healing. But if you pay attention to the whole teaching of God's word on redemption, you realize those are descriptions functioning within a larger reality. The description is not the reality itself.
 
-When we say reality, we mean how the thing actually is. A person may point to a chair and then point to a dog and say, "That dog has four legs, and that thing has four legs," but he is only using a comparison to describe a reality. We need to know what the reality of redemption itself is, and then know what the descriptions are, where they work, and where they stop working.
+When we say reality, we mean how the thing actually is. A person may point to a chair and then point to a dog and "That dog has four legs, and that thing has four legs," but he is only using a comparison to describe a reality. We need to know what the reality of redemption itself is, and then know what the descriptions are, where they work, and where they stop working.
 
 That is what we are trying to examine here. We have looked at redemption before, but in this level we need to establish the core issue in redemption. Before getting to exhaustive treatment, what is the reality of redemption?
 
@@ -40,7 +40,7 @@ So redemption is central to the faith, but there are different descriptions, par
 
 ## Redemption Means Freedom From Something
 
-Ephesians 1:7 says, "In him we have redemption through his blood, the forgiveness of sins." If redemption means freedom, then freedom from what? What are we being made free from? How are we being made free? Is it by paying a price? What exactly needs to be done?
+Ephesians 1:7 says, "In him we have redemption through his blood, the forgiveness of sins." If redemption means freedom, then freedom from what? What are we being made free from? Is it by paying a price? What exactly needs to be done?
 
 If we are going to understand the reality of redemption, we have to take a look at the origin of sin itself.
 
@@ -92,7 +92,7 @@ So when we say man sinned and death came, we are saying something very important
 
 ## Death as Consequence, Not Arbitrary Punishment
 
-This matters a lot. What we call hell, damnation, eternal condemnation, was not first a judgment dreamed up against man as though God simply decided to impose something external. It is the natural consequence of rejecting life. You can still use judgment language as a description, and that description may help certain audiences understand. In ordinary speech even today, someone may say, "God will judge you," when what is really meant is that a destructive course has consequences. But if we mistake that description for the reality, we distort redemption.
+This matters a lot. What we call hell, damnation, eternal condemnation, was not first a judgment dreamed up against man as though God simply decided to impose something external. It is the natural consequence of rejecting life. You can still use judgment language as a description, and that description may help certain audiences understand. In ordinary speech even today, someone may "God will judge you," when what is really meant is that a destructive course has consequences. But if we mistake that description for the reality, we distort redemption.
 
 The consequence can also be described as the wrath of God, because death and corruption are indeed displeasing to God and stand as his enemy. But that does not mean the issue is best conceived as God merely venting anger. The real issue is the consequence of what man did.
 

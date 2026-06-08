@@ -1,6 +1,6 @@
 # True Worship
 
-All right guys, we are looking at level three now. This is still true temple, true worship. Sorry, true worship. There is the teaching true temple worship. You can also listen to that. But the title of this one is true worship.
+we are looking at level three now. This is still true temple, true worship. Sorry, true worship. There is the teaching true temple worship. You can also listen to that. But the title of this one is true worship.
 
 It can look weird because we have looked at life of prayer, and prayer and worship can look kind of the same. But you will see a connection between the two, between what we are looking at in true worship and what we looked at in the life of prayer. Yet it is different.
 
@@ -22,7 +22,7 @@ The reason why they are essentially the same is because by the time you look at 
 
 That is a key word. That sense of affection toward another. So there is that sense of affection when it comes to worship. You can see the nature of worship and how there might be a distinction with prayer. In one sense, someone might even want to say worship is just a sub of prayer, and you might not be wrong. They are closely related. But usually we tend to use prayer for our speech engagement with God, and we have this sense of using worship for this all-encompassing engagement with God that covers many things.
 
-Now I have given that general background to how we are using the term, because the term may be used in different ways, but this is how we are choosing to use the term. Amen.
+Now I have given that general background to how we are using the term, because the term may be used in different ways, but this is how we are choosing to use the term.
 
 I want us to now see what God's word teaches us about worship, particularly now that we are looking at true worship. We will see why we are calling it true worship based on what God's word teaches on worship.
 
@@ -56,7 +56,7 @@ Now verse 23: "The hour is coming, and now is, when the true worshipers will wor
 
 So that is the first thing. The who of worship, the true worshipers, will worship the Father in spirit and in truth. For the Father is seeking such to worship him. God is Spirit, and those who worship him must worship him in spirit and truth.
 
-Now the use of truth here is different from maybe the typical use of truth. He is not saying people have been worshiping God falsely, in this case. There is a use of truth that can be truth versus false. But the use of truth here is reality versus depiction. Amen.
+Now the use of truth here is different from maybe the typical use of truth. He is not saying people have been worshiping God falsely, in this case. There is a use of truth that can be truth versus false. But the use of truth here is reality versus depiction.
 
 That means people are indeed worshiping God, but they are using many depictions in their worship of God. And what God wants is the actual direct interaction with him, because he is Spirit. So imagine people are going to worship God and they take the incense, they prepare an incense and they are pouring it. Is that the true incense that is before God? He is saying no. The true incense is your prayer rising up itself.
 
@@ -110,11 +110,11 @@ Look at 2 Corinthians chapter 6. Sometimes people can go to a place and think th
 
 It is the same way when he talks about the temple of idols in contrast with the temple of God as a spiritual place. 2 Corinthians chapter 6 and verse 16: "What agreement has the temple of God with idols?" He is actually saying there is the temple of God and there is the temple of idols. "For you are the temple of the living God. For God has said, I will dwell among them. I will dwell in them and walk among them. I will be their God, and they shall be my people."
 
-This was said in Exodus 29 when he gave them the tabernacle. That is because they had the tabernacle as his dwelling among them. So the whole world is a natural world and a spiritual world. We can say the whole world is a natural world with a spiritual world imposed upon it, heaven upon the earth, or a spiritual world overlapping a natural world. In that there are two realities: the reality of light and darkness, the reality of life and death, the reality of good and evil. Amen.
+This was said in Exodus 29 when he gave them the tabernacle. That is because they had the tabernacle as his dwelling among them. So the whole world is a natural world and a spiritual world. We can say the whole world is a natural world with a spiritual world imposed upon it, heaven upon the earth, or a spiritual world overlapping a natural world. In that there are two realities: the reality of light and darkness, the reality of life and death, the reality of good and evil.
 
-So it says where God dwells is in us, the believing ones, in the spirit. That is where he dwells. It is in us, the believing ones, in the spirit. Thank you, Lord Jesus.
+So it says where God dwells is in us, the believing ones, in the spirit. That is where he dwells. It is in us, the believing ones, in the spirit. Lord Jesus.
 
-Say, I make up the dwelling place of God, alongside other believers, in the spirit.
+I make up the dwelling place of God, alongside other believers, in the spirit.
 
 ## Zion and the Dwelling Place of God
 
@@ -134,7 +134,7 @@ So we are going to see that the Lord will now speak about this dwelling place th
 
 "Let not your heart be troubled. You believe in God, believe also in me." Now this is where I want to take you first, verse 2: "In my Father's house there are many..." What does Jesus call the Father's house?
 
-In John chapter 2, the Lord called the temple the Father's house. He was in the temple and saw people selling doves, merchandise, and all that going on, and he drove them out. He said, "Do not make my Father's house a house of merchandise." He was talking about a physical temple at that point. He then told them later, destroy this temple and in three days I will raise it up. They said this temple was forty-six years in building. How are you going to destroy it and build it back in three days? Then John said they did not know that he was talking about the temple of his body, that is, the church. Amen.
+In John chapter 2, the Lord called the temple the Father's house. He was in the temple and saw people selling doves, merchandise, and all that going on, and he drove them out. He said, "Do not make my Father's house a house of merchandise." He was talking about a physical temple at that point. He then told them later, destroy this temple and in three days I will raise it up. They said this temple was forty-six years in building. How are you going to destroy it and build it back in three days? Then John said they did not know that he was talking about the temple of his body, that is, the church.
 
 So that temple was a depiction, not the actual dwelling place of God. The real dwelling place of God is among his people. His people are his building. So the place of our worship is the collective gathering of believers, not necessarily our physical gathering, but spiritually we are that gathering of God where he dwells. God dwells among his people.
 
@@ -142,15 +142,15 @@ Now the personal implication of that: when Jesus says, "In my Father's house the
 
 So imagine now, to make up this building that we are in, there are many spaces. The architect could have done the work, but there are many spaces to be filled, places to put blocks, places for the foundation. There were many spaces to be addressed to bring out his building. So he said, in my Father's house there are many spaces. If it were not so, I would have told you. I go to prepare a place for you. So I go to prepare a space for you. Collectively all of us will now make up that building.
 
-But what is the Father's house? The congregation of believers. The Father's house is the congregation of believers. We make up the Father's house. We make up the Father's house. We make up the Father's house. In my Father's house there are many dwelling places.
+But what is the Father's house? The congregation of believers. The Father's house is the congregation of believers. We make up the Father's house. In my Father's house there are many dwelling places.
 
 I want to show you the implication. If we collectively make up the Father's house, what is happening to us individually? John 14:21-23. Individually it means the Father and Son are with each one of us.
 
 "He who has my commandments and keeps them, it is he who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him." Judas, not Iscariot, said to him, "Lord, how is it that you will manifest yourself to us, and not to the world?" Jesus answered and said to them, "If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him."
 
-So individually the Father and the Son are making their home with you. No matter where you are, the Father and the Son are making their home with you. Collectively we make up the house of God. Hallelujah.
+So individually the Father and the Son are making their home with you. No matter where you are, the Father and the Son are making their home with you. Collectively we make up the house of God.
 
-Now let us go back to John 4. Say, the Father and the Son are at home with me. Say, the Father and the Son are at home with me. Say, we as believers make up the house of God. The Father and the Son are at home with me. Glory to God.
+Now let us go back to John 4. the Father and the Son are at home with me. we as believers make up the house of God. The Father and the Son are at home with me.
 
 So it says we are going to worship in the spirit, and other texts have made it clear to us where in the spirit we are worshiping. We are worshiping in the dwelling place of God in the spirit, which is the congregation of believers, which to each of us as individuals is the Father and the Son making their home with us.
 
@@ -184,13 +184,13 @@ So the place of worship is in the spirit because we are spirit beings and God is
 
 There was a time you were completely unaware and it concerned you not at all. But your mind has to now know, and then has to engage, to be able to function there and for the realities to come to expression, for visions and revelation to happen. You can now function with revelation that you could have functioned with at other times, but because you did not know that the reality was present, you could not function with it. It is like money you have but do not know you have. You cannot spend money that you have but do not know you have.
 
-So at the time you now start functioning in the spirit, where you might get a revelation and minister to someone else and they are like, wow, you could have also done that before if you knew. Praise the Lord. Our mind is critical to worship.
+So at the time you now start functioning in the spirit, where you might get a revelation and minister to someone else and they are like, wow, you could have also done that before if you knew. Our mind is critical to worship.
 
 So by the time the Lord says they are active with their mouths, they are active with their lips, do you notice what he said? They draw near to me with their mouth. They honor me with their lips. Yet their heart is far from me. If your mind is not present in any worship activity, you are praying, you are singing, you are doing whatever, your heart is not present with the Lord. Your heart is far from him. It is vain.
 
 He said, in vain they worship me, teaching as doctrines the commandments of men. I do not want to unpack that one, but that involves using many natural things in worship. Nothing may necessarily be wrong in using natural things in worship. But if all your activity of worship is using natural things, you are not in true worship. True worship is the presence of your mind toward God. It is not any activity you do.
 
-So you go to the temple, you kill an animal, you do this. There are now many Christian organizations that also still use natural things, and it is okay if they choose to. Of course, I do not think the scripture expects us to be so disposed. But your use of those things, you go in, you wear a vestment, you use some incense, you eat something, you bow this way, you go to a particular place and kiss something, well, it is fine if you want to, but it is not true worship if your mind is not present with the Lord.
+So you go to the temple, you kill an animal, you do this. There are now many Christian organizations that also still use natural things, and it is if they choose to. Of course, I do not think the scripture expects us to be so disposed. But your use of those things, you go in, you wear a vestment, you use some incense, you eat something, you bow this way, you go to a particular place and kiss something, well, it is fine if you want to, but it is not true worship if your mind is not present with the Lord.
 
 Because that is the core issue in true worship. What counts is the presence of our mind in where we are. It is the presence of our mind in the spirit.
 
@@ -248,7 +248,7 @@ That means it is not strange at all to say music can happen in the natural while
 
 I hope you can notice something, that true worship is about God. It is not about us. It is not about our enjoyment at all. It is all about God.
 
-This is where we get to that issue where people ask about fast-paced songs and beats, and sometimes what people might call high praise. Is it that it is wrong? Maybe before I would have been faster to say, you know, it is wrong and all that. But I think we should slow down. It might not be that it is wrong. It is that we have to situate it rightly. We need wisdom, and wisdom is clarity. Every detail is there and can be explained. By the time you look at scriptures, you might find out that you cannot easily wish away certain things as a possibility in engaging true worship. But you can now think about how to situate them.
+This is where we get to that issue where people ask about fast-paced songs and beats, and sometimes what people might call high praise. Is it that it is wrong? Maybe before I would have been faster to you know, it is wrong and all that. But I think we should slow down. It might not be that it is wrong. It is that we have to situate it rightly. We need wisdom, and wisdom is clarity. Every detail is there and can be explained. By the time you look at scriptures, you might find out that you cannot easily wish away certain things as a possibility in engaging true worship. But you can now think about how to situate them.
 
 Use of music and musical instruments is an important aid and a consistent aid in true worship across scripture. We cannot deny that one. I am just showing us New Testament texts first, which is even more difficult to see here. "Speaking to yourselves in psalms and spiritual songs, singing and making melody in your heart to the Lord." All of those words are showing the kind of songs that usually come from instruments. They are showing both the use of music and musical instruments as a possibility.
 
@@ -276,7 +276,7 @@ Let us look at 1 Samuel chapter 10 and verse 5. Samuel was prophesying to Saul t
 
 So it was an aid to their worship of God and receiving from God. Music and musical instruments are an aid to true worship. But we must also be aware it is not true worship. True worship is the engagement with our spirit, with God who is Spirit, by our mind. Music is a vital effective aid through the ages for doing that.
 
-Now let us look at Psalm 149 and then we look at other effects. Psalm 149 says, let them sing praises to him with the timbrel and harp, and the Lord takes pleasure in his people. Let the saints be joyful in glory. Let them sing aloud on their beds. Let the high praises of God be in their mouth. Then Psalm 147:7, sing praises on the harp to our God. Psalm 150 and verse 3: praise him with the sound of trumpet, praise him with the lute and harp, praise him with the timbrel and dance, praise him with stringed instruments and flutes, praise him with loud cymbals, praise him with clashing cymbals. Let everything that has breath praise the Lord.
+Now let us look at Psalm 149 and then we look at other effects. Psalm 149 says, let them sing praises to him with the timbrel and harp, and the Lord takes pleasure in his people. Let the saints be joyful in glory. Let them sing aloud on their beds. Let the high praises of God be in their mouth. Then Psalm 147:7, sing praises on the harp to our God. Psalm 150 and verse 3: praise him with the sound of trumpet, praise him with the lute and harp, praise him with the timbrel and dance, praise him with stringed instruments and flutes, praise him with loud cymbals, praise him with clashing cymbals. Let everything that has breath
 
 So true worship is in the spirit, majorly with our mind. We can use music and musical instruments.
 
@@ -296,19 +296,19 @@ The choice of word matters there. He rejoiced in the Spirit. The joy came out fr
 
 Again, we must be clear. Laughter and rejoicing are the effect of worship. Sometimes people have taken it and extended it beyond limits. They are effects. They are not performances of true worship. You cannot just tell someone now, just rejoice, in a way that becomes performative. Of course believers can act on the word of God. You can say rejoice, and because we are full of the word we have things to rejoice about, we rejoice. But it cannot become performative. It is rather an effect.
 
-We can be singing and someone is just like, glory, and they rejoice. The way someone can just kneel down. Someone can lie down as an effect: wow, Lord, thank you. The awe of many things. We should not change the beauty of joy and rejoicing and laughter into performative things. This is how we always take things to an excess, and eventually it affects the consciousness of other people that are wondering what is going on now, and they are lost now. So this is a genuine thing of God, but it has been taken out of limits.
+We can be singing and someone is just like, glory, and they rejoice. The way someone can just kneel down. Someone can lie down as an effect: wow, Lord The awe of many things. We should not change the beauty of joy and rejoicing and laughter into performative things. This is how we always take things to an excess, and eventually it affects the consciousness of other people that are wondering what is going on now, and they are lost now. So this is a genuine thing of God, but it has been taken out of limits.
 
-So someone can be on his own rejoicing. A whole congregation might be rejoicing because someone is rejoicing, and still let us keep it as what it is, an effect. Can rejoicing be instructed? It can. Philippians 4, rejoice, again I say rejoice. So there can be ways we have maybe taught the gospel and say glory. There will be an atmosphere already filled with joy based on what has been taught. Maybe people have just heard about salvation in Christ. Someone says, guys, glory to God, can we just rejoice about that? The atmosphere already has it.
+So someone can be on his own rejoicing. A whole congregation might be rejoicing because someone is rejoicing, and still let us keep it as what it is, an effect. Can rejoicing be instructed? It can. Philippians 4, rejoice, again I say rejoice. So there can be ways we have maybe taught the gospel and say glory. There will be an atmosphere already filled with joy based on what has been taught. Maybe people have just heard about salvation in Christ. Someone says, can we just rejoice about that? The atmosphere already has it.
 
 And those who are not going into it, it can be for many reasons. Maybe the person's consciousness has not caught it, and it is not a problem. It should not be imposed. It should not be, rejoice, and if you are not rejoicing something is wrong with you. No. Let us keep it pure as it is. Like someone kneeling or worshiping, it is the person that is to do it. It is an effect.
 
 ## Laughter, Singing, and the Atmosphere of Joy
 
-The last one we are going to look at is dancing and clapping, but first Psalm 126 and verse 1. "When the Lord brought back the captivity of Zion, we were like them that dream." Imagine you think about your redemption. When you understand redemption, sometimes you sit down and think about your life and say, wow, thank you Lord, glory to God, and you can just rejoice. That rejoicing is like the person is jumping around, twirling about, rejoicing, glory to God. There is joy on the person's heart. It is like a jubilation.
+The last one we are going to look at is dancing and clapping, but first Psalm 126 and verse 1. "When the Lord brought back the captivity of Zion, we were like them that dream." Imagine you think about your redemption. When you understand redemption, sometimes you sit down and think about your life and wow, Lord,, and you can just rejoice. That rejoicing is like the person is jumping around, twirling about, rejoicing There is joy on the person's heart. It is like a jubilation.
 
-Sometimes it is not even coordinated. In a very critical situation, you can just burst out. It is just pure joy, and you do not even know what to do at the moment. Of course no believer can just rejoice anyhow in a fleshly way, but there can just be joy like, God, thank you. Glory to God. It is an effect of true worship.
+Sometimes it is not even coordinated. In a very critical situation, you can just burst out. It is just pure joy, and you do not even know what to do at the moment. Of course no believer can just rejoice anyhow in a fleshly way, but there can just be joy like, God It is an effect of true worship.
 
-Psalm 126 says, we were like those who dream. Then our mouth was filled with laughter and our tongue with singing. Have you ever been happy and you just start to sing? Sometimes a song is just on your heart and you just sing. He said there are times you can be full of joy, you are just laughing. Ah God, thank you. I am just laughing. Oh my God. Can you believe this? It is like a dream.
+Psalm 126 says, we were like those who dream. Then our mouth was filled with laughter and our tongue with singing. Have you ever been happy and you just start to sing? Sometimes a song is just on your heart and you just sing. He said there are times you can be full of joy, you are just laughing. Ah God I am just laughing. Oh my God. Can you believe this? It is like a dream.
 
 Sometimes you do not even know what you are doing. You are just whistling and you start to sing. That laughter that is like a dream, that kind of joy, is an effect. But once we make it performative, we start to get out of hand and out of the boundaries of the spirit.
 
@@ -316,7 +316,7 @@ There is such a laughter in the spirit, but it is an effect. If we make it perfo
 
 But there are times, the corporate atmosphere, particularly of rejoicing, where maybe something has been taught and people are like glory, and someone just says let us rejoice about that. It is okay. We should be sensitive to these things, yet we must be wise about them. Wisdom is critical.
 
-So laughter and rejoicing are effects of true worship. In that place, I worship, thank you, look what you have done, oh, thank you Lord. There is laughter. There is joy.
+So laughter and rejoicing are effects of true worship. In that place, I worship,, look what you have done, oh, Lord. There is laughter. There is joy.
 
 ## Dancing and Clapping
 
@@ -324,12 +324,12 @@ Now what about the place of dancing and clapping in true worship? Is there any p
 
 Like I said earlier, I want to repeat again, when Dan taught us this, his intentions were very clear, and those intentions, if we wish them away, we will suffer the repercussion by going back to some mess. It was clear that people were in the flesh. In fact, people were doing dance steps. He was mentioning some kind of dance step, maybe kangaroo or something. I am not sure those dance steps exist. Then he said even the women would be dancing ballet. He said, how can this ballet be in the spirit? He said that was distracting the brethren. He said this thing is not, there is no flow of the Spirit in this thing.
 
-And it is a genuine concern, because there are times people are dancing in church and doing what sounded like `kukere`, or something of that sort. I am not saying okay, I do not even care like that, but at least if you are doing that kind of thing, you are not really in the spirit like that. I can even make a case for it that you are still somewhere around the worship of God. But we know that the flow of the spirit cannot really be serious in that place. Let us face it. It is difficult to receive a revelation of God in that kind of atmosphere.
+And it is a genuine concern, because there are times people are dancing in church and doing what sounded like `kukere`, or something of that sort. I am not saying I do not even care like that, but at least if you are doing that kind of thing, you are not really in the spirit like that. I can even make a case for it that you are still somewhere around the worship of God. But we know that the flow of the spirit cannot really be serious in that place. Let us face it. It is difficult to receive a revelation of God in that kind of atmosphere.
 
-That kind of atmosphere is not a super, it cannot be that supernatural. And there might be nothing wrong with you because someone can dance normally, and someone can even dance with love for the Lord on their heart and that intention being present, even with their personal fun. But you know that kind of atmosphere is not the beginning of true worship. People just say, all right guys, are you ready? That kind of thing, you are not in the spirit, and the worship of God as we are called to is in the spirit.
+That kind of atmosphere is not a super, it cannot be that supernatural. And there might be nothing wrong with you because someone can dance normally, and someone can even dance with love for the Lord on their heart and that intention being present, even with their personal fun. But you know that kind of atmosphere is not the beginning of true worship. People just are you ready? That kind of thing, you are not in the spirit, and the worship of God as we are called to is in the spirit.
 
 So if at all there is laughter and rejoicing, or if at all there may even be dancing or clapping as a result, we must first have interacted with the Father. We must first have fellowshiped. Otherwise what people are looking forward to is just the fun. They are looking forward to the dancing because of the dopamine they got from the dancing, not because they are coming to engage God in the spirit.
 
 We have to have that right atmosphere first. If at all the result can be laughter and rejoicing, or even if at all the result may be dancing or clapping, we must have first interacted with the Father, we must have fellowshiped. Sometimes what people are even looking forward to is the dancing, and they know why they are looking forward to it. It is fun, is it not? It is the dopamine that they got from that dancing.
 
-So someone was talking and I was like, ah, this thing was dopamine. I was like, I miss this thing. You guys do not even know. I just come and I am like, ah. I was lamenting seriously. It was not about fullness of Christ church. It was about somewhere they just dance with that. I like that dancing. He had missed the dancing. Honestly, have you ever danced? You go correct. I just like dancing.
+So someone was talking and I was like, ah, this thing was dopamine. I was like, I miss this thing. You do not even know. I just come and I am like, ah. I was lamenting seriously. It was not about fullness of Christ church. It was about somewhere they just dance with that. I like that dancing. He had missed the dancing. Honestly, have you ever danced? You go correct. I just like dancing.

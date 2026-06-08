@@ -6,7 +6,7 @@ The reason is that when we say forgiveness of sins, there are different concepts
 
 So we must not assume that people understand forgiveness of sins. It is not even true, that assumption. Very false. There are people whose paradigm of forgiveness is more relational than redemptive. That is, it is based on how they are relating with God, that, ah, Lord, I've been doing well, now just this one I did, forgive me, and like God says, don't worry, I'm forgiving you. So their mindset about forgiveness of sins is not the biblical mindset.
 
-So we are going to be examining forgiveness of sins as the Bible teaches, and by that I mean as it is taught in the redemption accomplished in Christ. Now, much like the teaching on redemption, you'll find out that you can create descriptions of that forgiveness from the actual reality of how that forgiveness of sins operates. You can create descriptions of that forgiveness. You can say, ah, God forgave the guy, but how that forgiveness actually operates is a very sensitive subject matter.
+So we are going to be examining forgiveness of sins as the Bible teaches, and by that I mean as it is taught in the redemption accomplished in Christ. Now, much like the teaching on redemption, you'll find out that you can create descriptions of that forgiveness from the actual reality of how that forgiveness of sins operates. You can create descriptions of that forgiveness. You can ah, God forgave the guy, but how that forgiveness actually operates is a very sensitive subject matter.
 
 The reason for that is there are ways people teach forgiveness of sins that can breed licentiousness, and let's be honest, and there are ways people teach forgiveness of sins that can breed fear. So by the time we study on this subject matter, if we are going to have the effect that God intends for forgiveness of sins to have on us, which I'll show us what that effect should be, which is neither licentiousness nor fear, then we have to understand it properly.
 
@@ -18,7 +18,7 @@ When we are talking about forgiving one another as human beings, that is not an 
 
 So that's a legitimate case to ask for forgiveness. And you're not saying that you are not forgiven in Christ. You are saying, I have done wrong. You are now saying, oh, forgive me, and the person is saying, I forgive you. I show mercy towards you. I'm no longer holding it. I'm no longer counting it.
 
-So when you have done wrong, you should ask for forgiveness. When you have done wrong, you say, I'm sorry. You apologize. If saying forgive me is difficult, you can say, I'm sorry, I apologize. You are asking for the person to be merciful because the person is hurt and can respond with that hurt or can treat you with that hurt. Might not even attack you, but can at least put a boundary towards you because of the hurt. You are saying the person should show an act of mercy at that moment for a given situation.
+So when you have done wrong, you should ask for forgiveness. When you have done wrong, you I'm sorry. You apologize. If saying forgive me is difficult, you can I'm sorry, I apologize. You are asking for the person to be merciful because the person is hurt and can respond with that hurt or can treat you with that hurt. Might not even attack you, but can at least put a boundary towards you because of the hurt. You are saying the person should show an act of mercy at that moment for a given situation.
 
 But that is not the primary way forgiveness of sins is used in the faith.
 
@@ -42,9 +42,9 @@ So sin cannot hold us to any right to damn us, because sins, as evidence that we
 
 So if you are thinking of sins those two ways, if it is damnation, sins have no such hold on you. But notice I'm saying damnation, because in justice sins still have a hold in terms of rewards. This you have to be wholesome in Bible teaching. You cannot just say one thing and not say the other. You have to be wholesome.
 
-As much as sins have been dealt with such that you cannot be damned, it is still the same way true that sins hold weight in judgment before God. The sins, where you don't sin for this life, me and you, already have their consequence in judgment. But glory to God, we are not under the hold of sin, nor are we going to suffer the consequence of damnation, so that we now tell ourselves the truth the remaining part of our life, to be walking the way we are supposed to walk.
+As much as sins have been dealt with such that you cannot be damned, it is still the same way true that sins hold weight in judgment before God. The sins, where you don't sin for this life, me and you, already have their consequence in judgment. But, we are not under the hold of sin, nor are we going to suffer the consequence of damnation, so that we now tell ourselves the truth the remaining part of our life, to be walking the way we are supposed to walk.
 
-Forgiveness of sins is an accomplishment of redemption, not simply an act of mercy momentarily. Say, I've been set free from sin, and sins have been sent off me. So I have left that domain of sin, and sins, in their right to hold me under its domain or its consequence, have been sent off me. That is the forgiveness, that confidence we have that sin and its consequence of damnation has been addressed.
+Forgiveness of sins is an accomplishment of redemption, not simply an act of mercy momentarily. I've been set free from sin, and sins have been sent off me. So I have left that domain of sin, and sins, in their right to hold me under its domain or its consequence, have been sent off me. That is the forgiveness, that confidence we have that sin and its consequence of damnation has been addressed.
 
 ## A Present Continuous Possession
 
@@ -86,13 +86,13 @@ So it now says the master was angry and delivered him to the torturers until he 
 
 This is consistent. Let me show you another account that makes it even clearer, which is Luke's account. Luke chapter 6 and verse 35: love your enemies, do good, and lend, hoping for nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the unthankful and evil. Therefore be merciful, just as your Father also is merciful. That's example now.
 
-Now see the switch: judge not, and you shall not be judged. Condemn not, and you shall not be condemned. Forgive, and you will be forgiven. So this forgiveness here is not the forgiveness that is a redemption accomplishment. It is a relational issue in the justice of God, even as your Father. Are you paying attention? It is a relational issue in the justice of God, even as your Father.
+Now see the switch: judge not, and you shall not be judged. Condemn not, and you shall not be condemned. Forgive, and you will be forgiven. So this forgiveness here is not the forgiveness that is a redemption accomplishment. It is a relational issue in the justice of God, even as your Father.
 
 You cannot say forgiveness of sins in redemption and use these verses carelessly. This is why sometimes people are even frustrated with the Christian faith: how can you say that someone just does whatever he likes and then says forgiven and that's it? It's not it. The person is still going to bear the consequence of the justice of God.
 
 He used the idea that the measure of what you do is the same measure in justice, sometimes even more. That's why he now said, give and it will be given to you. It was not about money. It is about the way you'll be judged in justice, and what will be given to you is good measure, pressed down, shaken together, and running over, will be put into your bosom. With the same measure you use, it will be measured back to you. Please, there is justice.
 
-So are we together? You can say, oh, because I forgave, God forgave. Are you paying attention? In that relational sense, that you will be repaid for what you do, God forgiving as you forgive is a repayment for what you do. Sometimes a cessation of the wrongs that you have been doing because you have been unforgiving. You are continuing in God's justice, and it is only going to stop when you forgive.
+So You can oh, because I forgave, God forgave. In that relational sense, that you will be repaid for what you do, God forgiving as you forgive is a repayment for what you do. Sometimes a cessation of the wrongs that you have been doing because you have been unforgiving. You are continuing in God's justice, and it is only going to stop when you forgive.
 
 Let me explain again. If you have not forgiven someone, the judgment of your unforgiveness is continuing until you stop. That's when you are forgiven. Not that the old one. See, forgive people for your own sake. Sometimes don't forgive them for their sake. Forgive them for your own sake.
 
@@ -144,7 +144,7 @@ What people sometimes hear is not the forgiveness of sins in Christ. It is their
 
 ## Luke 24, Luke 7, and the Effect on the Heart
 
-Luke 24:47. We're looking at forgiveness of sins. So when the message is preached, Christ has done this work to forgive your sins and all that, what does it mean? Wow. So despite everything, I can come to God. Yes. Does it only happen that one time? No. You come back again. The reason for forgiveness is to come to God. God, thank you, for I still need help.
+Luke 24:47. We're looking at forgiveness of sins. So when the message is preached, Christ has done this work to forgive your sins and all that, what does it mean? Wow. So despite everything, I can come to God. Yes. Does it only happen that one time? No. You come back again. The reason for forgiveness is to come to God. God,, for I still need help.
 
 If you use forgiveness of sins to leave God, you better check whether you have been saved and check whether what you heard is right. Forgiveness of sins is to come back to God. How many times? As many times as possible.
 
@@ -160,7 +160,7 @@ So he said that it is just natural. What he is talking about is the emotional ef
 
 If you realize that the situation of all of us is bondage under sin, and that some people are just shining more than others, you realize it is the same weight of forgiveness that you have. You would have been thoroughly as damned as any other person. He's saying your conception of what God has done for you is low because of your pride. You have rated yourself too high. So you don't have enough value for what Christ has done, and that pride should be part of the reason why you are grateful, because that pride would have damned your head.
 
-Then he said to her, your sins are forgiven. And those who were at table with him began to say, who is this who even forgives sins? And he says, your faith has saved you. Go into peace.
+Then he said to her, your sins are forgiven. And those who were at table with him began to who is this who even forgives sins? And he says, your faith has saved you. Go into peace.
 
 Now I hope you are seeing the point. If someone hears forgiveness of sins and the person hears licentiousness, did the person hear right? It means the person teaching it taught licentiousness. The effect on the man's `nous`, on the man's heart, on the man's emotion, is, my God, I'm coming back to you.
 
@@ -186,15 +186,15 @@ Acts 11:18, slightly so, but yes, for the Gentiles, it turns them to repentance.
 
 Acts 26:20: but declared first to those in Damascus and in Jerusalem, and throughout all the region of Judea, and then to the Gentiles, that they should repent, turn to God, and do works befitting repentance. He said, I was not disobedient to the heavenly vision. I declared to those in Damascus, in Jerusalem, throughout all Judea, and to the Gentiles, that they should repent, turn to God, and do works befitting repentance.
 
-That means in this message is the comfort to come to God, that, ah, it's true, all of us are in this mess, we are under this bondage. Thank you Lord for your salvation and redemption, for your forgiveness of sins. Now we can do the works. We can live out that life. That is the nature of the message of forgiveness of sins, of the grace of God.
+That means in this message is the comfort to come to God, that, ah, it's true, all of us are in this mess, we are under this bondage. Lord for your salvation and redemption, for your forgiveness of sins. Now we can do the works. We can live out that life. That is the nature of the message of forgiveness of sins, of the grace of God.
 
-The product or the effect of forgiveness of sins is repentance and righteousness. Notice that they didn't just say the effect is repentance on its own. It was preached. They didn't say, ah, forgiven now, what's the big deal? No. Your sins are forgiven. You can turn to God. You can come to him. He is the one that offers that. He can comfort you in this. He has got you forgiven and he can help you to walk.
+The product or the effect of forgiveness of sins is repentance and righteousness. Notice that they didn't just say the effect is repentance on its own. It was preached. They didn't ah, forgiven now, what's the big deal? No. Your sins are forgiven. You can turn to God. You can come to him. He is the one that offers that. He can comfort you in this. He has got you forgiven and he can help you to walk.
 
 If that is not in the message, that it is repentance that comes from your sins being forgiven, what are you now preaching? You are leaving people to their already fleshly nature to react to what you are saying as they like. That's not the message. It is that he has forgiven you, you can always turn to him.
 
-See guys, when you sin, do what? Turn to God. There's no way they told us when we sin, forget about it, ignore it. It is not in the Bible. I know that there are many things that sometimes you might not necessarily be conscious of and your day just goes. But when you feel the weight of sin, or the sting of sin, whichever one, some is sting, some is weight, at that moment when you do feel like that, turn to God.
+See when you sin, do what? Turn to God. There's no way they told us when we sin, forget about it, ignore it. It is not in the Bible. I know that there are many things that sometimes you might not necessarily be conscious of and your day just goes. But when you feel the weight of sin, or the sting of sin, whichever one, some is sting, some is weight, at that moment when you do feel like that, turn to God.
 
-Not this bad behavior of people that will say, ah, I am forgiven, and then they chest it. It is by turning to God that forgiveness is for. That you are forgiven so you can turn to God like, Lord, thank you, and I'm sorry. You have sinned. Thank you for the forgiveness of sins, and I'm a new creation. I'm not there in my growth, but I am still trusting you. I'm still in faith. You turn to God.
+Not this bad behavior of people that will ah, I am forgiven, and then they chest it. It is by turning to God that forgiveness is for. That you are forgiven so you can turn to God like, Lord,, and I'm sorry. You have sinned. for the forgiveness of sins, and I'm a new creation. I'm not there in my growth, but I am still trusting you. I'm still in faith. You turn to God.
 
 This bad, dangerous behavior where people are hardening their heart towards God and yet adding in their head forgiveness of sins, what kind of behavior is that? That's not the forgiveness of Christ. That's lasciviousness. That's bad behavior. You repent.
 
@@ -218,11 +218,11 @@ If a man is actually a believer, he cannot live unrepentantly in sin long term. 
 
 The man that took his father's wife, they never at any point said he was not a believer. But they said they should treat him as though he wasn't, to the end that he repents. That means it was taken that he won't live in that long term. And if he doesn't, we have reason, since we even already have him as an unbeliever, to start to think maybe he's even an unbeliever.
 
-People ask that with what you say, are you saying can a believer lose salvation, can he not lose salvation? That one requires a proper teaching because I don't think I want to be giving a yes or no answer to that question. I would rather give you the views of different traditions in the church since the inception of the church, and you see that almost everybody's view is the same: that an unrepentant sinner is not a Christian, even if he is saying he's a Christian. Nobody will accept it.
+People ask that with what you are you saying can a believer lose salvation, can he not lose salvation? That one requires a proper teaching because I don't think I want to be giving a yes or no answer to that question. I would rather give you the views of different traditions in the church since the inception of the church, and you see that almost everybody's view is the same: that an unrepentant sinner is not a Christian, even if he is saying he's a Christian. Nobody will accept it.
 
-Some say, well, he never got born again in the first place. Sometimes to say that, some people look at someone and, looking at everything, it looks like he was born again, so maybe he lost it. But what the conditions are upon which you lost it, we have scripture to show that some people can look like they were born again for a while and they were not. So at the end of it, it depends on which position you want to take.
+Some well, he never got born again in the first place. Sometimes to say that, some people look at someone and, looking at everything, it looks like he was born again, so maybe he lost it. But what the conditions are upon which you lost it, we have scripture to show that some people can look like they were born again for a while and they were not. So at the end of it, it depends on which position you want to take.
 
-I don't know. What I know is that if you are saved, you are saved. Me, I know that if you are saved, you are what? Saved. Because if you are saved, you'll be repentant. Say, if you are saved, you are safe, whether that safety is a condition of the fact that you are saved or it's guaranteed in the fact that if you are saved, you are saved, be repentant. If you are repentant, you are saved and you are safe.
+I don't know. What I know is that if you are saved, you are saved. Me, I know that if you are saved, you are what? Saved. Because if you are saved, you'll be repentant. if you are saved, you are safe, whether that safety is a condition of the fact that you are saved or it's guaranteed in the fact that if you are saved, you are saved, be repentant. If you are repentant, you are saved and you are safe.
 
 So what happens when we sin? Our sins are forgiven, but our sins are still judged. That's the truth. Sins are forgiven in terms of damnation, but they are still judged as a matter of God's justice.
 
@@ -244,7 +244,7 @@ Then the last one: we acknowledge our new nature for growth. So after he told th
 
 So what do we do when we sin? We repent, acknowledging our sins in remorse, forgiveness in Christ by faith, and then our new nature for growth also by faith.
 
-People say, what about confessing my sins when I sin? You can do that if it makes you feel good, but there's no scriptural injunction or pattern to do that. But repentance is a scriptural instruction, and that's that you recognize, Lord, this is wrong. Thank God I'm forgiven, and no, this is not who I am. It's not, Father, I have done this, I confess, please now forgive me. That forgiveness is in Christ. You do repent, no doubt. The response to sin is not nothing. The response to sin is repentance.
+People what about confessing my sins when I sin? You can do that if it makes you feel good, but there's no scriptural injunction or pattern to do that. But repentance is a scriptural instruction, and that's that you recognize, Lord, this is wrong. Thank God I'm forgiven, and no, this is not who I am. It's not, Father, I have done this, I confess, please now forgive me. That forgiveness is in Christ. You do repent, no doubt. The response to sin is not nothing. The response to sin is repentance.
 
 And I've given the general model of repentance: acknowledging sin in sorrow, acknowledging forgiveness in Christ, acknowledging our nature for growth. It might be one second. It might happen instantly. It can be longer. And it always depends.
 
@@ -256,7 +256,7 @@ So look at 1 John 1:9. Sometimes people say 1 John 1:9 is instructing us to list
 
 If you are walking in such falsehood, agnosticism, where you say you have no sin, you deceive yourself and the truth is not in you. Then he now says, but if we confess our sins, that means they admit.
 
-Do you know why it says our, that people have taken it like that? It is because, as people say, he was using the editorial we. Do you know when I write on Facebook I like using editorial we, and it is normal? There is a point in authority that you don't want to use too much you. Particularly when you are trying to woo people. These people are not believers and he's trying to woo them, that if we are doing like this. So some say, if we act like this, you see many of the posts, if we do this, they are like this. But some, I switch to you in some cases.
+Do you know why it says our, that people have taken it like that? It is because, as people he was using the editorial we. Do you know when I write on Facebook I like using editorial we, and it is normal? There is a point in authority that you don't want to use too much you. Particularly when you are trying to woo people. These people are not believers and he's trying to woo them, that if we are doing like this. So some if we act like this, you see many of the posts, if we do this, they are like this. But some, I switch to you in some cases.
 
 So he says, if we say we have no sin. Is he saying we have no sin? He is not. But he is using that we, that editorial we, that way of writing. So he's saying those who deny the reality of sin, that it is just an illusion and all of those, then when they now accept, that word confess is to admit. `Homologeo` there is to admit. When they accept their sins, he is faithful and just to forgive our sins and to cleanse us from all unrighteousness. That's salvation.
 
@@ -278,22 +278,22 @@ Forgiveness of sins is a present continuous reality for the believer in Christ, 
 
 That's the sweetness of our life. We know we are going to have times to repent. We know for some people there will be particular areas that are a challenge, a stronghold that they will have to deal with in repentance and in faith until they have victory over it. And that is also part of the Christian life. It doesn't mean they lose their repentance to hardness of heart in the process. No. The Christian life is a life of walking in forgiveness, repentance, and righteousness by faith.
 
-Thank you Lord Jesus.
+Lord Jesus.
 
 ## Closing Confessions
 
-Forgiveness, repentance, and righteousness by faith. Say, my sins are forgiven. So Jesus would say, your sins are forgiven. He that is forgiven much loveth much, not he that is forgiven much lives for self. He that is forgiven much loveth much. He turns, the emotions will turn to God.
+Forgiveness, repentance, and righteousness by faith. my sins are forgiven. So Jesus would your sins are forgiven. He that is forgiven much loveth much, not he that is forgiven much lives for self. He that is forgiven much loveth much. He turns, the emotions will turn to God.
 
-Lord, these issues. He that is forgiven much loveth much. Your sins are forgiven. Say, my sins are forgiven. My sins are forgiven. I turn to God. And because my sins are forgiven, like, Lord, this one I've done now, I'm sorry if I've made a mistake. What's going on here? How should I have handled this? What should I have done? Should I have done like this? And I'll affirm, in situations like this, if I find out I was wrong, this is what I do.
+Lord, these issues. He that is forgiven much loveth much. Your sins are forgiven. my sins are forgiven. I turn to God. And because my sins are forgiven, like, Lord, this one I've done now, I'm sorry if I've made a mistake. What's going on here? How should I have handled this? What should I have done? Should I have done like this? And I'll affirm, in situations like this, if I find out I was wrong, this is what I do.
 
-My sins are forgiven. Say, my sins are forgiven. Can you imagine that? Look at the joy of that. My sins are forgiven. Thank you Lord Jesus. My sins are forgiven.
+My sins are forgiven. Can you imagine that? Look at the joy of that. My sins are forgiven. Lord Jesus. My sins are forgiven.
 
 Now why are we teaching forgiveness of sins? Because when it says, in him we have, it is one of the things in the newness of life. That means we are meant to have a forgiveness consciousness that makes us repentant and righteous. In him we have redemption, the forgiveness of sins.
 
 And he showed us that there is a kind of consciousness that is not forgiveness-conscious, where sins might be hanging on a balance, whether yearly, whether monthly, whether daily. If you are in that state where sins are hanging on a balance, you will be sin-conscious. We are called to be forgiven-conscious. In him we have the forgiveness of sins. Forgiven of our sins once and for all, so we are forgiveness-conscious.
 
-My sins are forgiven. My sins are forgiven. You know that my sins are forgiven is the confidence for healing as well. It is the confidence for almost everything in the faith. He saw that man that was bedridden. They brought him and he said, your sins are forgiven. He said, which one is easier to say, rise up and walk, or your sins are forgiven? Can you imagine saying that your sins are forgiven is harder to say? That means the deliverance from sin and death is the other part. This is an effect. It is the first and primary reality in our faith.
+My sins are forgiven. You know that my sins are forgiven is the confidence for healing as well. It is the confidence for almost everything in the faith. He saw that man that was bedridden. They brought him and he said, your sins are forgiven. He said, which one is easier to rise up and walk, or your sins are forgiven? Can you imagine saying that your sins are forgiven is harder to say? That means the deliverance from sin and death is the other part. This is an effect. It is the first and primary reality in our faith.
 
-My sins are forgiven. Say, my sins are forgiven. Well, some people don't have sins, so they might not be able to love much. We that we have sins, we know ourselves. My sins are forgiven. Now we are growing in righteousness, no doubt. But we know that we were sinners. Amen. We are not sinners. Glory to God. We are doing great. We were sinners forgiven by his grace.
+My sins are forgiven. Well, some people don't have sins, so they might not be able to love much. We that we have sins, we know ourselves. My sins are forgiven. Now we are growing in righteousness, no doubt. But we know that we were sinners. We are not sinners. We are doing great. We were sinners forgiven by his grace.
 
-My sins are forgiven. Say, my sins are forgiven. My sins are forgiven. My sins are forgiven. I'm not sin-conscious. I'm forgiveness-conscious. I'm forgiveness-conscious. In him I have forgiveness. In him I have forgiveness. I am in the truth. I am in the light. The blood of Jesus Christ cleanses me from all sins. The blood of Jesus Christ cleanses me from all sins. I have a present continuous reality of forgiveness. I have a present continuous reality of cleansing from sins. I have a present continuous reality of forgiveness of sins.
+My sins are forgiven. I'm not sin-conscious. I'm forgiveness-conscious. In him I have forgiveness. I am in the truth. I am in the light. The blood of Jesus Christ cleanses me from all sins. I have a present continuous reality of forgiveness. I have a present continuous reality of cleansing from sins. I have a present continuous reality of forgiveness of sins.
