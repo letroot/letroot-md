@@ -18,7 +18,7 @@ Let's get right into it. Welcome back to the Pleros podcast. This is your daily 
 
 Welcome to Pleros Rose Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be.
 
-Let's get right into it. Welcome back to the Pleros Rose Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this particular episode, we're going to be starting a new subject matter, which is our righteous nature in Christ.
+Let's get right into it. &gt;&gt; Welcome back to the Pleros Rose Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this particular episode, we're going to be starting a new subject matter, which is our righteous nature in Christ.
 
 Again, our righteous nature in Christ. Now, first thing I want to clarify is that our study on our righteous nature in Christ is not disconnected from everything else we've been looking at. In fact, it is directly connected with what we've been looking at on the newness of life. So, with that recognition, we are going to begin to examine in this subject matter, our righteous nature in Christ.
 
@@ -98,7 +98,7 @@ I'm going to read Romans chapter 6 again. He said in verse 2, "Certainly not. Ho
 
 2 Corinthians 5:17, "If any man be in Christ is a new creation." And here he's not speaking of that life including the external realities, even though the new creation functions in the external realities of the inner self life, he's speaking about the person himself and the nature he has. Therefore, we are looking at our righteous nature in Christ. You see that this new man involves the righteous nature we have from verse 13, where he says we also present our bodies going forward as instruments of righteousness. Time has run on us here.
 
-We are going to pick it up from here, continuing to study our righteous nature in Christ. See you on the next one. God bless you for few God's purpose. 
+We are going to pick it up from here, continuing to study our righteous nature in Christ. See you on the next one. God bless you for few God's purpose. &gt;&gt;
 
 ## Closing Charge
 

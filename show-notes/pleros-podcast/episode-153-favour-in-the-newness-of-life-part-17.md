@@ -18,7 +18,7 @@ Let's get right into it. Welcome back to the Pleros podcast. This is your daily 
 
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
 
-Let's get right into it. Welcome back to the Pluros podcast. We're still looking at favor in the newness of life. And we are about to conclude the teaching.
+Let's get right into it. &gt;&gt; Welcome back to the Pluros podcast. We're still looking at favor in the newness of life. And we are about to conclude the teaching.
 
 Um we should have about one or two more episodes after this to end the teaching. We have seen there is such a reality that we can believe for called favor. That is the gracious, benevolent working of God's goodness proactively, actively and reactively that works for a person's pleasure or their fulfillment of God's purpose. There is such a reality.
 
@@ -108,7 +108,7 @@ My orchestrations helped you and by my spirit or by my being with you, my blessi
 
 God made me have natural well-being. God made me rich. If the hands of the diligent mixed read, we are to credit that to his wisdom and his spirit. We wouldn't be wrong to say that what will become wrong is put a pressure on people beyond natural well-being that then says oh anyone that doesn't have that is not walking in the spirit that may not that would not be right rather that would not be right at all but is God that works for our natural wellbe is God that works for our prosperity and wealth for our being rich whichever one it is God that works in all of that even when people are generous to us people that in their streets that needs that need generosity of people is God that works in the hearts of people to be generous to us like Elijah with the widow of um Zarapath.
 
-All right, on that note, we're going to wrap up this session and hopefully by the next one, we're going to conclude on this and show how we increase in favor or how we affect the favor of God in our lives. God bless you. Thank you and see you on the next one. 
+All right, on that note, we're going to wrap up this session and hopefully by the next one, we're going to conclude on this and show how we increase in favor or how we affect the favor of God in our lives. God bless you. Thank you and see you on the next one. &gt;&gt;
 
 ## Closing Charge
 

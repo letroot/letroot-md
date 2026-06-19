@@ -18,7 +18,7 @@ Let's get right into it. Welcome back to the Pleros podcast. This is your daily 
 
 Welcome to Glorious Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be.
 
-Let's get right into it. Welcome back to the Glorious Podcast. Now, in this particular episode, we're continuing our study on favor in the newness of life, and I believe um we've come a long way if you've been following, and now we're rounding off, you know, what we have seen is that there's such a reality as favor in the life God intended for man at the at the beginning. That's still available today, and we'll be considering it at the end.
+Let's get right into it. &gt;&gt; Welcome back to the Glorious Podcast. Now, in this particular episode, we're continuing our study on favor in the newness of life, and I believe um we've come a long way if you've been following, and now we're rounding off, you know, what we have seen is that there's such a reality as favor in the life God intended for man at the at the beginning. That's still available today, and we'll be considering it at the end.
 
 We saw it in the person of the Lord Jesus, Luke 2:52, Luke 2:40, and then in the church, Acts 2:47. Also, we saw it with the people of Israel, um Exodus 11:3, Exodus 12:36. Now, with that said, we have to ask the question, what exactly is this favor about? We can tell from the many things said in this text.
 
@@ -100,7 +100,7 @@ So, here we see God's favor via the ministry of angels and also because Abraham 
 
 So, favor we can see work in different regards for preservation, for provision, for Yeah, for provision um, concerning the direction of one's natural assignment. We can see favor at work. Noah's case was preservation um, for the fulfillment of God's purpose generally for humanity, Genesis chapter 3 as well. We're going to pick it up from here.
 
-We'll be looking at the case of Jacob next and Jacob has quite some things to say, including the ministry of angels as we'll see. Thank you for God's purpose and see you on the next one. 
+We'll be looking at the case of Jacob next and Jacob has quite some things to say, including the ministry of angels as we'll see. Thank you for God's purpose and see you on the next one. &gt;&gt;
 
 ## Closing Charge
 

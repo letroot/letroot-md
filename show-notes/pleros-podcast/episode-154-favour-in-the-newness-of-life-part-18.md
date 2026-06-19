@@ -16,7 +16,7 @@ Let's get right into it. Welcome back to the Pleros podcast. This is your daily 
 
 ## Favour in the Newness of Life
 
-Let's get right into it. Welcome back to the Pleros Podcast. We intend to conclude our study on favor in the nowness of life in this particular episode. We've come a long way in this study.
+Let's get right into it. &gt;&gt; Welcome back to the Pleros Podcast. We intend to conclude our study on favor in the nowness of life in this particular episode. We've come a long way in this study.
 
 We've seen that there is such a thing as favor. It's right from the person of the Lord Jesus, from the church, as well as from the people of Israel. In the case of the Lord Jesus, it was said in Luke chapter 2:52 that he increased in wisdom and stature, as well as in favor with God and with men. And also earlier in verse 40, it was mentioned that the child grew, became strong in spirit, filled with wisdom, and the grace of God was on him.
 
@@ -122,7 +122,7 @@ All right, on that note, thank you so much. It's been a while looking at favor a
 
 It works with productivity. And then, where there are external difficulties, generosity is not a room for laziness or trying to force God's hand to do anything. It's rather working with how God has instructed us to work in this world across all areas of our lives. On that note, God bless you.
 
-Thank you. Fulfill God's purpose and see you on the next one. 
+Thank you. Fulfill God's purpose and see you on the next one. &gt;&gt;
 
 ## Closing Charge
 

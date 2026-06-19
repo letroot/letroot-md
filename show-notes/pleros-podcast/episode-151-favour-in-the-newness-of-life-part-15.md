@@ -16,7 +16,7 @@ Let's get right into it. Welcome back to the Pleros podcast. This is your daily 
 
 ## Favour in the Newness of Life
 
-Let's get right into it. All right, welcome back to the Pleros Podcast. We're still looking at favor in the newness of life. Presently, we are seeing um the interaction between favor, which is God's supernatural power for good, with things like provision, money, wealth, finances, prosperity, et cetera.
+Let's get right into it. &gt;&gt; All right, welcome back to the Pleros Podcast. We're still looking at favor in the newness of life. Presently, we are seeing um the interaction between favor, which is God's supernatural power for good, with things like provision, money, wealth, finances, prosperity, et cetera.
 
 And the reason we have taken quite some time on this is because if we do not rightly draw the boundaries on this on this particular in this particular area, we are likely to see people run off inadvertently maybe or sometimes intentionally with the great with greed um and making a mess of biblical truths. So, there is truly such a thing as favor, which is the benevolent gracious working of God's goodness, you know, for a a person's pleasure or their fulfillment of God's purpose. We see first in the life of the Lord Jesus, Luke chapter 2 and verse 52 as well as 40. It will say that the Lord increased in wisdom and stature and then in favor with God and men.
 
@@ -102,7 +102,7 @@ That's how the heavenly Father feeds them alongside His favor. Very important. Y
 
 Favor across different instances awesomely. We'll be seeing the example of Hagar in Genesis 16. We'll get to Joseph, Jacob, Joseph, etc. You know, all the way down and see how God's favor works in our lives across different areas including our spiritual assignment, our natural assignment, um our relationships.
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. 
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt;
 
 ## Closing Charge
 

@@ -5,7 +5,7 @@ tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=cb4n_wBYYhk"
 type: solo
 ---
-
+	
 # Favour in the Newness of Life (Part 7)
 
 ## Introduction
