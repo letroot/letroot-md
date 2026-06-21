@@ -1,0 +1,75 @@
+---
+title: "Our Righteous Nature in Christ (Part 6)"
+date: 2026-06-20
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=LebLbDWbDlQ"
+type: solo
+---
+
+# Our Righteous Nature in Christ (Part 6)
+
+## Introduction to the Pleros Podcast
+
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are continuing our study on our righteous nature in Christ.
+
+## Righteousness as the Primary Internal Reality
+
+We have settled the fact that in the newness of life, we do not only have external realities, but also internal ones. And when we speak about the internal realities in the newness of life, righteousness is primary. And we did that from Romans chapter 6. When Romans 6:4 mentions walking in the newness of life, it was particularly keen on the internal reality of the old man being gone and a new man being in place. So, it was describing life from its internal standpoint.
+
+Now, the use of life across the scriptures, the New Testament text, the epistles, and even the entirety of the Bible is not restricted to internal realities alone. So, if we speak about life only that way, we are not being complete. We are not being wholesome. Notwithstanding, there is an emphasis, no doubt, on the life of God within us, the life that we now possess. But you may almost argue that there's kind of balance. You might see a lot of text talking about life as a world, the life that is to come. We are going to enter into eternal life, we will inherit life. And you'll see just about a good number of text in the same way speaking about life as a possession. You will have eternal life. You will have like a possession of the life being in you. You know, it as the son has life. He that has not the son does not have life. 1 John 3 and verse 15 will say that we know that no murderer has eternal life abiding in him. So, this is life within the person. Yet, the earlier text has spoken about, we know we have passed from death to life, which is life as a world because we love the brethren.
+
+With this in mind, understanding the life that we have in Christ as both external and internal, we are switching our attention to the internal because we've solved the external in the early episodes of the podcast where we saw healing, preservation, and favor in the newness of life. And the first thing we're seeing on the internal side of this new life is righteousness as a nature. Righteousness as a nature.
+
+## The Body of Sin and the Body of Righteousness
+
+Now, but we said that there's a lot said about righteousness as I see it being a nature. Even though without doubt it's just spoken of as a nature, but we have a body of righteousness. For example, when he said the body of sin in Romans 6 and 6, he will later go on to say in Romans 6:12 and 13 that you should not let sin reign in your mortal body, that you should bathe in his lust. Do not present your members. So, he's talking about the members of your body. And this will not just be physical body, but also spiritual body, your spirit man. Because he had used the word body of sin before as dead and gone. But, your mortal body ain't dead and gone. I mean, your physical mortal body is still there. But, you should not allow sin to reign whilst you're still in this mortal body. You know that you should obey it in his lust. And you should not present your members as instruments of unrighteousness to sin, but your members as alive unto God and instruments of righteousness.
+
+So, we are supposed to see the members of our spirit man, the person that we are, the makeup that we are as righteous, not as unrighteous. You would later see in Romans 6:19 that you should recall that you have always presented yourself as slaves of uncleanness and of lawlessness. So, there is the understanding of righteousness as a nature.
+
+## Put On the New Man in Righteousness
+
+Another text that makes it very clear is Ephesians 4, sorry, and verse 24, where Paul says, "Put on the new man." Talking about putting on the realities of our spirit as new when we are born again. In our mind, put it on on your mind. Put on the new man, which is created after God in righteousness and holiness of truth. So, he's saying that in our new man being created after God is created in a state where it is righteous and sacred or holy from the standpoint of being defined by the truth.
+
+## What Is Righteousness?
+
+Now, this brings us to the important question we were trying to answer from the last episode, which is what is righteousness? And we said we're particularly keen on these because when we're reading through scripture, we not only see righteousness used as a nature, we also happen to see it used as a status. On one hand, we're looking at righteousness in an ontological sense. On the other hand, it's like a status. On the other hand, it's even in a legal sense, which means juridical. You are righteous because you have been so declared. You can say you are righteous in you are because you're in a righteous state, condition. Or you have a righteous nature. And you could say you're in a righteous state from a legal or a juridical standpoint.
+
+And this is saying to us what? Let's quickly see in Romans, the same Romans that speaks about righteousness as a nature in Romans 6. We'll see where righteousness is spoken of not as a nature primarily, but as a status, as a state in Romans chapter 3.
+
+We're going to just read from 20. It says, I'll start from 19, I think it'll be better. It says, "Now, we know that whatever the law says, it says to those who are under the law that every mouth may be stopped and the whole world may become guilty before God." So, you see this concept of guilt before God being brought up. "Therefore, by the deeds of the law, no flesh will be justified." And that word justified is a righteousness word. What is the verb of righteousness? Dikaiō. "By the deeds of the law, no flesh will be justified in his sight, for by the law is the knowledge of sin." You can imagine he's saying guilty before God, before God. Then he says, "justified in his sight." You know, this is juridical. Like this is legal. Like this is standing before someone in judgment. That's the kind of picture that is being painted here. You're guilty before God, you are then justified in his sight.
+
+Verse 21 will go on to say, "But now the righteousness of God apart from the law is revealed, being witnessed by the law and prophets, even the righteousness of God through faith in Jesus to all and on all who believe, for there is no difference, for all have sinned and fallen short of the glory of God, being justified freely by his grace through the redemption that is in Christ Jesus." So, he says this justification happens reckoning that we cannot be justified by the law, that we cannot have the righteousness we ought to have before God by the law, we now happen to have this justification or this righteousness by the grace found in the redemptive work of Christ through the redemption that is in Christ Jesus.
+
+There's a lot to unpack there, but we are only going to be able to make sense of seeing righteousness as a status before God and seeing righteousness as a nature within us when we actually understand what the word righteousness itself means. What exactly is righteousness? Is it to assume that we know it? Is it righteousness that was doing good things? What exactly is good? And these are terms we tend not to define because we assume that we intuitively know what it is. But if we don't define it and spell it out, then when people throw questions about how do you know certain things are wrong or certain things are sinful or certain things are bad or you make judgments on people, you say, "Well, whatever God said in his word is wrong is wrong." And of course, God by nature would not say anything else but what is right. But is that what makes it right? Is it right because God says so or is it right because it's right? Is it right because that's God's view of right?
+
+## The Fruit of the Light
+
+To answer all of this, I want us to hold on and see one more text, Ephesians 5, then we get into the word righteousness. Also, I will encourage you to listen to the teaching the truth of morality on, I think it should be on the Pleros Perfecting Course level three. You should try to listen to the truth of morality, Pleros Perfecting Course level three. You might find it in other places on maybe in the library they might be a whole other teaching on the truth of morality in the Pleros library as well that may help you to understand this, but I don't think that one is as well explained as the one that will be in Pleros Perfecting Course level three. I think that that was better explained.
+
+Now, in Ephesians 5 and verse 8, notice what Paul is saying here. And this text is going to be so key and helpful. So, I want us to pay attention. It says, "For you were once darkness." So, this is talking about our state, our spiritual state before. You were once darkness, but now you are light in the Lord. Walk as children of light for the fruit of the spirit. Now, critical text has it as the fruit of the light, okay? And which means it's arguably more aligned with the original writings of the Apostle Paul himself. So, the critical text has that the fruit of the light is in all goodness, righteousness, and truth.
+
+Let's read again because you need to pay attention to what he just said. You were once darkness, now you are light in the Lord. Walk as children of light for the fruit of the light is in all goodness, righteousness, and truth. Finding out what is acceptable to the Lord. Do you notice this word truth comes up again with righteousness like we saw in Ephesians 4:24. We should put on the new man that is created in righteousness and holiness of truth. Yeah, the fruit of the light is in all goodness, righteousness, and truth.
+
+Now, the interesting thing is like the only word that helps us in this verse 9 is the word truth because by the time you go into it, you can't really define what good and righteous means. They are qualifiers. They are just descriptions. If I say that thing is right, that thing is wrong. There are two ways you can say something is right and wrong. Now, if I say 2 + 2 is 5, you will surely say that is wrong. This is for descriptive things. If I point to a red chair and I say the chair is blue, you are like, "That is wrong. The chair is not blue." So, when things are descriptive, it's easy to say right or wrong.
+
+But, when I'm talking about what ought to be done, what is often called the is-ought argument, what is can easily be explained in terms of right and wrong, but what ought to be cannot easily be explained in terms of right and wrong. And in the case of saying goodness, righteousness, we're not talking about what is, we're talking about what ought to be, what is good morally, what ought to be done. So, what is right morally, what ought to be done. So, goodness, righteousness, and truth. He's saying that there's something about the truth when you know it that helps you understand what is good and what is right in a moral sense, not in the descriptive sense, in the is sense, in the sense of what is, and in the ought sense.
+
+So, there's something about knowing the truth that helps you know what is right and what is good in the ought sense. Now, when you know the truth, you also can tell what is right in the is sense. Okay, if I say 2 + 3 = 5 because you know the truth, you know mathematically 2 + 3 = 5, you say that is right. But, something about truth also helps you to answer what is right or what is not right in the ought sense. And in this case, it's going to be a bit more nuanced because when Paul now says, you know that what is good and what is right by truth, and that's the way you find out what is acceptable to the Lord, what ought to be done, what is acceptable to the Lord. And that the righteousness in you is also a righteousness and holiness of truth. In Ephesians 4:24, it means what has been made in us is a righteousness that is defined by the truth.
+
+## The Gospel as the Word of Truth
+
+Now, what truth are we talking about? You may recall that in Ephesians chapter 1 and 13, Paul had called the gospel the word of truth. He says, we believe the gospel after we heard the word of truth. We believed in Jesus after we heard the word of truth, the gospel of salvation. He did the same thing in Romans 1:16 downwards, where he said believing the gospel makes us righteous, but when people do not believe that the wrath of God is upon them because they are suppressing the truth. So, he's calling the gospel again the truth.
+
+But, in Romans 1, what's good is he goes on to explain why the gospel is the truth. He said, because what may be known of God is manifest in them because God has shown it to them. Paul is arguing that by creation, by nature, you might want to say, by nature, like the external world has nature, by the cosmos, by creation, God has shown people what the truth is and so it is on their heart, is on their mind, is manifesting them, is on their mind because it has been shown to them by the cosmos or by creation.
+
+Now, there's a lot to unpack and we are just about to do that, to see how do we know what is righteous. One thing he's saying there is going to be the need to introduce some what we might want to argue are necessary axioms. People that are not of the faith of Christ may argue differently, but we're going to see that to explain what Paul here means by finding out what is right or finding out what is good by truth. When we do, it's going to help us understand how God framed this world at the beginning, which then talks about the role of God as judge, but also righteousness as a matter of nature. And we'll see how justification, righteousness as a status, and then the righteous nature are connected.
+
+If it's a bit confusing for now, I'll just ask that you be patient, listen to the episodes that follow because they are going to help you have more clarity on this as we proceed.
+
+## Closing
+
+For now, thank you, God bless you, fulfill God's purpose, and see you on the next one.
+
+We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleros.org. You will find answers to your questions on the gospel, God's purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleros_org. For now, stay blessed and keep walking in His purpose.
