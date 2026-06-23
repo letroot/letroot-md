@@ -1,0 +1,97 @@
+---
+title: "Our Righteous Nature in Christ (Part 8)"
+date: 2026-06-23
+tags: [podcast, pleros]
+url: "https://www.youtube.com/watch?v=mHBjUodbAEI"
+type: solo
+---
+
+# Our Righteous Nature in Christ (Part 8)
+
+## Introduction to the Pleros Podcast
+
+Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+
+## Review: External and Internal Realities of the New Life in Christ
+
+Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We're looking at the subject matter our righteous nature in Christ and what we've tried to do in the earlier episodes is to settle that in the newness of life that we have in Christ. We do not only have external realities, but also internal ones. And just like we talk about the life of any creature animal, we will talk about the external conditions of the life that they have as well as the internal conditions regarding their nature or describing their nature. And it's the same thing that is true of the new creation. So, we could speak of the new creation as having a kind of life, but also there is an external world that defines the life that we have. So, if you're talking about a blue whale or any other kind of whale, you are saying the specific things that define that particular animal, that particular creature, but also their life is in water, which is the external conditions or realities of that life.
+
+So, I won't spend quite some time on the podcast looking at the external realities of the newness of life. We saw healing, preservation, and favor in the newness of life. We are looking now into the internal realities of this life we have in Christ. And we said in Romans chapter 6 when Paul spoke about the newness of life, his focus was on the internal realities. Though we did study and see that when this life is spoken of generally in God's word it extends to an external world, external realities that would eventually find their consummation, their end, their fruition, their complete state at the coming of the Lord, yet the internal reality was heavily focused on as well in God's word.
+
+So in Romans 6 when he says Christ having been raised from the dead is to the end that we walk in the newness of life, verse 5, 6, we want to talk about the change that has happened on the inside of us. He says if we are planted together in the likeness of his death so shall we be in the likeness of his resurrection, knowing that the old man has been crucified with Christ, the body of sin done away with so that we are no longer slaves of sin. You'll go on to emphasize how we are now dead to sin and alive to God and he will call us to reckon ourselves that way as dead to sin, alive to God, and present our members, our body as instruments of righteousness, not instruments of unrighteousness. So all of this is to say that on the inside we have a nature that is righteous. We must reckon that there's a nature we have and that nature is righteous.
+
+## Righteousness as Status and as Nature
+
+We pointed out that righteousness is just to talk about our status as well. You find texts such as Romans 4:25 and Romans 5 and verse 1 talking about justification or righteousness from the standpoint of our status. Also Romans chapter 3, if you read verse 19 and 20, in the sight of God no flesh shall be justified. Romans 3 verse 19 says therefore by the deeds of the law no flesh shall be justified in God's sight, for by the law is the knowledge of sin. All of these texts point out the use of righteousness as a status.
+
+You see Romans 1 and 3:21 to 26 speak about righteousness as a status, not as a nature. But there's also the use of righteousness as a nature. Another text I will point out is Ephesians 4:24, put on the new man, which is created after God in righteousness and holiness of truth. So, he's saying the very makeup of the new man that we have today, which we have to put on on our mind, is that it is made after God. So, it is divine. It is made after God in righteousness and holiness of truth. Very important.
+
+Also, 2 Corinthians 5:17, if any man be in Christ, he's a new creation. Old things are passed away. All things are become new. The next verse, verse 18, will say all things are of God. So, the very things in us that are new, which is everything in us that is new, you're talking about everything in our spirit that is new, is of God. So, everything in our spirit is divine. Very important detail. Everything in our spirit is divine. You could look at other texts like 1 Corinthians 6:17, he that is joined to the Lord is one spirit with him. So, of course, we share the exact same realities with Christ. 2 Peter 1:4, we are partakers of the divine nature. On and on and on we can go. There is such a thing as our nature. There's a new nature that we have beyond just wearing a new life. All these external realities are available. There is also the fact that we have a new nature in Christ. And that's a very important detail that we must acknowledge.
+
+## The Challenge of Defining Righteousness
+
+But here, our question is, how do we understand righteousness? Before we are able to properly express what it means that we are righteous as a status and also that we have a righteous nature, we need to resolve how we understand righteousness itself. What is righteousness or what does it mean to be righteous?
+
+I said, the challenge with the word righteous or good is that they are qualifying words. And if you don't know the actual quality that is used to make those qualifications, you're going to have a challenge explaining what it is. And it's very common when it comes to morality, this comes up a whole lot. When you tell someone, "This is wrong." And they say, "Why is it wrong?" I mean, you just know it's wrong intuitively. Really? So, there is no parameter exactly to judge what is right or wrong. Then they say, "Okay, if God says it's wrong, it's wrong." But then that question doesn't end there. Is it wrong because God says so, or God says so because it is wrong? So, it means it is not wrong in itself. God merely says so, and that's going to be challenged. But then if you say it is wrong in itself, not merely because God says so, what quality makes something wrong and something right?
+
+And this is important because we are in the domain of moral subjectivity versus moral objectivity. And just a very even a very weak reading of scripture would give you the sense that scripture holds a moral objective view. An objective view of morality. You can see when they are speaking about morality, they don't feel it's subjective. And many times they will talk about things without even saying God said not do this. They'll just say that's just what is right and that's just what is wrong. But it's because there was an understanding of the premise upon which the objectivity of morality was based that we can miss if we are not paying attention.
+
+## The Fruit of the Light: Goodness, Righteousness, and Truth
+
+And the text we have been centering on to explain this is Ephesians chapter 5, where Paul makes some vital statements that we have then began to open up from the last episode, and I trust we'll be able to like conclude in this one. In Ephesians chapter 5 and in verse 8, Paul says, "For you were once darkness, but now you are light in the Lord." He says, "Walk as children of light, for the fruit of the light" — if you are using critical text or you're using KJV and KJV that uses Textus Receptus, you'll see the fruit of the spirit. Okay? So, the fruit of the spirit or the fruit of the light is in all goodness, righteousness, and truth.
+
+He's saying the things that the spirit will produce or this light's nature would produce are things that are good, things that are right, and they have truth. That means this judgment of being good and right is done as a matter of truth. It's not really helpful when he simply says the fruit of the spirit or the light is goodness, right and natural. Like what makes something good or what makes something right? But he's answering the question because he adds "and truth." Finding out what is acceptable to the Lord. That means truth is the means by which we make the judgment in different cases of what is acceptable to the Lord.
+
+And an important detail to mention here is Paul's reckoning that all questions are not going to be answered about what is right and wrong. But those who are born of God are going to bear the fruit of that nature they have, which would be good and right as a matter of truth, finding out what is acceptable to the Lord. So you would have to make judgment from time to time about what is acceptable to the Lord in different scenarios. You won't expect the scripture to have answered every single detail for you, particularly because technology develops for us new possibilities of morality and immorality. And we must be aware of that.
+
+## What Truth Is the Parameter of Judging Righteousness?
+
+So, the real question at this point is what truth is the parameter of judging righteousness? And is this truth going to show itself objective in judging righteousness? What truth is Paul speaking of? Well, in Ephesians 1 we can very well tell that from the very inception he had referred to the gospel of salvation as the message of truth. Ephesians 1:13, in Christ we trusted after we heard the word of truth, the gospel of salvation.
+
+Romans 1 will go for that to say. Also, Romans 1 will also express the same thoughts. In Romans 1 and verse 16 he mentioned that he's not ashamed of the gospel, it's the power of God to salvation to everyone that believes, to the Jew first also to the Greek. For therein the righteousness of God is revealed from faith to faith. As it is written, the just shall live by faith. So, he's telling us the gospel saves those who believes, it makes them right. It reveals God's righteousness when people believe. But on the other hand, verse 18 goes on to say the wrath of God is revealed against all ungodliness and all unrighteousness of men who suppress the truth in unrighteousness.
+
+So, those who don't believe the gospel, which he describes as they are suppressing the truth in unrighteousness, what is revealed to them is the wrath of God. Those who believe, what is revealed to them is the righteousness of God. So, in the gospel, the righteousness of God is revealed to those who believe, and in the same message, the wrath of God is revealed to those who don't believe or who suppress the truth. Why did he call it the truth? In the next verse, verse 19, he says, "For what may be known of God is manifest in them." It's on their mind. "For God has shown it to them."
+
+## The Evidence of God in Creation
+
+All right. So, what may be known of God is manifest in them. "For God has shown it to them." He says, "For since the creation of the world" — this is verse 20 — "for since the creation of the world, the invisible attributes of God are clearly seen, being understood by the things that are made." So, he's saying by the creation or by the cosmos, what God has made, we can see the invisible attributes or realities of God, even his eternal power and Godhead.
+
+Now, the first thing he's saying we can see when we observe the cosmos is the fact that there is God in the first place. So, he's saying they are without excuse relative to accepting the truth of God. You can read that from his thoughts, because what may be known of God. So, they can come to know God and things about him is manifest in them for God has shown it to them. He's making the case that there is no reason for anyone to be atheist. That means to not receive the truth of God. That is, God has given sufficient evidence in creation, in the cosmos, in nature to lead us to the conclusion that he exists.
+
+And the evidence we can study from all of scripture, something we also see in Psalm 19 as it was referenced in Romans 10. The evidence is about the finitude of the cosmos and the contingency of the cosmos. Now, we can't go into detail on explaining that because this would not be the right place for that. It's going to take a lot of time. We have done that somewhere else. You could also look for it on the website pleros.org. But, the finitude of the cosmos and the contingency of the cosmos lead us to the conclusion that there has to be God.
+
+## Seeing God's Nature Through Creation
+
+But, then that's not all he said. Verse 20 says, "For the invisible things of him are clearly seen, being understood by the things that are made, even his eternal power and Godhead." That word Godhead, theotetos, is the word for divinity. Talking about the nature of someone is using a noun from an adjective. Theotetos from theos. So, theos is like divine, which is from — we have theos, God, that leads to theios, divine, and then to theotetos, divinity. So, we can see his eternal power, we can argue that that means God is self-existent. So, his self-existent ability to bring forth a finite world, a contingent world.
+
+All right, but we can also see his Godhead, his nature from the world he has made. And this is the important part. What do we know about God's nature from the world he has made? One thing is clear, if we can observe that there is God from the cosmos and we know that by nature, by necessity, he must be self-existent, I am that I am. Then, his nature would be that which is first. His nature cannot be the absence of the first or the contradiction to the first. Since he is primary, he is first, he is self-existent, he is necessary, his nature would be exactly what is primary and first.
+
+And that is why the framework of life and death, light and darkness is used to explain his nature. The framework of light and darkness, life and death is used to explain his nature. And one of the texts that does this is 1 John chapter 1 and verse 5. John said in 1 John 1:5, "God is light. In him is no darkness at all."
+
+## Light and Darkness: Primary Reality and Secondary Contradiction
+
+Now, at this juncture, you'll be wondering what light exactly are they talking about or darkness, is it something physical, but it's just a way of explaining — it is just using a concept people can understand about a primary reality and a secondary contradiction. So, we can understand from light and darkness how it operates, a primary reality and a secondary contradiction, which would then be taken into other things like life and death that will open us further into our understanding of God's nature.
+
+If God is self-existent, his nature will be that which is first and primary, not that which is secondary or contradictory. It can't be something that happens later. It is something that is initial, that is first, that is primary, which is light. Light is first. It's the absence of light that then brings about darkness. In fact, if you check the word for darkness, particularly in Hebrew, I believe also in Greek, the very word means withdrawn light. It means light being withdrawn. So, the state of darkness is the absence of light.
+
+Light is not the absence of darkness, even though of course when there's light there's an absence of darkness. Light is just an original reality that can be conceptually compared to a state when that light is absent, that is called darkness. It's the same way with life and death. You can have life and only conceptually imagine death when life is absent, but you can't speak of death if there isn't initially life. And I hope we are not making you confused at this point, but this is fundamental to biblical theology and also other kinds of philosophical reasoning that I intertwine with biblical theology.
+
+And it's in this sense that you find John saying 1 John 1:5, "God is light. In him is no darkness at all." Or you find John writing John 1:1-4, particularly verse 4, "In him was life, and the life was the light of men." It's why Ephesians 5:8 say, you were once darkness, but now you are light in the Lord. And we are seeing here that they are describing God after life and describing the contradiction to God with the word death. And there's so much to unpack here, but when you observe the world we are in, where we see a contradiction, a contradiction of good and evil, of life and death, we are witnessing an understanding of God's nature as opposed to that which is contrary nature. His nature must necessarily be light. His nature must necessarily be life.
+
+How then do we have death and darkness if it's not from him? It means there's an account that must make for how death and darkness came to be. An account Paul made in Romans chapter 5. We'll get to that in the next episode, but what we want to make clear is that if God's nature is life and light, there would be the need for an axiom to bring about moral objectivity.
+
+## The Necessary Axiom for Moral Objectivity
+
+Now, remember that we said descriptive truths are objective. If something is black, it's black. If 1 + 1 = 2, it's 2. But prescriptive truths are not immediately objective. This is what we ought to do. Who says so? Now, an axiom will become necessary. The same way we need an axiom to have any other form of truth, to trust our senses and our reason, we need an axiom that our senses and reasoning actually work. They are actually trustworthy. For morality, we would need an axiom.
+
+If God's nature is life or light, what ought to be done is what is of life and light. We need an axiom. The nature of the self-existent is what ought to be done. Let me put it another way. The axiom will go first. The nature of the self-existent is what ought to be done. So, whatever is the nature of God is what we ought to do. Is what is right to do. So, whatever is of life, whatever is of light, whatever is primary and initial, whatever is of the primary order is what we ought to do.
+
+## Closing: Righteousness Is Life
+
+And there's so much on park here, but I'm going to leave us with one text so that we have a form of closure at this point and it's a very important one. Galatians chapter 3 and in verse 21. Paul says this in verse 21, is the law then against the promises of God? Certainly not. For if there had been a law given which could have given life, truly righteousness would have been by the law. That means what is right is life. If the law could have given life for people to express it, then righteousness would have simply be fulfilled by the law. But the law simply stated what is of life but did not give life.
+
+What the scriptures consider to be objectively right is whatever is of life or whatever is of light. We're going to explain this in subsequent episodes, but for now, thank you. God bless you. Fulfill God's purpose. And if you are confused, please be patient. Next or subsequent episodes will make it clearer. See you on the next one.
+
+## Outro
+
+We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleros.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at pleros_org. For now, stay blessed and keep walking in his purpose.
