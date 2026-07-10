@@ -1,0 +1,32 @@
+{
+  "version": 1,
+  "updated_at": "2026-07-10",
+  "exclusions": [
+    "show-notes/pleros-podcast",
+    "show-notes/CHT-1st-Century",
+    "show-notes/CHT-Deep-Dives",
+    "show-notes/CHT-Modern-Church",
+    "church-history material"
+  ],
+  "history": [
+    {
+      "date": "2026-07-10",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/alex-hormozi/1-why-being-fast-makes-you-always-win-thank-me-later.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "decision-making",
+        "tradeoffs",
+        "execution-speed",
+        "hidden-stagnation",
+        "focus",
+        "positioning"
+      ],
+      "summary": "Hard decisions signal the easy gains are gone; speed comes from naming real tradeoffs and choosing deliberately instead of preserving drift."
+    }
+  ]
+}
