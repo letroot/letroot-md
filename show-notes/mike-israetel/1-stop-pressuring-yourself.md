@@ -14,41 +14,41 @@ Dr. Mike from the Making Progress Channel makes a deeply counterintuitive argume
 
 ## Key Insights
 
-- **The_Backwards_Pressure_Problem**: [[Self-Imposed Pressure]]. People cosplay pressure as if they are in a life-or-death situation when the stakes are mundane. Pressure should come from the difficulty of the task, not from a self-imposed emotional burden layered on top.
+- **The Backwards Pressure Problem**: [[Self-Imposed Pressure]]. People cosplay pressure as if they are in a life-or-death situation when the stakes are mundane. Pressure should come from the difficulty of the task, not from a self-imposed emotional burden layered on top.
 
-- **Worth_Tying**: When you put too much pressure on yourself, every outcome becomes a referendum on your core worth. A missed workout or bad day at work transforms from "today sucked" into a personal indictment. [[High Pressure]] means everything counts, but it doesn't.
+- **Worth Tying**: When you put too much pressure on yourself, every outcome becomes a referendum on your core worth. A missed workout or bad day at work transforms from "today sucked" into a personal indictment. [[High Pressure]] means everything counts, but it doesn't.
 
-- **Two_Approaches_to_Difficult_Work**: One approach says "the pressure is on, I better be my best" and produces people who burn out. The other says "let's see how good I can do this, this is going to be fun" and produces every tech founder ever. [[Curiosity]] and [[Competence]] beat [[Dread]] and [[Shame]] as motivators.
+- **Two Approaches to Difficult Work**: One approach says "the pressure is on, I better be my best" and produces people who burn out. The other says "let's see how good I can do this, this is going to be fun" and produces every tech founder ever. [[Curiosity]] and [[Competence]] beat [[Dread]] and [[Shame]] as motivators.
 
-- **Fatigue_Leakage**: Self-imposed pressure creates a situation where you spend enormous time and bandwidth worrying about the work before actually doing it. You arrive at work already psychologically drained. This is separate from the actual difficulty of the work.
+- **Fatigue Leakage**: Self-imposed pressure creates a situation where you spend enormous time and bandwidth worrying about the work before actually doing it. You arrive at work already psychologically drained. This is separate from the actual difficulty of the work.
 
-- **Procrastination_Connection**: High pressure makes tasks [[Emotionally Radioactive]]. It's no longer just "answer emails" but "prove I'm not a useless piece of everything." That insane framing leads to procrastination because the task becomes unbearably loaded.
+- **Procrastination Connection**: High pressure makes tasks [[Emotionally Radioactive]]. It's no longer just "answer emails" but "prove I'm not a useless piece of everything." That insane framing leads to procrastination because the task becomes unbearably loaded.
 
-- **Attention_Narrowing**: High pressure narrows attention, which is great for crisis but terrible for typical work. In crisis mode, [[Creativity]], [[Strategic Thinking]], and [[Social Judgment]] go down the drain. You contract instead of expanding.
+- **Attention Narrowing**: High pressure narrows attention, which is great for crisis but terrible for typical work. In crisis mode, [[Creativity]], [[Strategic Thinking]], and [[Social Judgment]] go down the drain. You contract instead of expanding.
 
-- **Loss_Prevention_vs_Profit_Expansion**: Pressure makes you think "how do I prevent loss" instead of "how can I expand profit." One has a bottom, the other is limitless. [[Nvidia]] didn't become a $3 trillion company by people trying to prevent failure; they built something no one had ever done before.
+- **Loss Prevention vs Profit Expansion**: Pressure makes you think "how do I prevent loss" instead of "how can I expand profit." One has a bottom, the other is limitless. [[Nvidia]] didn't become a $3 trillion company by people trying to prevent failure; they built something no one had ever done before.
 
-- **Risk_Tolerance_and_Billionaires**: A finance professional who met many billionaires said the key separator between billionaires and multi-multi-millionaires was not intelligence, competence, or work ethic, it was [[Risk Tolerance]]. You have to be psychologically free to do your best work, and pressure constrains you.
+- **Risk Tolerance and Billionaires**: A finance professional who met many billionaires said the key separator between billionaires and multi-multi-millionaires was not intelligence, competence, or work ethic, it was [[Risk Tolerance]]. You have to be psychologically free to do your best work, and pressure constrains you.
 
-- **Perfectionism_Spiral**: When your standard becomes perfect and you know you can't meet it, the work becomes pointless and nothing gets done. Many people never start entrepreneurial ventures because they feel they must be perfect. [[Perfectionism]] is dog shit. Every piece of content Dr. Mike has ever made was imperfect.
+- **Perfectionism Spiral**: When your standard becomes perfect and you know you can't meet it, the work becomes pointless and nothing gets done. Many people never start entrepreneurial ventures because they feel they must be perfect. [[Perfectionism]] is dog shit. Every piece of content Dr. Mike has ever made was imperfect.
 
-- **Content_Creation_Advice**: The number one way to be a successful [[Content Creator]] is literally just to make content. You don't have to know much, you just have to yap a lot and keep going.
+- **Content Creation Advice**: The number one way to be a successful [[Content Creator]] is literally just to make content. You don't have to know much, you just have to yap a lot and keep going.
 
-- **Consistency_Over_Grind**: [[Consistency]] beats intensity. Success is mostly a matter of waking up in the morning, doing high-quality work four to five days a week. The stories of 15-hour days are temporary blocks, not a lifestyle.pressure makes consistency hard because high pressure means high fatigue, and you can't sustain numerous days of high output with accumulating fatigue.
+- **Consistency Over Grind**: [[Consistency]] beats intensity. Success is mostly a matter of waking up in the morning, doing high-quality work four to five days a week. The stories of 15-hour days are temporary blocks, not a lifestyle.pressure makes consistency hard because high pressure means high fatigue, and you can't sustain numerous days of high output with accumulating fatigue.
 
-- **Rest_Is_Productive**: There are only two things that make you successful: diligent work and plenty of recovery so you can do diligent work again. Self-imposed pressure turns rest into guilt, which undermines the recovery that actually enables productivity. [[Recovery]] is not a drag, it is what makes you productive.
+- **Rest is Productive**: There are only two things that make you successful: diligent work and plenty of recovery so you can do diligent work again. Self-imposed pressure turns rest into guilt, which undermines the recovery that actually enables productivity. [[Recovery]] is not a drag, it is what makes you productive.
 
-- **The_Brattle_Under_Pressure**: If you're always at your brink from self-imposed pressure, when real pressure hits, you're already spent. Someone fresh off the plane responds to a crisis far better than someone who has been in a firefight for 36 hours.
+- **The Battle Under Pressure**: If you're always at your brink from self-imposed pressure, when real pressure hits, you're already spent. Someone fresh off the plane responds to a crisis far better than someone who has been in a firefight for 36 hours.
 
-- **Two_Work_Modalities**: Creative free work for production, then a separate vetting session where pressure is appropriate. Treat the rough draft as low-pressure creation, then turn the pressure on during the editing and vetting phase. Putting pressure on during rough draft creation kills output entirely.
+- **Two Work Modalities**: Creative free work for production, then a separate vetting session where pressure is appropriate. Treat the rough draft as low-pressure creation, then turn the pressure on during the editing and vetting phase. Putting pressure on during rough draft creation kills output entirely.
 
-- **Relationship_Damage**: Pressure leaks out sideways as [[Irritability]], impatience, and withdrawal. You start cos playing suffering because it makes you seem serious, but seriousness has nothing to do with your facial expression. It has everything to do with doing the job diligently. Period.
+- **Relationship Damage**: Pressure leaks out sideways as [[Irritability]], impatience, and withdrawal. You start cos playing suffering because it makes you seem serious, but seriousness has nothing to do with your facial expression. It has everything to do with doing the job diligently. Period.
 
-- **Hollywood_Myth_of_Pressure**: Movies portray pressure as "think think think" and squinting, but actual pressure response is calm: "this is happening, okay, I have an idea." Repeating "think think think" occupies bandwidth that could be used to solve the problem. Stop cos playing productivity.
+- **Hollywood Myth of Pressure**: Movies portray pressure as "think think think" and squinting, but actual pressure response is calm: "this is happening, okay, I have an idea." Repeating "think think think" occupies bandwidth that could be used to solve the problem. Stop cos playing productivity.
 
-- **The_Better_Path**: Instead of pressure: calmly choose reasonable but difficult goals, find out how much regular work is required, schedule the work, do the work as scheduled, re-evaluate regularly, and let the work itself bring the pressure when it naturally arises.
+- **The Better Path**: Instead of pressure: calmly choose reasonable but difficult goals, find out how much regular work is required, schedule the work, do the work as scheduled, re-evaluate regularly, and let the work itself bring the pressure when it naturally arises.
 
-- **The_Gym_Analogy**: The best lifters are super relaxed. They chat with front desk people, warm up with gym buddies, and only get serious when working weight is on the bar. When pressure hits during the set, they respond. When the set is done, they chill again. That's how you win at work too.
+- **The Gym Analogy**: The best lifters are super relaxed. They chat with front desk people, warm up with gym buddies, and only get serious when working weight is on the bar. When pressure hits during the set, they respond. When the set is done, they chill again. That's how you win at work too.
 
 ## Coach's Corner
 
