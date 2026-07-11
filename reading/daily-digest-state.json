@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-10",
+  "updated_at": "2026-07-11",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -27,6 +27,25 @@
         "positioning"
       ],
       "summary": "Hard decisions signal the easy gains are gone; speed comes from naming real tradeoffs and choosing deliberately instead of preserving drift."
+    },
+    {
+      "date": "2026-07-11",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/pragmatic-engineer/1-building-opencode-with-dax-raad.md"
+      ],
+      "source_folders": [
+        "show-notes/pragmatic-engineer"
+      ],
+      "concept_tags": [
+        "product-judgment",
+        "shipping-restraint",
+        "ai-assisted-development",
+        "quality",
+        "feedback-loops",
+        "first-time-user-experience"
+      ],
+      "summary": "AI can increase output without improving progress; founders still need judgment, direct feedback loops, cleanup, restraint, and quality standards."
     }
   ]
 }
