@@ -174,3 +174,20 @@
 
 ### Action Rule
 - For daily digests, scan current vault files under included folders each run, prefer fresh eligible notes when they match the lane, and record usage in the state file.
+
+## [2026-07-11] Session Note
+
+### Mistake
+- No mistake; user provided the Telegram group target for morning digest delivery.
+
+### Correction
+- Verified OpenClaw can send to Telegram group `-1004474889053` and updated the daily digest automation to send the readable digest there as well as posting in the current thread.
+
+### Lesson
+- Telegram delivery can be layered onto the current-thread digest heartbeat through `openclaw message send` without reintroducing a separate Codex cron/task.
+
+### Preference (if any)
+- Morning digests should be delivered in this current ChatGPT/Codex thread and also to Telegram group `-1004474889053`.
+
+### Action Rule
+- After generating/pasting a daily digest, send the same readable digest body to Telegram with `openclaw message send --channel telegram --target -1004474889053 --message ...`; if Telegram send fails, still post in chat and mention the failure.
