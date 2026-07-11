@@ -1,0 +1,22 @@
+.ibooks-highlights-template > .setting-item-control > textarea,
+.ibooks-highlights-file-naming-template > .setting-item-control > textarea {
+  width: 100%;
+  overflow: auto;
+}
+
+.ibooks-highlights-template > .setting-item-control > textarea {
+  height: 350px;
+}
+
+.ibooks-highlights-folder > .setting-item-control.setting-error > input {
+  border-color: #b00;
+}
+
+.modal-rewrite-book-title {
+  color: var(--interactive-accent);
+  text-align: center;
+}
+
+.modal-rewrite-all-books {
+  color: var(--interactive-accent);
+}
