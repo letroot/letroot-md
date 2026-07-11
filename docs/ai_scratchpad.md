@@ -157,3 +157,20 @@
 
 ### Action Rule
 - When generating daily digests, treat Christian book notes as out of scope by default alongside Pleros and church-history material.
+
+## [2026-07-11] Session Note
+
+### Mistake
+- No mistake; user asked whether new notes are tracked by the daily digest workflow.
+
+### Correction
+- Updated the digest automation to dynamically scan included source folders each run and apply a freshness bias for new eligible notes.
+
+### Lesson
+- Digest source scope should be folder-dynamic, not a fixed list captured at automation setup time.
+
+### Preference (if any)
+- New eligible notes should enter the morning digest rotation automatically, while exclusions still apply.
+
+### Action Rule
+- For daily digests, scan current vault files under included folders each run, prefer fresh eligible notes when they match the lane, and record usage in the state file.
