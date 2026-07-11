@@ -1,239 +1,451 @@
----
-title: "How to Get Rich"
-author: "Felix Dennis"
-date: 2026-06-24
-tags: [wealth, entrepreneurship, ownership, execution, cash-flow, talent, delegation, negotiation, self-belief]
-source: "Apple Books"
----
+Title:: How to Get Rich
+Author:: Felix Dennis
+Link:: [Apple Books Link](ibooks://assetid/B44851959E5421089CFF2C0CEE29C757)
 
-# How to Get Rich
+## Annotations
 
-**Author:** Felix Dennis
+Number of annotations:: 56
 
-## The Instinct to Seize Opportunity
+----
 
-What separates the self-made rich from the comfortably poor isn't intelligence or pedigree — it's the willingness to act when opportunity appears, even against conventional wisdom. Execution of a strategy matters more than the industry or the obsession behind it.
+- 📖 **Chapter**:: N/A
+- **Context**:: It is the instinct to seize an opportunity when it presents itself that perhaps sets apart the self-made filthy rich from the comfortably poor, the willingness to ignore conventional wisdom and risk everything on what others consider to be folly.
+- **Highlight**:: It is the instinct to seize an opportunity when it presents itself that perhaps sets apart the self-made filthy rich from the comfortably poor, the willingness to ignore conventional wisdom and risk everything on what others consider to be folly.
+- Note:: N/A
 
-> It is the instinct to seize an opportunity when it presents itself that perhaps sets apart the self-made filthy rich from the comfortably poor, the willingness to ignore conventional wisdom and risk everything on what others consider to be folly.
+----
 
-> Their ability to take chances and to subsequently exploit initial success counted more than their inclination toward a particular industry. Their execution of a strategy trumped the subject of their obsession.
+- 📖 **Chapter**:: N/A
+- **Context**:: Their ability to take chances and to subsequently exploit initial success counted more than their inclination toward a particular industry. Their execution of a strategy trumped the subject of their obsession.
+- **Highlight**:: Their ability to take chances and to subsequently exploit initial success counted more than their inclination toward a particular industry. Their execution of a strategy trumped the subject of their obsession.
+- Note:: N/A
 
-## Boldness and Self-Belief
+----
 
-Dennis returns repeatedly to the theme of boldness. Fortune doesn't just favor the brave — it favors the bold. Conventional caution is the enemy of wealth. You must weigh the odds, then act with conviction, ignoring the sensible people around you.
+- 📖 **Chapter**:: N/A
+- **Context**:: Whatever your inclinations, your aptitude, your abilities or your preferences, never shrink when opportunities arrive. If you have weighed the odds and find yourself convinced, ignore the protestations of sensible people and their conventional caution.
+Seize Lady Luck by the forelock and hang on for your life.
+- **Highlight**:: Whatever your inclinations, your aptitude, your abilities or your preferences, never shrink when opportunities arrive. If you have weighed the odds and find yourself convinced, ignore the protestations of sensible people and their conventional caution.
+Seize Lady Luck by the forelock and hang on for your life.
+- Note:: N/A
 
-> Whatever your inclinations, your aptitude, your abilities or your preferences, never shrink when opportunities arrive. If you have weighed the odds and find yourself convinced, ignore the protestations of sensible people and their conventional caution. Seize Lady Luck by the forelock and hang on for your life.
+----
 
-> Fortune favors not just the brave but the bold. Boldness has a kind of genius in it, as Goethe pointed out. It can lead to complete failure and defeat, because conventional wisdom often proves to be at least wisdom of a kind. But should boldness succeed, should the chance be seized and sufficiently well executed, then success will surely lead to glory.
+- 📖 **Chapter**:: N/A
+- **Context**:: Fortune favors not just the brave but the bold. Boldness has a kind of genius in it, as Goethe pointed out. It can lead to complete failure and defeat, because conventional wisdom often proves to be at least wisdom of a kind. But should boldness succeed, should the chance be seized and sufficiently well executed, then success will surely lead to glory.
+- **Highlight**:: Fortune favors not just the brave but the bold. Boldness has a kind of genius in it, as Goethe pointed out. It can lead to complete failure and defeat, because conventional wisdom often proves to be at least wisdom of a kind. But should boldness succeed, should the chance be seized and sufficiently well executed, then success will surely lead to glory.
+- Note:: N/A
 
-## Staying Alert to Opportunity
+----
 
-Opportunities are everywhere, every day. What separates those who spot them is alertness, preparation, boldness, self-belief, and — crucially — indifference to what the neighbors think.
+- 📖 **Chapter**:: N/A
+- **Context**:: All around us, every day, opportunities to get rich are popping up. The more alert you are, the more chance you have of spotting them. The more preparation you have done, the more chance you have of succeeding. The more bold you are, the better chance you have of getting in on the ground floor and confounding the odds. The more self-belief you can muster, the more certain will be your aim and your timing. And the less you care what the neighbors think, the more likely you are to take the plunge and exploit an opportunity.
+- **Highlight**:: All around us, every day, opportunities to get rich are popping up. The more alert you are, the more chance you have of spotting them. The more preparation you have done, the more chance you have of succeeding. The more bold you are, the better chance you have of getting in on the ground floor and confounding the odds. The more self-belief you can muster, the more certain will be your aim and your timing. And the less you care what the neighbors think, the more likely you are to take the plunge and exploit an opportunity.
+- Note:: N/A
 
-> All around us, every day, opportunities to get rich are popping up. The more alert you are, the more chance you have of spotting them. The more preparation you have done, the more chance you have of succeeding. The more bold you are, the better chance you have of getting in on the ground floor and confounding the odds. The more self-belief you can muster, the more certain will be your aim and your timing. And the less you care what the neighbors think, the more likely you are to take the plunge and exploit an opportunity.
+----
 
-## Execution Over Ideas
+- 📖 **Chapter**:: N/A
+- **Context**:: Having a great idea is simply not enough. The eventual goal is vastly more important than any idea. It is how ideas are implemented  that counts in the long run.
+- **Highlight**:: Having a great idea is simply not enough. The eventual goal is vastly more important than any idea. It is how ideas are implemented  that counts in the long run.
+- Note:: N/A
 
-This is perhaps the book's most persistent theme. A great idea without execution is worthless. You can succeed without a single original idea if you're skilled at executing the great ideas of others. The goal matters more than the idea; implementation trumps conception every time.
+----
 
-> Having a great idea is simply not enough. The eventual goal is vastly more important than any idea. It is how ideas are implemented that counts in the long run.
+- 📖 **Chapter**:: N/A
+- **Context**:: If you want to be rich, then watch your rivals closely and never be ashamed to emulate a winning strategy.
+- **Highlight**:: If you want to be rich, then watch your rivals closely and never be ashamed to emulate a winning strategy.
+- Note:: N/A
 
-> If you want to be rich, then watch your rivals closely and never be ashamed to emulate a winning strategy.
+----
 
-> The problem with the great idea is that it concentrates the mind on the idea itself. This is fine as far as it goes. But unless the idea is executed efficiently and with panache and originality, then it doesn't matter how great the idea is, the enterprise will fail. Ideas are certainly of immense importance, but I have seen so many people attempting to create a start-up company become obsessed with proving that their idea is "right" rather than obsessed with making money. And I have watched them wasting years doing it.
+- 📖 **Chapter**:: N/A
+- **Context**:: The problem with the great idea is that it concentrates the mind on the idea itself. This is fine as far as it goes. But unless the idea is executed efficiently and with panache and originality, then it doesn’t matter how great the idea is, the enterprise will fail. Ideas are certainly of immense importance, but I have seen so many people attempting to create a start-up company become obsessed with proving that their idea is “right” rather than obsessed with making money. And I have watched them wasting years doing it.
+- **Highlight**:: The problem with the great idea is that it concentrates the mind on the idea itself. This is fine as far as it goes. But unless the idea is executed efficiently and with panache and originality, then it doesn’t matter how great the idea is, the enterprise will fail. Ideas are certainly of immense importance, but I have seen so many people attempting to create a start-up company become obsessed with proving that their idea is “right” rather than obsessed with making money. 
+- Note:: N/A
 
-> If you never have a single great idea in your life, but become skilled in executing the great ideas of others, you can succeed beyond your wildest dreams. Seek them out and make them work. They do not have to be your ideas. Execution is all in this regard.
+----
 
-## The Refusal to Be a Wage Slave
+- 📖 **Chapter**:: N/A
+- **Context**:: If you never have a single great idea in your life, but become skilled in executing the great ideas of others, you can succeed beyond your wildest dreams. Seek them out and make them work. They do not have to be your ideas. Execution is all in this regard.
+- **Highlight**:: If you never have a single great idea in your life, but become skilled in executing the great ideas of others, you can succeed beyond your wildest dreams. Seek them out and make them work. They do not have to be your ideas. Execution is all in this regard.
 
-The emotional engine behind wealth creation is an absolute refusal to retreat to the safety of a decent job. This stubborn, almost irrational determination is the "secret ingredient" Dennis identifies.
+- Note:: N/A
 
-> That was the secret ingredient. I would not be a wage slave. I would not take "no" for an answer. I would not give in. I was going to be rich. Some how. Some way. Someday soon. And I would not retreat to the safety of a decent job until I was starved out of house and home.
+----
 
-## Cash Flow as Lifeblood
+- 📖 **Chapter**:: N/A
+- **Context**:: The dolphins are consummate professionals—to them you are just another amateur in the sea trying to stay afloat, to grow, to make his or her financial dreams come true. Amateurs are easy meat. (Real-life dolphins, by the way, are not the gentle creatures children believe them to be. They can be dangerous and their beaks are as hard as bone. They can, and do, batter sharks to death in massed attacks if they have to. And their appetite is prodigious.)
+Having avoided the sharks and perhaps swum with the dolphins, we turn to the fishes. How I love the fishes! How you will learn to love them, too!
+It was via the fishes that I made my own first money—the seed capital which ensured that I retained control and ownership of my own business back in the early days of Dennis Publishing. Fishes come in all shapes and sizes. Friends, acquaintances, relatives, business colleagues, small investors, friendly bank managers of the old school, professional advisors, ex-employers, suppliers and vendors are among them. But how can they be of any use?
+- **Highlight**:: The dolphins are consummate professionals—to them you are just another amateur in the sea trying to stay afloat, to grow, to make his or her financial dreams come true. Amateurs are easy meat. (Real-life dolphins, by the way, are not the gentle creatures children believe them to be. They can be dangerous and their beaks are as hard as bone. They can, and do, batter sharks to death in massed attacks if they have to. And their appetite is prodigious.)
+Having avoided the sharks and perhaps swum with the dolphins, we turn to the fishes. How I love the fishes! How you will learn to love them, too!
+It was via the fishes that I made my own first money—the seed capital which ensured that I retained control and ownership of my own business back in the early days of Dennis Publishing. Fishes come in all shapes and sizes. Friends, acquaintances, relatives, business colleagues, small investors, friendly bank managers of the old school, professional advisors, ex-employers, suppliers and vendors are among them. But how can they be of any use?
+- Note:: N/A
 
-Cash flow is the lifeblood of any business. Dennis offers a granular, almost obsessive list of tactics for preserving cash in the early days — from keeping payroll minimal to groveling to vendors. The underlying principle: plan for the worst, hope for the best, monitor obsessively.
+----
 
-> You can improve cash flow by observing the following suggestions in a start-up's early days: Keep payroll down to an absolute minimum. Overhead walks on two legs. Never sign long-term rent agreements or take upmarket office space. Never indulge in fancy office or reception furniture, unless your particular business demands that you make such an impression on clients. Never buy a business meal if the other side offers to. Pay yourself just enough to eat. Do not be shy to call customers who owe you money personally. Walk everywhere you can. Always meet payroll, even at the expense of starving yourself that week. Leaving lights, computers, printers and copiers on overnight is just stupid. Get used to groveling. Play one supplier off against another. Ruthlessly. Keep your chin up. It could be worse. You could be working for them.
+- 📖 **Chapter**:: N/A
+- **Context**:: That was the secret ingredient. I would not be a wage slave. I  would not take “no” for an answer. I would not give in. I was going to be rich. Some how. Some way. Someday soon. And I would not retreat to the safety of a decent job until I was starved out of house and home.
+- **Highlight**:: That was the secret ingredient. I would not be a wage slave. I  would not take “no” for an answer. I would not give in. I was going to be rich. Some how. Some way. Someday soon. And I would not retreat to the safety of a decent job until I was starved out of house and home.
+- Note:: N/A
 
-> Cash flow is the lifeblood of any business. But just as presidents and prime ministers learn to plan for war and hope for peace, you must plan for the worst and hope for the best in all matters relating to the cash flowing in and out of your start-up company. Regular, even obsessive, monitoring is the key.
+----
 
-## Avoiding Reinforced Failure
+- 📖 **Chapter**:: N/A
+- **Context**:: You can improve cash flow by observing the following suggestions in a start-up’s early days:• Keep payroll down to an absolute minimum. Overhead walks on two legs.• Never sign long-term rent agreements or take upmarket office space.• Never indulge in fancy office or reception furniture, unless your particular business demands that you make such an impression on clients.• Never buy a business meal if the other side offers to. You can show off later.• Pay yourself just enough to eat.• Do not be shy to call customers who owe you money personally . It works.• In a city, walk everywhere you can. It’s healthy and sets a good example.• Check all staff travel and entertainment claims with an eagle eye.• If you’re going to be late paying, call the vendor’s boss. Give a date. Stick to it.• Always meet payroll, even at the expense of starving yourself that week.• Issuing staff credit cards, company cell phones or cars is the road to ruin.• Leaving lights, computers, printers and copiers on overnight is just stupid.• A vase of beautiful flowers in reception every week creates a better impression than £100,000 worth of fancy Italian furniture.• Get used to groveling. Groveling is an effective tool in a start-up’s cash flow.• They want your business. Play one supplier off against another. Ruthlessly.• Only enter a factoring deal in absolute extremity. Exit it fast.• Keep your chin up. It could be worse. You could be working for them.
+Cash flow is the lifeblood of any business. But just as presidents and prime ministers learn to plan for war and hope for peace, you must plan for the worst and hope for the best in all matters relating to the cash flowing in and out of your start-up company.
+Regular, even obsessive, monitoring is the key. I hated every minute of doing it in those early days, but if a bean-counting klutz like me could do it, then you can too.
+- **Highlight**:: You can improve cash flow by observing the following suggestions in a start-up’s early days:• Keep payroll down to an absolute minimum. Overhead walks on two legs.• Never sign long-term rent agreements or take upmarket office space.• Never indulge in fancy office or reception furniture, unless your particular business demands that you make such an impression on clients.• Never buy a business meal if the other side offers to. You can show off later.• Pay yourself just enough to eat.• Do not be shy to call customers who owe you money personally . It works.• In a city, walk everywhere you can. It’s healthy and sets a good example.• Check all staff travel and entertainment claims with an eagle eye.• If you’re going to be late paying, call the vendor’s boss. Give a date. Stick to it.• Always meet payroll, even at the expense of starving yourself that week.• Issuing staff credit cards, company cell phones or cars is the road to ruin.• Leaving lights, computers, printers and copiers on overnight is just stupid.• A vase of beautiful flowers in reception every week creates a better impression than £100,000 worth of fancy Italian furniture.• Get used to groveling. Groveling is an effective tool in a start-up’s cash flow.• They want your business. Play one supplier off against another. Ruthlessly.• Only enter a factoring deal in absolute extremity. Exit it fast.• Keep your chin up. It could be worse. You could be working for them.
+Cash flow is the lifeblood of any business. But just as presidents and prime ministers learn to plan for war and hope for peace, you must plan for the worst and hope for the best in all matters relating to the cash flowing in and out of your start-up company.
+Regular, even obsessive, monitoring is the key. I hated every minute of doing it in those early days, but if a bean-counting klutz like me could do it, then you can too.
+- Note:: N/A
 
-Knowing when to pivot is as important as persistence. The danger lies in confusing a slow-burn winner with an outright loser — hanging onto a failing product because it might "come good" is one of the most expensive traps.
+----
 
-> What has all this to do with reinforcing failure? It is this possibility, the chance that we are onto a slow-burn winner, rather than being stuck with an out-and-out loser, that persuades so many of us (who should know better) to hang in there with a product or service in financial trouble.
+- 📖 **Chapter**:: N/A
+- **Context**:: Errors, like straws, upon the surface flow;  He who would search for pearls must dive below.
+- **Highlight**:: Errors, like straws, upon the surface flow;  He who would search for pearls must dive below.
+- Note:: N/A
 
-## Think Big, Act Small
+----
 
-Success shouldn't change your behavior. Acting small means staying flexible, humble, and hands-on. Complacency kills. Staff take cues from the founder — if you indulge, so will they. Every day, hit the ground running.
+- 📖 **Chapter**:: N/A
+- **Context**:: What has all this to do with reinforcing failure? It is this possibility , the chance that we are onto a slow-burn winner, rather than being stuck with an out-and-out loser, that persuades so many of us (who should know better) to hang in there with a product or service in financial trouble.
+- **Highlight**:: What has all this to do with reinforcing failure? It is this possibility , the chance that we are onto a slow-burn winner, rather than being stuck with an out-and-out loser, that persuades so many of us (who should know better) to hang in there with a product or service in financial trouble.
+- Note:: N/A
 
-> But the corollary of thinking big is to act small. Just because you have a success or two under your belt doesn't mean you have it made. "Success is never permanent; failure is never fatal. The only thing that really counts is to never, never, never give up."
+----
 
-> By acting small, I mean remaining in touch. Remaining flexible. Constantly examining how your company could do better. Keeping a sense of proportion and humility. Not throwing your weight around playing the great "I Am." Remembering that much of your success so far has been achieved by dumb luck.
+- 📖 **Chapter**:: N/A
+- **Context**:: But the corollary of thinking big is to act small. Just because you have a success or two under your belt doesn’t mean you have it made. “Success is never permanent; failure is never fatal. The only thing that really counts is to never, never, never give up.” That’s that old windbag Winston Churchill again. But he was bang on the money there.
+- **Highlight**:: But the corollary of thinking big is to act small. Just because you have a success or two under your belt doesn’t mean you have it made. “Success is never permanent; failure is never fatal. The only thing that really counts is to never, never, never give up.” That’s that old windbag Winston Churchill again. But he was bang on the money there.
+- Note:: N/A
 
-> Most of the worst errors I have made in my life came from forgetting to act small. It's hard to do when you're rolling around in coin and everything is going your way. But acting big leads to complacency, and complacency is the reason that many successful start-ups falter. Every day you have to hit the ground running, putting in more hours than even your most dedicated member of staff. You have to stay flexible. You have to be willing to listen and to learn and to emulate success elsewhere.
+----
 
-> Think big, act small. It's a recipe that never goes out of style. While especially important for start-ups, it will serve you faithfully long after you have established yourself as a serious player. A successful and naturally modest entrepreneur is an object of reverence and respect in the business world. Even if such a fabulous beast is rarer than hens' teeth.
+- 📖 **Chapter**:: N/A
+- **Context**:: By acting small, I mean remaining in touch. Remaining flexible. Constantly examining how your company could do better. Keeping a sense of proportion and humility. Not throwing your weight around playing the great “I Am.” Remembering that much of your success so far has been achieved by dumb luck.
+Acting small in the early days of your business sets an example to those around you. If staff see you indulging in long lunch hours and purchasing yourself a fancy company car, then they are either going to resent it or they are going to emulate you. This is not a good thing. You can do all that stuff later, when you’ve made your first fifty million.
+Most of the worst errors I have made in my life came from forgetting to act small. It’s hard to do when you’re rolling around in coin and everything is going your way. But acting big leads to complacency, and complacency is the reason that many successful start-ups falter.
+Every day you have to hit the ground running, putting in more hours than even your most dedicated member of staff. You have to stay flexible. You have to be willing to listen and to learn and to emulate success elsewhere.
+- **Highlight**:: By acting small, I mean remaining in touch. Remaining flexible. Constantly examining how your company could do better. Keeping a sense of proportion and humility. Not throwing your weight around playing the great “I Am.” Remembering that much of your success so far has been achieved by dumb luck.
+Acting small in the early days of your business sets an example to those around you. If staff see you indulging in long lunch hours and purchasing yourself a fancy company car, then they are either going to resent it or they are going to emulate you. This is not a good thing. You can do all that stuff later, when you’ve made your first fifty million.
+Most of the worst errors I have made in my life came from forgetting to act small. It’s hard to do when you’re rolling around in coin and everything is going your way. But acting big leads to complacency, and complacency is the reason that many successful start-ups falter.
+Every day you have to hit the ground running, putting in more hours than even your most dedicated member of staff. You have to stay flexible. You have to be willing to listen a
+- Note:: N/A
 
-## Talent: Identify, Hire, Nurture, Protect
+----
 
-Talent is the key to sustained growth. You need the talent to identify talent, and you must move heaven and earth to hire and retain it. Money isn't always the motivator — talented people want opportunity and the chance to prove themselves. Don't seek replicas of yourself; hire for complementary strengths.
+- 📖 **Chapter**:: N/A
+- **Context**:: Think big, act small. It’s a recipe that never goes out of style. While especially important for start-ups, it will serve you faithfully long after you have established yourself as a serious player. A successful and naturally modest entrepreneur is an object of reverence and respect in the business world. Even if such a fabulous beast is rarer than hens’ teeth.
+- **Highlight**:: Think big, act small. It’s a recipe that never goes out of style. While especially important for start-ups, it will serve you faithfully long after you have established yourself as a serious player. A successful and naturally modest entrepreneur is an object of reverence and respect in the business world. Even if such a fabulous beast is rarer than hens’ teeth.
+- Note:: N/A
 
-> You need the talent to identify, hire and nurture others with talent. "There is no substitute for talent. Industry and all the virtues are of no avail," wrote the novelist Aldous Huxley. Any company managed and run by plodders and jobsworths will be lucky to survive, let alone prosper. Talent is the key to sustained growth, and growth is the key to early wealth.
+----
 
-> Talent is usually conscious of its own value. But the currency of that value is not necessarily a million-dollar salary. The opportunity to prove themselves, and sometimes the chance to run the show on a day-to-day basis, will often do the trick just as well. What talent seeks, as often as not, is the chance to prove itself and the opportunity to excel.
+- 📖 **Chapter**:: N/A
+- **Context**:: You need the talent to identify, hire and nurture others with talent. “There is no substitute for talent. Industry and all the virtues are of no avail,” wrote the novelist Aldous Huxley. I have never been much of a fan of his as far as literature is concerned, but in this Huxley is correct.
+Any company managed and run by plodders and jobsworths will be lucky to survive, let alone prosper. Talent is the key to sustained growth, and growth is the key to early wealth. You have to identify and hire talent. You can’t skimp on it.
+Sometimes, to ensure that a talented individual will work for you, or will stay working with you, you need to be flexible. Money is not always the great motivator here. Talented people want a good salary, of course, but surprisingly often they are more attracted to new opportunities and challenges.
+- **Highlight**:: You need the talent to identify, hire and nurture others with talent. “There is no substitute for talent. Industry and all the virtues are of no avail,” wrote the novelist Aldous Huxley. I have never been much of a fan of his as far as literature is concerned, but in this Huxley is correct.
+Any company managed and run by plodders and jobsworths will be lucky to survive, let alone prosper. Talent is the key to sustained growth, and growth is the key to early wealth. You have to identify and hire talent. You can’t skimp on it.
+Sometimes, to ensure that a talented individual will work for you, or will stay working with you, you need to be flexible. Money is not always the great motivator here. Talented people want a good salary, of course, but surprisingly often they are more attracted to new opportunities and challenges.
+- Note:: N/A
 
-> You must identify talent. Then you must move heaven and earth to hire it. You must nurture it, reward it properly and protect it from being poached. If necessary, dream up a new project. Better still, get the talent to dream it up.
+----
 
-> Anybody wishing to become rich cannot do so without talent. Either their own, or far more likely, on the back of the talent of others. Talent is indispensable, although it is always replaceable. Just remember the simple rules concerning talent: identify it, hire it, nurture it, reward it, protect it. And, when the time comes, fire it.
+- 📖 **Chapter**:: N/A
+- **Context**:: Talent is usually conscious of its own value. But the currency of that value is not necessarily a million-dollar salary. The opportunity to prove themselves, and sometimes the chance to run the show on a day-to-day basis, will often do the trick just as well. This holds true even if talent is placed in the driver’s seat of a small division within an existing operation. What talent seeks, as often as not, is the chance to prove itself and the opportunity to excel.
+- **Highlight**:: Talent is usually conscious of its own value. But the currency of that value is not necessarily a million-dollar salary. The opportunity to prove themselves, and sometimes the chance to run the show on a day-to-day basis, will often do the trick just as well. This holds true even if talent is placed in the driver’s seat of a small division within an existing operation. What talent seeks, as often as not, is the chance to prove itself and the opportunity to excel.
+- Note:: N/A
 
-## Persistence and the Willingness to Change Course
+----
 
-Persistence is essential, but persistence without adaptability is stubbornness. Don't bang your head against the same wall — change tack when you sense you're on the wrong track, but never give up on the goal itself.
+- 📖 **Chapter**:: N/A
+- **Context**:: My advice on this subject was contained in the second paragraph of this section. You must identify talent. Then you must move heaven and earth to hire it. You must nurture it, reward it properly and protect it from being poached. If necessary, dream up a new project. Better still, get the talent to dream it up.
+- **Highlight**:: My advice on this subject was contained in the second paragraph of this section. You must identify talent. Then you must move heaven and earth to hire it. You must nurture it, reward it properly and protect it from being poached. If necessary, dream up a new project. Better still, get the talent to dream it up.
+- Note:: N/A
 
-> Quitting is not dishonorable. Quitting when you believe you can still succeed is. You must keep the faith. Belief in yourself and faith in your project can move mountains. But not if you insist on trying to scale the mountain by an impossible route which has already failed.
+----
 
-> Persistence had done the trick — but only with Susan's insight. Do not be afraid to change tack, alter course or make new plans with whatever you are attempting to achieve. Especially if you sense that you are on the wrong track. Above all, avoid banging your head against the same piece of wall. The wall will not get any softer. And don't give up — if you want to be rich.
+- 📖 **Chapter**:: N/A
+- **Context**:: Anybody wishing to become rich cannot do so without talent. Either their own, or far more likely, on the back of the talent of others. Talent is indispensable, although it is always replaceable. Just remember the simple rules concerning talent: identify it, hire it, nurture it, reward it, protect it. And, when the time comes, fire it.
+- **Highlight**:: Anybody wishing to become rich cannot do so without talent. Either their own, or far more likely, on the back of the talent of others. Talent is indispensable, although it is always replaceable. Just remember the simple rules concerning talent: identify it, hire it, nurture it, reward it, protect it. And, when the time comes, fire it.
+- Note:: N/A
 
-## Self-Belief as Armor
+----
 
-Without self-belief, nothing is possible. With it, nothing is impossible. Dennis frames this as the single most important takeaway from the entire book — worth more than its purchase price.
+- 📖 **Chapter**:: N/A
+- **Context**:: Quitting is not dishonorable. Quitting when you believe you can still succeed is. You must keep the faith. Belief in yourself and faith in your project can move mountains. But not if you insist on trying to scale the mountain by an impossible route which has already failed.
+- **Highlight**:: Quitting is not dishonorable. Quitting when you believe you can still succeed is. You must keep the faith. Belief in yourself and faith in your project can move mountains. But not if you insist on trying to scale the mountain by an impossible route which has already failed.
+- Note:: N/A
 
-> Without self-belief nothing can be accomplished. With it, nothing is impossible. It is as brutal and as black and white as that. If you take no other memory from this book, then take that single thought. It was worth a damn sight more than the price you paid for it.
+----
 
-> If you want to be rich you must work for it. But you must believe in it, too. You must believe in yourself, if only to armor yourself against the laughter of the gods in your quest.
+- 📖 **Chapter**:: N/A
+- **Context**:: Persistence had done the trick—but only with Susan’s insight. Do not be afraid to change tack, alter course or make new plans with whatever you are attempting to achieve. Especially if you sense that you are on the wrong track.
+Above all, avoid banging your head against the same piece of wall. The wall will not get any softer. And don’t give up—if you want to be rich.
+- **Highlight**:: Persistence had done the trick—but only with Susan’s insight. Do not be afraid to change tack, alter course or make new plans with whatever you are attempting to achieve. Especially if you sense that you are on the wrong track.
+Above all, avoid banging your head against the same piece of wall. The wall will not get any softer. And don’t give up—if you want to be rich.
+- Note:: N/A
 
-## Trusting Your Instincts
+----
 
-Instincts are a weapon. Don't be a slave to them, but when they scream "go," you need to decide whether you truly want to be rich. You can't get rich painting by numbers — you must become a predator: patient, alert, and devastating when you pounce.
+- 📖 **Chapter**:: N/A
+- **Context**:: Without self-belief nothing can be accomplished. With it, nothing is impossible. It is as brutal and as black and white as that. If you take no other memory from this book, then take that single thought. It was worth a damn sight more than the price you paid for it.
+- **Highlight**:: Without self-belief nothing can be accomplished. With it, nothing is impossible. It is as brutal and as black and white as that. If you take no other memory from this book, then take that single thought. It was worth a damn sight more than the price you paid for it.
+- Note:: N/A
 
-> Trust your instincts. Do not be a slave to them, but when your instincts are screaming, Go! Go! Go! then it's time for you to decide whether you really want to be rich or not. You cannot do this in a deliberate, considered manner. You can't get rich painting by numbers. You can only do it by becoming a predator, by waiting patiently, by remaining alert and constantly sniffing the air and by bringing massive, murderous force to bear upon your prey when you pounce.
+----
 
-## Diversification After Initial Success
+- 📖 **Chapter**:: N/A
+- **Context**:: If you want to be rich you must work for it. But you must believe in it, too. You must believe in yourself, if only to armor yourself against the laughter of the gods in your quest. Your mad quest to be rich.
+- **Highlight**:: If you want to be rich you must work for it. But you must believe in it, too. You must believe in yourself, if only to armor yourself against the laughter of the gods in your quest. Your mad quest to be rich.
+- Note:: N/A
 
-During the start-up phase, concentrate on one basket as if your life depends on it. But once you have something working and making money, start looking for other opportunities quickly. The more baskets the better.
+----
 
-> Just remember that this advice is not designed for your start-up phase. During the start-up, you concentrate on that one basket as if your life (and the life of your firstborn) depends upon it. But once you have something that's working and making some money, start looking around quickly for another opportunity. The more baskets the better.
+- 📖 **Chapter**:: N/A
+- **Context**:: Trust your instincts. Do not be a slave to them, but when your instincts are screaming, Go! Go! Go! then it’s time for you to decide whether you really want to be rich or not. You cannot do this in a deliberate, considered manner. You can’t get rich painting by numbers. You can only do it by becoming a predator, by waiting patiently, by remaining alert and constantly sniffing the air and by bringing massive, murderous force to bear upon your prey when you pounce.
+- **Highlight**:: Trust your instincts. Do not be a slave to them, but when your instincts are screaming, Go! Go! Go! then it’s time for you to decide whether you really want to be rich or not. You cannot do this in a deliberate, considered manner. You can’t get rich painting by numbers. You can only do it by becoming a predator, by waiting patiently, by remaining alert and constantly sniffing the air and by bringing massive, murderous force to bear upon your prey when you pounce.
+- Note:: N/A
 
-## The Power of Listening
+----
 
-Listening is among the most powerful weapons an entrepreneur has — yet many senior executives go weeks without listening to anyone outside their inner circle.
+- 📖 **Chapter**:: N/A
+- **Context**:: Just remember that this advice is not designed for your start-up phase. During the start-up, you concentrate on that one basket as if your life (and the life of your firstborn) depends upon it. But once you have something that’s working and making some money, start looking around quickly for another opportunity. The more baskets the better.
+- **Highlight**:: Just remember that this advice is not designed for your start-up phase. During the start-up, you concentrate on that one basket as if your life (and the life of your firstborn) depends upon it. But once you have something that’s working and making some money, start looking around quickly for another opportunity. The more baskets the better.
+- Note:: N/A
 
-> Listening is the most powerful weapon after self-belief and persistence you can bring into play as an entrepreneur. And yet I'm familiar with numerous senior executives running large companies who might spend two or three weeks in between listening to a "stranger" — or a "minion."
+----
 
-## Preparation
+- 📖 **Chapter**:: N/A
+- **Context**:: Listening is the most powerful weapon after self-belief and persistence you can bring into play as an entrepreneur. And yet I’m familiar with numerous senior executives running large companies who might spend two or three weeks in between listening to a “stranger”—or a “minion.”
+- **Highlight**:: Listening is the most powerful weapon after self-belief and persistence you can bring into play as an entrepreneur. And yet I’m familiar with numerous senior executives running large companies who might spend two or three weeks in between listening to a “stranger”—or a “minion.”
 
-Preparation is the key to exploiting opportunity. Do the heavy lifting in advance so that when the moment arrives, you're ready to hammer it.
+- Note:: N/A
 
-> Preparation is the key. Be prepared. Do the heavy lifting and the homework in advance. Get on with the job, but remain alert enough to spot an opportunity when it arrives. Then hammer it.
+----
 
-## Overthinking vs. Acting
+- 📖 **Chapter**:: N/A
+- **Context**:: Preparation is the key. Be prepared. Do the heavy lifting and the homework in advance. Get on with the job, but remain alert enough to spot an opportunity when it arrives. Then hammer it.
+- **Highlight**:: Preparation is the key. Be prepared. Do the heavy lifting and the homework in advance. Get on with the job, but remain alert enough to spot an opportunity when it arrives. Then hammer it.
+- Note:: N/A
 
-Intelligence can be a liability. The highly educated may think too much before acting, weigh options too carefully, and become capable of imagining defeat — something the less analytical entrepreneur never even considers.
+----
 
-> Then again, Albert is more intelligent than I am. He had a grand education and read all the right books at university. He is not a self-taught scholar, as I am. But there is a downside to all this intelligence and imagination. He thinks a little too much before he acts. He weighs the options too carefully. He is capable of imagining defeat.
+- 📖 **Chapter**:: N/A
+- **Context**:: Is luck just “a dividend of sweat”? How many times can one person “dust themselves down, pick themselves up and start all over again” before they lose heart? I have already mentioned Winston Churchill’s “If you’re going through hell, keep going.”
+- **Highlight**:: Is luck just “a dividend of sweat”? How many times can one person “dust themselves down, pick themselves up and start all over again” before they lose heart? I have already mentioned Winston Churchill’s “If you’re going through hell, keep going.
+- Note:: N/A
 
-## The Perils of Perfectionism in Leadership
+----
 
-A perfectionist who can't delegate ends up doing everything themselves. The staff don't grow, don't love the leader, and the company suffers — because the best thing about building a company is grooming talent and watching it grow.
+- 📖 **Chapter**:: N/A
+- **Context**:: Then again, Albert is more intelligent than I am. He had a grand education and read all the right books at university. He is not a self-taught scholar, as I am. But there is a downside to all this intelligence and imagination. He thinks a little too much before he acts. He weighs the options too carefully. He is capable of imagining defeat.
+- **Highlight**:: Then again, Albert is more intelligent than I am. He had a grand education and read all the right books at university. He is not a self-taught scholar, as I am. But there is a downside to all this intelligence and imagination. He thinks a little too much before he acts. He weighs the options too carefully. He is capable of imagining defeat.
+- Note:: N/A
 
-> He is a perfectionist and his powers of delegation are stunted. He's so good at what he does that he is unwilling to accept even slightly second-best. While he is fair, and sometimes more than fair, with his staff, they don't love him. They don't love him because they do not get the chance to grow, and if there is one good thing about a well-managed company in a capitalist society, it is the opportunity to groom talent and encourage it to grow. Apart from the money, it's the best thing about getting rich.
+----
 
-## The Primacy of Ownership
+- 📖 **Chapter**:: N/A
+- **Context**:: There are other differences between Albert and me. He is a great believer in partnering and share options and employee profit participation. I shall be devoting an entire chapter to this subject (See Chapter 14: A Piece of the Pie), but I will mention, here, that in Albert’s case, this division of the spoils is undertaken in the minutest detail, long before there are any profits whatever to share. Albert believes they encourage his coworkers. But such arrangements are immensely time-consuming and a distraction from the tunnel vision necessary to become rich in the first place.
+Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilating and mastering detail. But he is a perfectionist and his powers of delegation are stunted. He’s so good at what he does that he is unwilling to accept even slightly second-best. This means, for him, that he must do it himself. And if by chance he doesn’t get it exactly right the first time, then he will do it over and over again until it is right. Until it is perfect.
+- **Highlight**:: There are other differences between Albert and me. He is a great believer in partnering and share options and employee profit participation. I shall be devoting an entire chapter to this subject (See Chapter 14: A Piece of the Pie), but I will mention, here, that in Albert’s case, this division of the spoils is undertaken in the minutest detail, long before there are any profits whatever to share. Albert believes they encourage his coworkers. But such arrangements are immensely time-consuming and a distraction from the tunnel vision necessary to become rich in the first place.
+Albert is a ferocious negotiator, as I’ve mentioned, and a whizz at assimilating and mastering detail. But he is a perfectionist and his powers of delegation are stunted. He’s so good at what he does that he is unwilling to accept even slightly second-best. This means, for him, that he must do it himself. And if by chance he doesn’t get it exactly right the first time, then he will do it over and over again until it is right. Until it is perfect.
+- Note:: N/A
 
-Ownership is the single most important principle in Dennis's philosophy of wealth. Own as close to 100 percent as possible. Every percentage point is worth fighting for. Nothing counts but what you own — not salary, not options, not prestige. If you take what you're given, you will probably not get rich.
+----
 
-> To become rich you must be an owner. And you must try to own it all. You must strive with every fiber of your being, while recognizing the idiocy of your behavior, to own and retain control of as near to 100 percent of any company as you can.
+- 📖 **Chapter**:: N/A
+- **Context**:: While he is fair, and sometimes more than fair, with his staff, they don’t love him. They don’t love him because they do not get the chance to grow, and if there is one good thing about a well-managed company in a capitalist society, it is the opportunity to groom talent and encourage it to grow. Apart from the money, it’s the best thing about getting rich.
+- **Highlight**:: While he is fair, and sometimes more than fair, with his staff, they don’t love him. They don’t love him because they do not get the chance to grow, and if there is one good thing about a well-managed company in a capitalist society, it is the opportunity to groom talent and encourage it to grow. Apart from the money, it’s the best thing about getting rich.
+- Note:: N/A
 
-> To become rich, every single percentage point of anything you own is crucial. It is worth fighting for, tooth and claw. It is worth suing for. It is worth shouting and banging on the table for. Never, never, never, never hand over a single share of anything you have acquired or created if you can help it. Nothing. Not one share. To no one. No matter what the reason — unless you genuinely have to.
+----
 
-> Because I owned it. I owned it all. And my dear friends David and Robin never owned anything during their time there except for a pile of EMAP share options, a good salary and a lovely pension. Please think about this if you want to be rich. Ownership is not the most important thing. It is the only thing that counts.
+- 📖 **Chapter**:: N/A
+- **Context**:: All negotiations arise from weakness, unless you are one of that strange tribe who finds themselves intoxicated with the process of bargaining and negotiating itself. Sure, haggling can be fun, but it’s only a means to an end as far as this book is concerned.
+- **Highlight**:: All negotiations arise from weakness, unless you are one of that strange tribe who finds themselves intoxicated with the process of bargaining and negotiating itself. Sure, haggling can be fun, but it’s only a means to an end as far as this book is concerned.
+- Note:: N/A
 
-> Nothing counts but what you own in the race to get rich. If you haven't much skill, or much wit, or much talent, or much luck, and yet you insist on owning more than your fair share of any start-up or acquisition, then you can become rich. If you take what you're given, you will probably not get rich.
+----
 
-## On Fairness and Capitalism
+- 📖 **Chapter**:: N/A
+- **Context**:: If you “negotiate out of fear” you are not “negotiating.” You are surrendering in all but name. As to the second half of his pronouncement, he is saying that it’s always worth listening to the other side in the search for mutually beneficial agreements. Did we need the world’s most powerful man to tell us that?
+- **Highlight**:: If you “negotiate out of fear” you are not “negotiating.” You are surrendering in all but name. As to the second half of his pronouncement, he is saying that it’s always worth listening to the other side in the search for mutually beneficial agreements. 
+- Note:: N/A
 
-Dennis is unapologetic: capitalism isn't fair, and pretending otherwise while trying to get rich is a waste of time. Pay people well, reward performance with generous bonuses — but don't give away equity. Fairness in money-making mode is a distraction.
+----
 
-> I'm not a bloody charity. I'm an entrepreneur trying to make a small fortune, not the Salvation Army. I pay people to get a job done. And I pay them well. But I will not give them a share. Not one. Not for love. Nor for loyalty. Not to be fair. Because capitalism isn't fair. Life isn't fair. The best kind of fairness is the kind that makes money. Lots of money. Then you can decide to do with it whatever you wish. But we can't be wasting time thinking about and debating fairness while we are in money-making mode. Money making and fairness have nothing to do with each other.
+- 📖 **Chapter**:: N/A
+- **Context**:: Serious negotiations are very different from day-to-day bargaining and should be approached differently. They imply a weakness in the position of at least one of the parties involved in the negotiations, unlike day-to-day bargaining, where no such weakness need exist. The first thing to be done, perhaps the most vital thing, is to establish exactly where those weaknesses lie.
+- **Highlight**:: Serious negotiations are very different from day-to-day bargaining and should be approached differently. They imply a weakness in the position of at least one of the parties involved in the negotiations, unlike day-to-day bargaining, where no such weakness need exist. The first thing to be done, perhaps the most vital thing, is to establish exactly where those weaknesses lie.
+- Note:: N/A
 
-## The Burden of Minority Shareholders
+----
 
-Minority shareholders can derail your strategy. Their interests may diverge from yours — they may want dividends while you want to reinvest for growth. Even when you try to be fair, they're a burden.
+- 📖 **Chapter**:: N/A
+- **Context**:: • The flea has established to his own satisfaction the elephant’s urgent need.• The flea has learned to ignore flattery.• The flea has learned that an elephant cannot be your friend in negotiations.• The flea has learned he is not a good negotiator.• The flea has learned to “empty” himself and make himself believe he does not care.• The flea has overcome his lack of skill by setting a price he will not deviate from.• The flea has hardened his heart and has walked away when the price was not met.• The flea has introduced a rogue element (the trade magazine) into the negotiations.• The flea has weighed Greed vs. Need. He believes Need will outweigh Greed.
+- **Highlight**:: • The flea has established to his own satisfaction the elephant’s urgent need.• The flea has learned to ignore flattery.• The flea has learned that an elephant cannot be your friend in negotiations.• The flea has learned he is not a good negotiator.• The flea has learned to “empty” himself and make himself believe he does not care.• The flea has overcome his lack of skill by setting a price he will not deviate from.• The flea has hardened his heart and has walked away when the price was not met.• The flea has introduced a rogue element (the trade magazine) into the negotiations.• The flea has weighed Greed vs. Need. He believes Need will outweigh Greed.
+- Note:: N/A
 
-> Should I wish the company we co-own to invest all its profits for three years to build itself, a minority shareholder might (understandably) complain: "It's all right for you. But I depend on the dividends the company would pay me if we did not invest so much. I want to protest at your investment strategy."
+----
 
-## Private vs. Public Companies
+- 📖 **Chapter**:: N/A
+- **Context**:: • Remember that few of us are any good at detailed negotiations. That includes your opponent, by the way.• If you are a poor negotiator, like me, then set a limit on what you will pay or accept and on any conditions attached. Do not deviate. Your first thought is your best thought.• Most negotiations are unnecessary. Don’t enter into them. Remember that “the fortress that parleys is already half taken.” Save serious negotiations for serious occasions.• Do your homework. And do it rigorously. What you don’t know or haven’t bothered to find out can kill you in any type of serious negotiation.• Despite my jungle book examples above, the devil really is in the detail in serious negotiations. Get all the professional help you can trust. But do not surrender control of the negotiations or the agenda to such professionals. They are not the ones who will have to live with the consequences—you are. Professional advisors are there to explain and advise, not to decide.• If your advisors are leading you down a path you don’t approve of during your negotiations, call a “time-out” and tell them privately that if they continue along that route you will get yourself some new advisors. The world is full of them.• Never fall in love with the deal. A deal is just a deal. There will always be other deals and other opportunities.• Avoid auctions in business like the plague—unless you are selling something, that is. You will nearly always pay more than is wise if you are the “winner” of an auction process.• The negotiator opposite you is not your new best friend. He is not your partner. He is not your confidant. You have no obligation, outside of ordinary courtesy, to please him or satisfy his demands. He is the enemy. If you do not understand that real winners and real losers emerge from serious negotiations, then you will be robbed, whatever the circumstances.• Take no notice of management manuals that tell you to leave passion and emotion out of the negotiating room. If you are emotional or passionate about something, then let it show. But leaven emotion with courtesy, and, if possible, with wit. If you’re not the witty type, then flattery and self-deprecation are good substitutes.• Listen when engaged in serious negotiations. Then listen some more. You are in no hurry. Nobody ever got poor listening. Also, use silence as a weapon. Silences are disconcerting. People tend to fill silences with jabber, often weakening their bargaining position as they do so.• Choose a rogue element to your advantage and bring it into the negotiation at a late stage. You’ll be amazed at how often this tactic produces results.• The British created the largest geophysical empire in the world with one tactic: divide and rule. It always works. It never fails if you can get to exploit it. Get to know the other side. There may be slight differences in the individual approaches of their senior managers and, possibly, in their goals. Drive a wedge and keep hammering.• Permit no such weaknesses in your own camp. I have often banned senior executives from taking part in negotiations simply to avoid this trap. Better you are in there on your own, outgunned, outflanked and outmaneuvered, than to have two or three of you silently squabbling.• Everyone thinks they are a great negotiator, but most of us simply are not. If it’s your company, then, for better or worse,  you are the final arbiter. That remains true whether you are a good negotiator or a bad one.• If you suspect you perform badly on such occasions, do not attend, even if you are the 100 percent owner. Get someone else to do it after setting out your response to every conceivable option that might arise. This tactic can be devastating to the other side, and Peter, Bob and I have used it on many occasions in the past. You have to trust your nominee completely, though.
+- **Highlight**:: • Remember that few of us are any good at detailed negotiations. That includes your opponent, by the way.• If you are a poor negotiator, like me, then set a limit on what you will pay or accept and on any conditions attached. Do not deviate. Your first thought is your best thought.• Most negotiations are unnecessary. Don’t enter into them. Remember that “the fortress that parleys is already half taken.” Save serious negotiations for serious occasions.• Do your homework. And do it rigorously. What you don’t know or haven’t bothered to find out can kill you in any type of serious negotiation.• Despite my jungle book examples above, the devil really is in the detail in serious negotiations. Get all the professional help you can trust. But do not surrender control of the negotiations or the agenda to such professionals. They are not the ones who will have to live with the consequences—you are. Professional advisors are there to explain and advise, not to decide.• If your advisors are leading you down a path you don’t approve of during your negotiations, call a “time-out” and tell them privately that if they continue along that route you will get yourself some new advisors. The world is full of them.• Never fall in love with the deal. A deal is just a deal. There will always be other deals and other opportunities.• Avoid auctions in business like the plague—unless you are selling something, that is. You will nearly always pay more than is wise if you are the “winner” of an auction process.• The negotiator opposite you is not your new best friend. He is not your partner. He is not your confidant. You have no obligation, outside of ordinary courtesy, to please him or satisfy his demands. He is the enemy. If you do not understand that real winners and real losers emerge from serious negotiations, then you will be robbed, whatever the circumstances.• Take no notice of management manuals that tell you to leave passion and emotion out of the negotiating room. If you are emotional or passionate about something, then let it show. But leaven emotion with courtesy, and, if possible, with wit. If you’re not the witty type, then flattery and self-deprecation are good substitutes.• Listen when engaged in serious negotiations. Then listen some more. You are in no hurry. Nobody ever got poor listening. Also, use silence as a weapon. Silences are disconcerting. People tend to fill silences with jabber, often weakening their bargaining position as they do so.• Choose a rogue element to your advantage and bring it into the negotiation at a late stage. You’ll be amazed at how often this tactic produces results.• The British created the largest geophysical empire in the world with one tactic: divide and rule. It always works. It never fails if you can get to exploit it. Get to know the other side. There may be slight differences in the individual approaches of their senior managers and, possibly, in their goals. Drive a wedge and keep hammering.• Permit no such weaknesses in your own camp. I have often banned senior executives from taking part in negotiations simply to avoid this trap. Better you are in there on your own, outgunned, outflanked and outmaneuvered, than to have two or three of you silently squabbling.• Everyone thinks they are a great negotiator, but most of us simply are not. If it’s your company, then, for better or worse,  you are the final arbiter. That remains true whether you are a good negotiator or a bad one.• If you suspect you perform badly on such occasions, do not attend, even if you are the 100 percent owner. Get someone else to do it after setting out your response to every conceivable option that might arise. This tactic can be devastating to the other side, and Peter, Bob and I have used it on many occasions in the past. You have to trust your nominee completely, though.
+- Note:: N/A
 
-Public companies exist to boost their share price, which is determined by analysts who worship growth-at-any-price. Private companies live on profits and reserves — growth is a choice, not an obligation. Profit isn't a dirty word.
+----
 
-> A private company lives on profits and reserves. There has to be a balance between investment and profit-taking. But a public company exists only to boost its share price, and its share price is determined, incredibly enough, by "analysts" — spotty-faced youths who live on another planet where growth-at-any-price is the only deity one is encouraged to worship. If we were making "profits," asked the "analysts," weren't we in danger of "wasting" money that could have been invested to produce more "growth"?
+- 📖 **Chapter**:: N/A
+- **Context**:: • Above all, establish where the balance of weakness lies in any serious negotiation. Most strengths are self-evident, especially strengths like cash and infrastructure. Weaknesses are usually hidden. Ferret them out, hold them up to the light and make a battle plan.• Whatever you agree to during a negotiation, fulfill the bargain. Nobody wants to do business with a weasel or a chisler. Written in the Zoroastrian Scriptures two-and-a-half -thousand years ago was this: “Never break a covenant, whether you make it with a false man or a just man of good conscience. The covenant holds for both, the false and the just alike.”
+- **Highlight**:: • Above all, establish where the balance of weakness lies in any serious negotiation. Most strengths are self-evident, especially strengths like cash and infrastructure. Weaknesses are usually hidden. Ferret them out, hold them up to the light and make a battle plan.• Whatever you agree to during a negotiation, fulfill the bargain. Nobody wants to do business with a weasel or a chisler. Written in the Zoroastrian Scriptures two-and-a-half -thousand years ago was this: “Never break a covenant, whether you make it with a false man or a just man of good conscience. The covenant holds for both, the false and the just alike.”
 
-## The Art of Delegation
+- Note:: N/A
 
-Delegation is the only way to maximize your most precious asset — your people. Don't seek replicas of yourself; hire for complementary strengths. Learn delegation through trial and error — it's rarely the smooth talkers who face challenges best. Don't burn yourself out working sixteen-hour days when delegation could make you richer faster.
+----
 
-> The exercise of delegation, used responsibly, allows you to bring out the best in others and to make yourself rich in the process. It is the nearest thing to a "virtuous circle" imaginable.
+- 📖 **Chapter**:: N/A
+- **Context**:: To become rich you must be an owner. And you must try to own it all. You must strive with every fiber of your being, while recognizing the idiocy of your behavior, to own and retain control of as near to 100 percent of any company as you can. If that is not possible, in a public company, for example, then you must be prepared to make yourself hated by those around you who are also trying to be rich. That is the dirty, rotten little secret of it all, my friend.
+- **Highlight**:: To become rich you must be an owner. And you must try to own it all. You must strive with every fiber of your being, while recognizing the idiocy of your behavior, to own and retain control of as near to 100 percent of any company as you can. If that is not possible, in a public company, for example, then you must be prepared to make yourself hated by those around you who are also trying to be rich. That is the dirty, rotten little secret of it all, my friend.
+- Note:: N/A
 
-> As an owner, you must always be alert for the telltale signs that here is a candidate for promotion and delegation. They are smart. Perhaps smarter than you are. They work hard and they appear to love the work they do. They ask intelligent questions and don't waste time gossiping. They listen and correct their errors, and don't repeat them. They want your job.
+----
 
-> Do not seek a replica of yourself to delegate to, or to promote. You have strengths and you have weaknesses in your own character. It makes no sense to increase those strengths your organization already possesses and not address the weaknesses.
+- 📖 **Chapter**:: N/A
+- **Context**:: To become rich, every single percentage point of anything you own is crucial. It is worth fighting for, tooth and claw. It is worth suing for. It is worth shouting and banging on the table for. It is worth begging for and groveling for. It is worth lying and cheating for. In extremis, it is even worth negotiating for.
+Never, never, never, never hand over a single share of anything you have acquired or created if you can help it. Nothing. Not one share. To no one. No matter what the reason—unless you genuinely have to.
+- **Highlight**:: To become rich, every single percentage point of anything you own is crucial. It is worth fighting for, tooth and claw. It is worth suing for. It is worth shouting and banging on the table for. It is worth begging for and groveling for. It is worth lying and cheating for. In extremis, it is even worth negotiating for.
+Never, never, never, never hand over a single share of anything you have acquired or created if you can help it. Nothing. Not one share. To no one. No matter what the reason—unless you genuinely have to.
+- Note:: N/A
 
-> If you want to get rich, then learn to delegate. Don't learn to pretend to delegate. Delegation is not only a powerful tool, it is the only way to maximize and truly incentivize your most precious asset — the people who work for you. Real delegation can help make you rich. But only if you work at it.
+----
 
-## On Negotiation
+- 📖 **Chapter**:: N/A
+- **Context**:: Because I owned it. I owned it all. And my dear friends David and Robin never owned anything during their time there except for a pile of EMAP share options, a good salary and a lovely pension. Please think about this if you want to be rich. Ownership is not the most important thing. It is the only thing that counts.
+- **Highlight**:: Because I owned it. I owned it all. And my dear friends David and Robin never owned anything during their time there except for a pile of EMAP share options, a good salary and a lovely pension. Please think about this if you want to be rich. Ownership is not the most important thing. It is the only thing that counts.
+- Note:: N/A
 
-All negotiations arise from weakness. The key is establishing exactly where those weaknesses lie. Most people are poor negotiators — set your limits and don't deviate. Use silence as a weapon. Drive wedges in the other side. Never fall in love with a deal.
+----
 
-> All negotiations arise from weakness, unless you are one of that strange tribe who finds themselves intoxicated with the process of bargaining and negotiating itself.
+- 📖 **Chapter**:: N/A
+- **Context**:: Nothing counts but what you own in the race to get rich. If you haven’t much skill, or much wit, or much talent, or much luck, and yet you insist on owning more than your fair share of any start-up or acquisition, then you can become rich. If you take what you’re given, you will probably not get rich.
+- **Highlight**:: Nothing counts but what you own in the race to get rich. If you haven’t much skill, or much wit, or much talent, or much luck, and yet you insist on owning more than your fair share of any start-up or acquisition, then you can become rich. If you take what you’re given, you will probably not get rich.
+- Note:: N/A
 
-> Serious negotiations are very different from day-to-day bargaining and should be approached differently. They imply a weakness in the position of at least one of the parties. The first and most vital thing is to establish exactly where those weaknesses lie.
+----
 
-> Remember that few of us are any good at detailed negotiations. If you are a poor negotiator, then set a limit on what you will pay or accept and on any conditions attached. Do not deviate. Your first thought is your best thought. Listen when engaged in serious negotiations. Nobody ever got poor listening. Use silence as a weapon. Never fall in love with the deal. The negotiator opposite you is not your new best friend. He is the enemy.
+- 📖 **Chapter**:: N/A
+- **Context**:: And if I had given 20 percent to those four employees, should I not have had to do so with many others as they joined the company and worked hard to make it a success? Where would it all end? I’m not a bloody charity. I’m an entrepreneur trying to make a small fortune, not the Salvation Army. I pay people to get a job done. And I pay them well. I try to make it as much fun as I can along the way. I reward senior managers with bloody huge bonuses based on performance and results. Millions of dollars have been paid out in such bonuses over the years.
+But I will not give them a share. Not one. Not for love. Nor for loyalty. Not to be fair. Because capitalism isn’t fair. Life isn’t fair. The lottery of what genes we are born with isn’t fair. The moon and the stars and the gas clouds of Alpha Centauri aren’t fair.
+Except for your loved ones or closest friends, it’s every man for himself in this world, in case you haven’t noticed: “No prisoners! The Lord will know his own!” Or, in the rapier advice of Benjamin Jowett, a nineteenth-century master of Balliol College, Oxford: “Never retreat. Never explain. Get it done and let them howl.”
+The best kind of fairness is the kind that makes money. Lots of money. Then you can decide to do with it whatever you wish. And there’s even a whole chapter at the end of this book about it. (See Chapter 18: How to Stay Rich.) But we can’t be wasting time thinking about and debating fairness while we are in money-making mode. Money making and fairness having nothing to do with each other.
+- **Highlight**:: And if I had given 20 percent to those four employees, should I not have had to do so with many others as they joined the company and worked hard to make it a success? Where would it all end? I’m not a bloody charity. I’m an entrepreneur trying to make a small fortune, not the Salvation Army. I pay people to get a job done. And I pay them well. I try to make it as much fun as I can along the way. I reward senior managers with bloody huge bonuses based on performance and results. Millions of dollars have been paid out in such bonuses over the years.
+But I will not give them a share. Not one. Not for love. Nor for loyalty. Not to be fair. Because capitalism isn’t fair. Life isn’t fair. The lottery of what genes we are born with isn’t fair. The moon and the stars and the gas clouds of Alpha Centauri aren’t fair.
+Except for your loved ones or closest friends, it’s every man for himself in this world, in case you haven’t noticed: “No prisoners! The Lord will know his own!” Or, in the rapier advice of Benjamin Jowett, a nineteenth-century master of Balliol College, Oxford: “Never retreat. Never explain. Get it done and let them howl.”
+The best kind of fairness is the kind that makes money. Lots of money. Then you can decide to do with it whatever you wish. And there’s even a whole chapter at the end of this book about it. (See Chapter 18: How to Stay Rich.) But we can’t be wasting time thinking about and debating fairness while we are in money-making mode. Money making and fairness having nothing to do with each other.
+- Note:: N/A
 
-> Above all, establish where the balance of weakness lies in any serious negotiation. Most strengths are self-evident. Weaknesses are usually hidden. Ferret them out, hold them up to the light and make a battle plan.
+----
 
-## Selling Early
+- 📖 **Chapter**:: N/A
+- **Context**:: But if you want to be rich and you are forced to take minority shareholders on board, then I guarantee that, sooner or later, you will waste weeks or even months in the attempt to obtain mutual agreement. It is unavoidable.
+- **Highlight**:: But if you want to be rich and you are forced to take minority shareholders on board, then I guarantee that, sooner or later, you will waste weeks or even months in the attempt to obtain mutual agreement. It is unavoidable.
+- Note:: N/A
 
-Real money comes from selling assets at the top of their value, not from holding them forever. More money is lost holding on to an asset than is made waiting for its zenith.
+----
 
-> Sell early. Real money rarely comes from horsing around running an asset-laden business if you are an entrepreneur. Whenever the chance comes to sell an asset at the top of its value, do so. Things do not keep increasing in value for ever. Get out while the going is good and move on to the next venture. More money is usually lost holding on to an asset than is made waiting for the zenith of its value.
+- 📖 **Chapter**:: N/A
+- **Context**:: Which brings us to minority shareholders and investors. I have owned companies with minority shareholders. And I have always gone out of my way to be fair to them and their interests. But I cannot pretend that they were not a burden. Let me explain by way of example. Should I wish the company we co-own to invest all its profits for three years to build itself, a minority shareholder might (understandably) complain: “It’s all right for you. But I depend on the dividends the company would pay me if we did not invest so much. I want to protest at your investment strategy.”
+- **Highlight**:: Which brings us to minority shareholders and investors. I have owned companies with minority shareholders. And I have always gone out of my way to be fair to them and their interests. But I cannot pretend that they were not a burden. Let me explain by way of example. Should I wish the company we co-own to invest all its profits for three years to build itself, a minority shareholder might (understandably) complain: “It’s all right for you. But I depend on the dividends the company would pay me if we did not invest so much. I want to protest at your investment strategy.”
+- Note:: N/A
 
-## Twenty-One Ways to Make More Pie
+----
 
-Dennis's comprehensive guide to managing compensation, overhead, and culture — distilled from decades of running his own publishing empire. Key themes: generous performance bonuses, ruthless cost control, leading by example, promoting talent from within, discouraging secrecy, backing your managers publicly, and never delegating bonus arrangements.
+- 📖 **Chapter**:: N/A
+- **Context**:: (Insider trading is an easy one to understand. If you help to run a public company, nobody gets to know how you are doing before  everybody gets to know. Got that? It doesn’t matter if the news is good or bad. It must not be alluded to outside of your professional advisors and company colleagues. Especially the upcoming quarterly earnings and revenues. Just don’t mention it. Not even to yourself in the bath.)
+- **Highlight**:: (Insider trading is an easy one to understand. If you help to run a public company, nobody gets to know how you are doing before  everybody gets to know. Got that? It doesn’t matter if the news is good or bad. It must not be alluded to outside of your professional advisors and company colleagues. Especially the upcoming quarterly earnings and revenues. Just don’t mention it. Not even to yourself in the bath.)
+- Note:: N/A
 
-1. Make annual bonuses generous.
-2. "Ring fence" investment costs from ongoing business.
-3. Keep costs down. Always. Overhead walks on two legs.
-4. Never delegate bonus arrangements.
-5. Insist on collective responsibility for bonuses at senior level.
-6. Praise excellent work. Don't waste praise on mediocre performance.
-7. Fire malingerers, incompetents, toads and glory hounds mercilessly.
-8. Turn a cold eye on company perks.
-9. Avoid all jollies.
-10. Offer legal perks that you have paid for yourself.
-11. Set an example — pay for your own fancy furniture.
-12. Encourage one-on-one reviews with senior managers.
-13. Back up your managers in public. Reprimand in private.
-14. Search out and promote talent from the lower ranks.
-15. Interview your rivals' talent — intelligence gathering and poaching.
-16. Discourage secrecy. Take managers into your confidence.
-17. Save a little pie for suppliers.
-18. Never bad-mouth rivals. Praise them instead.
-19. Sell early.
-20. Enjoy the business of making money. Time cannot be recaptured.
-21. Never miss an opportunity to promote your asset.
+----
 
-## Notable Quotes
+- 📖 **Chapter**:: N/A
+- **Context**:: A private company could never have operated in the way Peter was required to run MicroWarehouse. A private company lives on profits and reserves. There has to be a balance between investment and profit-taking. Between growth and the bottom line. In a private company, growth is not a goal in itself; you only grow if it makes sense to grow.
+But a public company exists only to boost its share price, and its share price is determined, incredibly enough, by “analysts”—spotty-faced youths who live on another planet where growth-at-any-price is the only deity one is encouraged to worship. Medium- or long-term strategies were for wimps and amateurs, in their estimation.  This quarter’s results, this quarter’s growth, were the only things that mattered to them. It almost seemed, at times, as if profit was a dirty word. If we were making “profits,” asked the “analysts,” weren’t we in danger of “wasting” money that could have been invested to produce more "growth”?
+- **Highlight**:: A private company could never have operated in the way Peter was required to run MicroWarehouse. A private company lives on profits and reserves. There has to be a balance between investment and profit-taking. Between growth and the bottom line. In a private company, growth is not a goal in itself; you only grow if it makes sense to grow.
+But a public company exists only to boost its share price, and its share price is determined, incredibly enough, by “analysts”—spotty-faced youths who live on another planet where growth-at-any-price is the only deity one is encouraged to worship. Medium- or long-term strategies were for wimps and amateurs, in their estimation.  This quarter’s results, this quarter’s growth, were the only things that mattered to them. It almost seemed, at times, as if profit was a dirty word. If we were making “profits,” asked the “analysts,” weren’t we in danger of “wasting” money that could have been invested to produce more "growth”?
+- Note:: N/A
 
-> Without self-belief nothing can be accomplished. With it, nothing is impossible.
+----
 
-> Ownership is not the most important thing. It is the only thing that counts.
+- 📖 **Chapter**:: N/A
+- **Context**:: I say this not because I am idle—I’m anything but—but because the exercise of delegation, used responsibly, allows you to bring out the best in others and to make yourself rich in the process. It is the nearest thing to a “virtuous circle” imaginable. Just imagine getting rich while you’re helping others to help you get richer and prove their worth in the process. Magic!
+- **Highlight**:: the exercise of delegation, used responsibly, allows you to bring out the best in others and to make yourself rich in the process. It is the nearest thing to a “virtuous circle” imaginable. Just imagine getting rich while you’re helping others to help you get richer and prove their worth in the process. Magic!
+- Note:: N/A
 
-> Think big, act small. It's a recipe that never goes out of style.
+----
 
-> If you never have a single great idea in your life, but become skilled in executing the great ideas of others, you can succeed beyond your wildest dreams. Execution is all in this regard.
+- 📖 **Chapter**:: N/A
+- **Context**:: As an owner, or an owner in training, you must always be alert for the telltale signs that here is a candidate for promotion and delegation. They are smart. Perhaps smarter than you are. They work hard and they appear to love the work they do. They ask intelligent questions and don’t waste time gossiping and mucking about. They listen and correct their errors, and don’t repeat them. They want your job.
+Especially in the early days of your company, delegation and promotion are among your most powerful weapons in getting rich. Men and women with spirit will be prepared to leave safe, comfortable jobs and work for you, providing the atmosphere of the new operation is loaded with optimism, adventure, the sweet scent of delegation and the promise of promotion.
+- **Highlight**:: As an owner, or an owner in training, you must always be alert for the telltale signs that here is a candidate for promotion and delegation. They are smart. Perhaps smarter than you are. They work hard and they appear to love the work they do. They ask intelligent questions and don’t waste time gossiping and mucking about. They listen and correct their errors, and don’t repeat them. They want your job.
+Especially in the early days of your company, delegation and promotion are among your most powerful weapons in getting rich. Men and women with spirit will be prepared to leave safe, comfortable jobs and work for you, providing the atmosphere of the new operation is loaded with optimism, adventure, the sweet scent of delegation and the promise of promotion.
+- Note:: N/A
 
-> More money is usually lost holding on to an asset than is made waiting for the zenith of its value.
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: Do not seek a replica of yourself to delegate to, or to promote. Watch out for this, it is a common error with people setting out to build a company. You have strengths and you have weaknesses in your own character. It makes no sense to increase those strengths your organization already possesses and not address the weaknesses.
+- **Highlight**:: Do not seek a replica of yourself to delegate to, or to promote. Watch out for this, it is a common error with people setting out to build a company. You have strengths and you have weaknesses in your own character. It makes no sense to increase those strengths your organization already possesses and not address the weaknesses.
+- Note:: N/A
+
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: I see a young man who would think nothing of working a sixteen-hour day—going out into the London night for a drink and a swift curry, coming back into the office for a few hours’ nap on the office sofa and beginning the process all over again. And I see the same young man, dragging himself in on Saturdays and Sundays, pale with self-inflicted exhaustion. Snappy. Quick to criticize and too slow to delegate and praise others. I see a young man trying too hard, but not delegating enough.
+Month after month, in those early days, I battered myself and my staff into setting world records for stamina and effort. Did it make me rich? No. It made me tired, bad-tempered and arrogant. It led me to make errors of judgment which I would have avoided had I gone about it a smarter way.
+- **Highlight**:: I see a young man who would think nothing of working a sixteen-hour day—going out into the London night for a drink and a swift curry, coming back into the office for a few hours’ nap on the office sofa and beginning the process all over again. And I see the same young man, dragging himself in on Saturdays and Sundays, pale with self-inflicted exhaustion. Snappy. Quick to criticize and too slow to delegate and praise others. I see a young man trying too hard, but not delegating enough.
+Month after month, in those early days, I battered myself and my staff into setting world records for stamina and effort. Did it make me rich? No. It made me tired, bad-tempered and arrogant. It led me to make errors of judgment which I would have avoided had I gone about it a smarter way.
+- Note:: N/A
+
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: How do you learn how to delegate wisely? Trial and error, I would say. I have been constantly surprised all my business life at who faces up to challenges best. It is very often not those who talk the best talk.
+- **Highlight**:: How do you learn how to delegate wisely? Trial and error, I would say. I have been constantly surprised all my business life at who faces up to challenges best. It is very often not those who talk the best talk.
+- Note:: N/A
+
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: If you want to get rich, then learn to delegate. Don’t learn to pretend to delegate. Delegation is not only a powerful tool, it is the only  way to maximize and truly incentivize your most precious asset—the people who work for you.
+Real delegation can help make you rich. But only if you work at it.
+- **Highlight**:: If you want to get rich, then learn to delegate. Don’t learn to pretend to delegate. Delegation is not only a powerful tool, it is the only  way to maximize and truly incentivize your most precious asset—the people who work for you.
+Real delegation can help make you rich. But only if you work at it.
+- Note:: N/A
+
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: Despite all my hard words about establishing ownership and caution where partners are concerned, I am a great believer in sharing the annual  pie around. That is, I believe in incentives that help concentrate the mind and bring a sense of competition and purpose to management.
+What I do not believe in, are incentives handed over as a kind of sop (you will find these everywhere) or in an owner sharing the proceeds of an asset sale unless contractually bound to do so.
+Use the annual profits of a company to grow the business by all means. One of the ways of making it grow is to carefully craft bonuses for those who work for you to achieve margin, cost and revenue targets. This is a great idea even if you are going short at the time yourself and your sales manager is earning more than you are that year. Sounds crazy? Well, it worked for me!
+But when it comes to a sale, when you cash in your asset for big bucks, then I dispute the necessity (or even the fairness, not that life  is fair) of handing over substantial chunks of the big bucks to people who did not risk their cash or livelihoods to create the business.
+- **Highlight**:: Despite all my hard words about establishing ownership and caution where partners are concerned, I am a great believer in sharing the annual  pie around. That is, I believe in incentives that help concentrate the mind and bring a sense of competition and purpose to management.
+What I do not believe in, are incentives handed over as a kind of sop (you will find these everywhere) or in an owner sharing the proceeds of an asset sale unless contractually bound to do so.
+Use the annual profits of a company to grow the business by all means. One of the ways of making it grow is to carefully craft bonuses for those who work for you to achieve margin, cost and revenue targets. This is a great idea even if you are going short at the time yourself and your sales manager is earning more than you are that year. Sounds crazy? Well, it worked for me!
+But when it comes to a sale, when you cash in your asset for big bucks, then I dispute the necessity (or even the fairness, not that life  is fair) of handing over substantial chunks of the big bucks to people who did not risk their cash or livelihoods to create the business.
+- Note:: N/A
+
+----
+
+- 📖 **Chapter**:: N/A
+- **Context**:: Twenty-one Ways to Make More Pie 
+Here is what I have learned as far as owning, sharing and growing your annual pie is concerned. None of this should be written in stone. The way I got rich and shared (and continue to share) my annual pie may not suit you or your own circumstances. That said, I suspect some of the points that follow are universal truths:1.  Make annual bonuses generous. If you want your managers to concentrate on improving margin and profitability while growing the business, then they have to feel the light is worth the candle. Pay them well for performing well. (They will have many excuses to make to their lovers or spouses for working late to achieve the goals you set them.)2.  “Ring fence” investment costs from “ongoing” business. You want the business to grow but you also want to make profits. Balance is the key. By “ring fencing” all investment money for new projects and growth in your annual accounts, you can encourage managers to work on margin and profit from their “ongoing” parts of the business while offering them the chance to grow and take some risk. This equation requires patience and goodwill on all sides. But it can be done, and it works.3.  Keep costs down. Always. “Overhead walks on two legs” and will eat you out of house and home. No company, new or old, can avoid stealth growth in overhead. It occurs, as it were, by osmosis. Prune overhead regularly. Stop only when the pips squeak.4.  Never delegate bonus arrangements. I once did so, like a fool, and twelve months later my company was forced to pay ludicrously high bonuses for a very small improvement in profit to six senior managers. Four of them voluntarily returned half of their bonuses. They knew they were not equitable. The other two insisted on keeping their bonuses. Neither of those two managers works for me today, or will ever work for me again. But it was my fault. I had delegated a task to them I should not have delegated.5.  At senior level, insist on collective responsibility for bonuses. Part of the annual incentive bonus for senior managers should result from their combined efforts to bring home the bacon. One cannot make a senior manager’s whole bonus rest on this edifice. But peer pressure is a powerful force. If senior managers sense one of their number is slacking and fear they may all suffer for his or her transgressions, they are likely to let their feelings be known. Forcefully.6.  Praise excellent work. But do not waste your praise on ho-hum performances as a sop. Employees respect a boss who knows the difference between the mundane and the exceptional. Remember that not all employees respond well to incentive bonuses or a dangled carrot of any kind. They seek recognition, not bribery.7.  Fire malingerers, incompetents, toads and glory hounds mercilessly. Not only does firing them make you feel better and contribute to a more pleasant working atmosphere, it cheers up the whole staff.8.  Turn a cold eye on company “perks.” These can add up to huge sums. While I am considered terribly old-fashioned on this subject, I am still uneasy about company-issued credit cards; company-issued mobile telephones; travel and entertainment of any stripe at the company’s expense; company air travel in any class but economy.9.  Avoid all “jollies,” the generic British term for flying the sales team to Florida in winter to “boost morale” and issue tub-thumping speeches, all of which are forgotten the second the crew hit the beach. You can’t afford “jollies.” Ignore protestations from sales managers to the contrary. A day set aside in a quiet environment, prepared for carefully, to assist sales teams improve their presentations to clients, is sensible. As is sales training from reputable training agencies.10.  Offer legal perks that you have paid for yourself to employees. This sounds crazy, but it works. I allow my employees, for example, the use of my Rolls-Royces or Bentleys for their weddings. I permit them to stay at my homes around the world if they have performed well. I send every child born to an employee (well, I used to in the early days—there are too many of them now) a massive soft toy. Such perks are legal because I paid for them myself from after-tax dollars or pounds.11.  Set an example. If, as an owner, you want fancy furniture in your office or works of art or Persian rugs, then bloody well pay for them yourself. How can you expect frugality when a junior manager, who works in a cubicle, comes to visit you, knowing that the company paid for those accessories? There is nothing wrong with them being there. It’s who paid for them that counts.12.  Encourage senior managers to go over annual results with you one-on-one. You will learn more from off-the-cuff remarks and opinions expressed at one-on-one meetings while looking over financial results than you will in a dozen board meetings. This tactic never fails to produce food for thought, often on both sides.13.  Back up your managers. With delegation comes responsibility. Back up your managers, in public, whenever and wherever you have to. If they do not perform, speak seriously in private to them. If they still do not perform, fire them. But do not undercut them or engage in meetings that appear to undercut them. Reprimand other managers who bad-mouth their peers. Nearly everyone’s ego and self-confidence is more fragile than the outside world believes.14.  Search out and promote talent. Talent comes in all shapes and sizes and is often inarticulate and shy. Talent isn’t necessarily the woman in the Calvin Klein suit who talks the talk and bamboozles meetings with stunning graphics on her PowerPoint presentation. Talent is often to be found dressed in T-shirts down in the lower reaches of your organization. Set a bounty on talent among managers. When you find it, test it. Groom it. Work it until it’s ready to drop. Load it with more work and responsibilities. Praise it. Reward it. It will make you loads-a-money.15.  Interview your rivals’ talent. I have never known a single person in a rival organization, however well paid or cosseted, who has refused to meet me for a quiet drink after work. I have discovered more about what my rivals are up to in this manner than any other. In addition, I have often been so impressed with the people I met in this way that I poached them later. No intelligence-gathering exercise is ever entirely wasted in business. There is only so much pie. Talent bakes that pie.16.  Discourage secrecy. The more you take middle and senior managers into your confidence, the more they will respect you and the harder they will work for you. Many managers disagree with this policy. They love the feeling of power that comes from knowing what others do not know. I don’t care about power. I care about getting rich.17.  Save a little bit of pie for suppliers. Save a little of the annual pie to wine and dine key suppliers. Or let them wine and dine you. If you like them enough, invite them to your home. We all remember to call often upon our major customers. But it is worth remembering suppliers. And they often have important market information.18.  Never bad-mouth rivals. It’s a sign of stupidity and weakness. I try to go out of my way to praise my rivals when I can. Often enough they deserve praise and they’re sure to learn about my comments sooner or later. Why go out of your way to antagonize them? (Secretly feeling sorry for them, because they do not own as much of their own company as you do, is definitely permitted.)19.  Sell early. Real money rarely comes from horsing around running an asset-laden business if you are an entrepreneur . You are not a manager, remember? You are trying to get rich. Whenever the chance comes to sell an asset at the top of its value, do so. Things do not keep increasing in value for ever. Get out while the going is good and move on to the next venture. More money is usually lost holding on to an asset than is made waiting for the zenith of its value. I should know—it’s my own biggest defect.20.  Enjoy the business of making money. The loot is only a marker. Time cannot be recaptured. There is no amount of pie in the world worth being miserable for, day after day. If you find you dislike what you are doing, then sell up and change your life. Self-imposed misery is a kind of madness. The cure is to get out.21.  Never miss an opportunity to promote your asset. Try purchasing one (or both) of my books of poetry: A Glass Half Full or Lone Wolf for instance. If they are not in your local bookstore, then go to www.felixdennis.com and check them out. Each contains a spoken-word CD and may well transform your entire life.
+- **Highlight**:: Twenty-one Ways to Make More Pie 
+Here is what I have learned as far as owning, sharing and growing your annual pie is concerned. None of this should be written in stone. The way I got rich and shared (and continue to share) my annual pie may not suit you or your own circumstances. That said, I suspect some of the points that follow are universal truths:1.  Make annual bonuses generous. If you want your managers to concentrate on improving margin and profitability while growing the business, then they have to feel the light is worth the candle. Pay them well for performing well. (They will have many excuses to make to their lovers or spouses for working late to achieve the goals you set them.)2.  “Ring fence” investment costs from “ongoing” business. You want the business to grow but you also want to make profits. Balance is the key. By “ring fencing” all investment money for new projects and growth in your annual accounts, you can encourage managers to work on margin and profit from their “ongoing” parts of the business while offering them the chance to grow and take some risk. This equation requires patience and goodwill on all sides. But it can be done, and it works.3.  Keep costs down. Always. “Overhead walks on two legs” and will eat you out of house and home. No company, new or old, can avoid stealth growth in overhead. It occurs, as it were, by osmosis. Prune overhead regularly. Stop only when the pips squeak.4.  Never delegate bonus arrangements. I once did so, like a fool, and twelve months later my company was forced to pay ludicrously high bonuses for a very small improvement in profit to six senior managers. Four of them voluntarily returned half of their bonuses. They knew they were not equitable. The other two insisted on keeping their bonuses. Neither of those two managers works for me today, or will ever work for me again. But it was my fault. I had delegated a task to them I should not have delegated.5.  At senior level, insist on collective responsibility for bonuses. Part of the annual incentive bonus for senior managers should result from their combined efforts to bring home the bacon. One cannot make a senior manager’s whole bonus rest on this edifice. But peer pressure is a powerful force. If senior managers sense one of their number is slacking and fear they may all suffer for his or her transgressions, they are likely to let their feelings be known. Forcefully.6.  Praise excellent work. But do not waste your praise on ho-hum performances as a sop. Employees respect a boss who knows the difference between the mundane and the exceptional. Remember that not all employees respond well to incentive bonuses or a dangled carrot of any kind. They seek recognition, not bribery.7.  Fire malingerers, incompetents, toads and glory hounds mercilessly. Not only does firing them make you feel better and contribute to a more pleasant working atmosphere, it cheers up the whole staff.8.  Turn a cold eye on company “perks.” These can add up to huge sums. While I am considered terribly old-fashioned on this subject, I am still uneasy about company-issued credit cards; company-issued mobile telephones; travel and entertainment of any stripe at the company’s expense; company air travel in any class but economy.9.  Avoid all “jollies,” the generic British term for flying the sales team to Florida in winter to “boost morale” and issue tub-thumping speeches, all of which are forgotten the second the crew hit the beach. You can’t afford “jollies.” Ignore protestations from sales managers to the contrary. A day set aside in a quiet environment, prepared for carefully, to assist sales teams improve their presentations to clients, is sensible. As is sales training from reputable training agencies.10.  Offer legal perks that you have paid for yourself to employees. This sounds crazy, but it works. I allow my employees, for example, the use of my Rolls-Royces or Bentleys for their weddings. I permit them to stay at my homes around the world if they have performed well. I send every child born to an employee (well, I used to in the early days—there are too many of them now) a massive soft toy. Such perks are legal because I paid for them myself from after-tax dollars or pounds.11.  Set an example. If, as an owner, you want fancy furniture in your office or works of art or Persian rugs, then bloody well pay for them yourself. How can you expect frugality when a junior manager, who works in a cubicle, comes to visit you, knowing that the company paid for those accessories? There is nothing wrong with them being there. It’s who paid for them that counts.12.  Encourage senior managers to go over annual results with you one-on-one. You will learn more from off-the-cuff remarks and opinions expressed at one-on-one meetings while looking over financial results than you will in a dozen board meetings. This tactic never fails to produce food for thought, often on both sides.13.  Back up your managers. With delegation comes responsibility. Back up your managers, in public, whenever and wherever you have to. If they do not perform, speak seriously in private to them. If they still do not perform, fire them. But do not undercut them or engage in meetings that appear to undercut them. Reprimand other managers who bad-mouth their peers. Nearly everyone’s ego and self-confidence is more fragile than the outside world believes.14.  Search out and promote talent. Talent comes in all shapes and sizes and is often inarticulate and shy. Talent isn’t necessarily the woman in the Calvin Klein suit who talks the talk and bamboozles meetings with stunning graphics on her PowerPoint presentation. Talent is often to be found dressed in T-shirts down in the lower reaches of your organization. Set a bounty on talent among managers. When you find it, test it. Groom it. Work it until it’s ready to drop. Load it with more work and responsibilities. Praise it. Reward it. It will make you loads-a-money.15.  Interview your rivals’ talent. I have never known a single person in a rival organization, however well paid or cosseted, who has refused to meet me for a quiet drink after work. I have discovered more about what my rivals are up to in this manner than any other. In addition, I have often been so impressed with the people I met in this way that I poached them later. No intelligence-gathering exercise is ever entirely wasted in business. There is only so much pie. Talent bakes that pie.16.  Discourage secrecy. The more you take middle and senior managers into your confidence, the more they will respect you and the harder they will work for you. Many managers disagree with this policy. They love the feeling of power that comes from knowing what others do not know. I don’t care about power. I care about getting rich.17.  Save a little bit of pie for suppliers. Save a little of the annual pie to wine and dine key suppliers. Or let them wine and dine you. If you like them enough, invite them to your home. We all remember to call often upon our major customers. But it is worth remembering suppliers. And they often have important market information.18.  Never bad-mouth rivals. It’s a sign of stupidity and weakness. I try to go out of my way to praise my rivals when I can. Often enough they deserve praise and they’re sure to learn about my comments sooner or later. Why go out of your way to antagonize them? (Secretly feeling sorry for them, because they do not own as much of their own company as you do, is definitely permitted.)19.  Sell early. Real money rarely comes from horsing around running an asset-laden business if you are an entrepreneur . You are not a manager, remember? You are trying to get rich. Whenever the chance comes to sell an asset at the top of its value, do so. Things do not keep increasing in value for ever. Get out while the going is good and move on to the next venture. More money is usually lost holding on to an asset than is made waiting for the zenith of its value. I should know—it’s my own biggest defect.20.  Enjoy the business of making money. The loot is only a marker. Time cannot be recaptured. There is no amount of pie in the world worth being miserable for, day after day. If you find you dislike what you are doing, then sell up and change your life. Self-imposed misery is a kind of madness. The cure is to get out.21.  Never miss an opportunity to promote your asset. Try purchasing one (or both) of my books of poetry: A Glass Half Full or Lone Wolf for instance. If they are not in your local bookstore, then go to www.felixdennis.com and check them out. Each 
+- Note:: N/A
+

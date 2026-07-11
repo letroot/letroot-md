@@ -1,21 +1,17 @@
----
-title: "A Smart Bear: Anthology"
-author: "Jason Cohen"
-date: 2026-06-24
-tags: [startup, marketing, positioning, product]
-source: "Apple Books"
----
+Title:: A Smart Bear- Anthology
+Author:: Cohen, Jason
+Link:: [Apple Books Link](ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751)
 
-# A Smart Bear: Anthology
+## Annotations
 
-**Author:** Jason Cohen
+Number of annotations:: 1
 
-## Positioning Around Value, Not Efficiency
+----
 
-Don't fall into the trap of framing your product as a way to "save time" or "save money" — those are abstract metrics your customer doesn't actually care about. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
+- 📖 **Chapter**:: N/A
+- **Context**:: So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t.
+Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
+- **Highlight**:: So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t.
+Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
+- Note:: N/A
 
-> So the next time you want to formulate your product as a way to "save time" or "save money" or "be more efficient" …. don't. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
-
-## Notable Quotes
-
-> So the next time you want to formulate your product as a way to "save time" or "save money" or "be more efficient" …. don't. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
