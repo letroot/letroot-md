@@ -140,3 +140,20 @@
 
 ### Action Rule
 - After making meaningful changes in the vault, stage only the files touched for the task, commit with a clear message, and push to the configured remote before reporting completion.
+
+## [2026-07-11] Session Note
+
+### Mistake
+- Digest scope included `book-notes` but did not explicitly exclude Christian book material inside or adjacent to that folder.
+
+### Correction
+- User clarified that `book-notes` should be included in the daily digest scope minus Christian book notes.
+
+### Lesson
+- Folder-level inclusion can still need topic/file-level exclusions when mixed-content folders contain religious/devotional material.
+
+### Preference (if any)
+- Daily founder digest should include secular/business/judgment `book-notes`, but exclude `christian-book-notes` and Christian book material such as the George Muller collection unless explicitly re-included.
+
+### Action Rule
+- When generating daily digests, treat Christian book notes as out of scope by default alongside Pleros and church-history material.
