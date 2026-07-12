@@ -208,3 +208,20 @@
 
 ### Action Rule
 - On suspected digest automation failure, first check today's digest file, state file, and Telegram delivery; if missing, generate/send/commit the digest before reporting.
+
+## [2026-07-12] Session Note
+
+### Mistake
+- Telegram digest delivery used the same plain markdown body as chat, without explicitly formatting section headings for Telegram readability.
+
+### Correction
+- User asked for Telegram messages to have bolded headings.
+
+### Lesson
+- Cross-channel digest delivery needs channel-specific formatting, not just identical text copy.
+
+### Preference (if any)
+- Telegram digest messages should use bold section headings such as `**Main Thought**`, `**For You As A Founder**`, `**For You As A Young Man**`, and `**Read/Ponder**`.
+
+### Action Rule
+- Before sending the digest to Telegram, convert section headings to bold heading lines while keeping the Obsidian file and ChatGPT post in normal markdown format.
