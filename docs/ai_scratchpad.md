@@ -191,3 +191,20 @@
 
 ### Action Rule
 - After generating/pasting a daily digest, send the same readable digest body to Telegram with `openclaw message send --channel telegram --target -1004474889053 --message ...`; if Telegram send fails, still post in chat and mention the failure.
+
+## [2026-07-12] Session Note
+
+### Mistake
+- Daily digest heartbeat reached the thread, but the digest file, chat post, and Telegram send were not completed before the user noticed.
+
+### Correction
+- Generated the missed digest manually, sent it to Telegram, committed the digest files, and treated the run as a catch-up.
+
+### Lesson
+- A received heartbeat is not sufficient; completion must be verified by checking for today's digest file and successful Telegram delivery.
+
+### Preference (if any)
+- If the daily digest appears not to run, catch it up immediately rather than only explaining the scheduler.
+
+### Action Rule
+- On suspected digest automation failure, first check today's digest file, state file, and Telegram delivery; if missing, generate/send/commit the digest before reporting.
