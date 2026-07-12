@@ -1,12 +1,15 @@
 {
   "version": 1,
-  "updated_at": "2026-07-11",
+  "updated_at": "2026-07-12",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
     "show-notes/CHT-Deep-Dives",
     "show-notes/CHT-Modern-Church",
-    "church-history material"
+    "church-history material",
+    "christian-book-notes",
+    "book-notes/The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours.md",
+    "Christian book material"
   ],
   "history": [
     {
@@ -46,6 +49,25 @@
         "first-time-user-experience"
       ],
       "summary": "AI can increase output without improving progress; founders still need judgment, direct feedback loops, cleanup, restraint, and quality standards."
+    },
+    {
+      "date": "2026-07-12",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/1-skin-in-the-game.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "skin-in-the-game",
+        "risk-ownership",
+        "ethical-symmetry",
+        "reality-judged-expertise",
+        "downside-exposure",
+        "decision-making"
+      ],
+      "summary": "Trust people and systems more when they bear consequences; founders should keep reality close and avoid structures where upside is separated from downside."
     }
   ]
 }
