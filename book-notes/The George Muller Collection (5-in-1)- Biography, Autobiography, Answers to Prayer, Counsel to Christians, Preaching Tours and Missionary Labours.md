@@ -1,15 +1,25 @@
-Title:: The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours
-Author:: George Muller
-Link:: [Apple Books Link](ibooks://assetid/46F260C0954DAB0F0445E33007CDED46)
+---
+title: "The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours"
+author: "George Muller"
+date: 2026-07-11
+tags:
+  - book-notes
+  - apple-books
+  - highlights
+---
 
-## Annotations
+# The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours
 
-Number of annotations:: 1
+## Overview
 
-----
+George Muller highlight export from Apple Books, cleaned into readable markdown.
 
-- 📖 **Chapter**:: N/A
-- **Context**:: But that which weighed more with me than anything, was, that I have reason to believe, from what I have seen among the children of God, that many of their trials arise either from want of confidence in the Lord as it regards temporal things, or from carrying on their business in an unscriptural way.
-- **Highlight**:: But that which weighed more with me than anything, was, that I have reason to believe, from what I have seen among the children of God, that many of their trials arise either from want of confidence in the Lord as it regards temporal things, or from carrying on their business in an unscriptural way.
-- Note:: N/A
+- Source: [Apple Books Link](ibooks://assetid/46F260C0954DAB0F0445E33007CDED46)
+- Imported highlights: 1
+
+## Notable Quotes
+
+### Quote 1
+
+> But that which weighed more with me than anything, was, that I have reason to believe, from what I have seen among the children of God, that many of their trials arise either from want of confidence in the Lord as it regards temporal things, or from carrying on their business in an unscriptural way.
 
