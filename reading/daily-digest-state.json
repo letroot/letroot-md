@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-12",
+  "updated_at": "2026-07-13",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -68,6 +68,25 @@
         "decision-making"
       ],
       "summary": "Trust people and systems more when they bear consequences; founders should keep reality close and avoid structures where upside is separated from downside."
+    },
+    {
+      "date": "2026-07-13",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/mike-israetel/1-stop-pressuring-yourself.md"
+      ],
+      "source_folders": [
+        "show-notes/mike-israetel"
+      ],
+      "concept_tags": [
+        "self-imposed-pressure",
+        "consistency",
+        "recovery",
+        "burnout",
+        "creation-vs-vetting",
+        "discipline"
+      ],
+      "summary": "Self-imposed pressure drains performance; disciplined consistency comes from scheduling the work, separating creation from vetting, and recovering without guilt."
     }
   ]
 }
