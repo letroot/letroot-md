@@ -1,26 +1,27 @@
 ---
 title: "A Smart Bear- Anthology"
 author: "Cohen, Jason"
-date: 2026-07-11
+date: 2026-07-14
 tags:
   - book-notes
-  - apple-books
   - highlights
+source_link: "ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751"
 ---
 
 # A Smart Bear- Anthology
 
-## Overview
+## Notes
 
-Cohen, Jason highlight export from Apple Books, cleaned into readable markdown.
+Structured from 1 Apple Books annotation.
 
-- Source: [Apple Books Link](ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751)
-- Imported highlights: 1
+### Highlight 1
 
-## Notable Quotes
-
-### Quote 1
+So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t.
+Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
 
 > So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t.
 > Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
 
+## Notable Quotes
+
+- "So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that."
