@@ -1,0 +1,130 @@
+{
+  "version": 1,
+  "updated_at": "2026-07-15",
+  "exclusions": [
+    "show-notes/pleros-podcast",
+    "show-notes/CHT-1st-Century",
+    "show-notes/CHT-Deep-Dives",
+    "show-notes/CHT-Modern-Church",
+    "church-history material",
+    "christian-book-notes",
+    "book-notes/The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours.md",
+    "Christian book material"
+  ],
+  "history": [
+    {
+      "date": "2026-07-10",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/alex-hormozi/1-why-being-fast-makes-you-always-win-thank-me-later.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "decision-making",
+        "tradeoffs",
+        "execution-speed",
+        "hidden-stagnation",
+        "focus",
+        "positioning"
+      ],
+      "summary": "Hard decisions signal the easy gains are gone; speed comes from naming real tradeoffs and choosing deliberately instead of preserving drift."
+    },
+    {
+      "date": "2026-07-11",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/pragmatic-engineer/1-building-opencode-with-dax-raad.md"
+      ],
+      "source_folders": [
+        "show-notes/pragmatic-engineer"
+      ],
+      "concept_tags": [
+        "product-judgment",
+        "shipping-restraint",
+        "ai-assisted-development",
+        "quality",
+        "feedback-loops",
+        "first-time-user-experience"
+      ],
+      "summary": "AI can increase output without improving progress; founders still need judgment, direct feedback loops, cleanup, restraint, and quality standards."
+    },
+    {
+      "date": "2026-07-12",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/1-skin-in-the-game.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "skin-in-the-game",
+        "risk-ownership",
+        "ethical-symmetry",
+        "reality-judged-expertise",
+        "downside-exposure",
+        "decision-making"
+      ],
+      "summary": "Trust people and systems more when they bear consequences; founders should keep reality close and avoid structures where upside is separated from downside."
+    },
+    {
+      "date": "2026-07-13",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/mike-israetel/1-stop-pressuring-yourself.md"
+      ],
+      "source_folders": [
+        "show-notes/mike-israetel"
+      ],
+      "concept_tags": [
+        "self-imposed-pressure",
+        "consistency",
+        "recovery",
+        "burnout",
+        "creation-vs-vetting",
+        "discipline"
+      ],
+      "summary": "Self-imposed pressure drains performance; disciplined consistency comes from scheduling the work, separating creation from vetting, and recovering without guilt."
+    },
+    {
+      "date": "2026-07-14",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/grant-owen/1-every-level-of-marketing.md"
+      ],
+      "source_folders": [
+        "show-notes/grant-owen"
+      ],
+      "concept_tags": [
+        "organic-content",
+        "message-testing",
+        "empathy",
+        "paid-amplification",
+        "funnel-attachment",
+        "bias-for-action"
+      ],
+      "summary": "Marketing improves when founders use organic content to test real customer resonance, move winners into paid distribution, and keep a fast feedback loop from attention to conversion."
+    },
+    {
+      "date": "2026-07-15",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/david-senra/1-bootstrapping-a-business-to-5-billion-in-free-cash-flow.md"
+      ],
+      "source_folders": [
+        "show-notes/david-senra"
+      ],
+      "concept_tags": [
+        "founder-conviction",
+        "mechanism-vs-wrapper",
+        "performance-marketing",
+        "capital-allocation",
+        "talent-density",
+        "case-study"
+      ],
+      "summary": "Strong builders stop protecting the first form of the business and reorganize around the mechanism that actually creates value."
+    }
+  ]
+}
