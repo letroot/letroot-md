@@ -1,7 +1,7 @@
 ---
 title: "Fooled by Randomness"
 author: "Nassim Nicholas Taleb"
-date: 2026-07-14
+date: 2026-07-17
 tags:
   - book-notes
   - decision-making
