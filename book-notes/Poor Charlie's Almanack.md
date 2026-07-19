@@ -1,7 +1,7 @@
 ---
 title: "Poor Charlie's Almanack"
 author: "Charles T. Munger"
-date: 2026-07-17
+date: 2026-07-19
 tags:
   - book-notes
   - investing
