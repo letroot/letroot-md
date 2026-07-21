@@ -1,7 +1,7 @@
 ---
 title: "Poor Charlie's Almanack"
 author: "Charles T. Munger"
-date: 2026-07-19
+date: 2026-07-21
 tags:
   - book-notes
   - investing
@@ -14,7 +14,7 @@ tags:
 
 ## Overview
 - Source: Apple Books annotations export
-- Highlights captured: 17
+- Highlights captured: 21
 
 ## Notes
 
@@ -99,6 +99,24 @@ tags:
 ### Highlight 17
 
 > As you can see, Charlie’s superior performance doesn’t come from a magic formula or some business school–­inspired system. It comes from what he calls his “constant search for better methods of thought,” from a willingness to “prepay” through rigorous preparation, and from the extra­ordinary outcomes of his multidisciplinary research model. In the end, it comes down to Charlie’s most basic guiding principles, his fundamental philosophy of life: Preparation. Discipline. Patience. Decisiveness.
+
+### Highlight 18
+
+> Well, so much for Carson’s three prescriptions. Here are four more prescriptions from Munger: First, be unreliable. Do not faithfully do what you have engaged to do. If you will only master this one habit, you will more than counter­balance the combined effect of all your virtues, howsoever great. If you like being distrusted and excluded from the best human contribution and company, this prescription is for you. Master this one habit, and you will always play the role of the hare in the fable, except that instead of being outrun by one fine turtle, you will be outrun by hordes and hordes of mediocre turtles, and even some mediocre turtles on crutches.
+
+### Highlight 19
+
+> You can see the results of not learning from others’ mistakes by simply looking about you. How little originality there is in the common disasters of mankind: drunk driving deaths, reckless driving maimings, incurable venereal diseases, conversion of bright college students into brainwashed zombies as members of destructive cults, business failures through repetition of obvious mistakes made by predecessors, various forms of crowd folly, and so on. I recommend as a memory clue to finding the way to real trouble from heedless, unoriginal error the modern saying “If at first you don’t succeed, well, so much for hang gliding.”
+
+### Highlight 20
+
+> The other aspect of avoiding vicarious wisdom is the rule of not learning from the best work done before yours. The prescription is to become as non-educated as you reasonably can.
+
+### Highlight 21
+
+> My third prescription to you for misery is to go down and stay down when you get your first, second, or third severe reverse in the battle of life.
+
+**Context:** My third prescription to you for misery is to go down and stay down when you get your first, second, or third severe reverse in the battle of life. Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, in due course, you will be permanently mired in misery.
 
 ## Notable Quotes
 

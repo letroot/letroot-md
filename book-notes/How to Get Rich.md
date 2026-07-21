@@ -1,7 +1,7 @@
 ---
 title: "How to Get Rich"
 author: "Felix Dennis"
-date: 2026-07-19
+date: 2026-07-21
 tags:
   - book-notes
   - business

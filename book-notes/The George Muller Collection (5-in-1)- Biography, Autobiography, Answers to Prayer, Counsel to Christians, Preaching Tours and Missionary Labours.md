@@ -1,7 +1,7 @@
 ---
 title: "The George Muller Collection (5-in-1)- Biography, Autobiography, Answers to Prayer, Counsel to Christians, Preaching Tours and Missionary Labours"
 author: "George Muller"
-date: 2026-07-19
+date: 2026-07-21
 tags:
   - book-notes
   - faith
