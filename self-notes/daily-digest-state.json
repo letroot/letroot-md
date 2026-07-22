@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-15",
+  "updated_at": "2026-07-21",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -125,6 +125,106 @@
         "case-study"
       ],
       "summary": "Strong builders stop protecting the first form of the business and reorganize around the mechanism that actually creates value."
+    },
+    {
+      "date": "2026-07-16",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-07-10.md",
+        "self-notes/daily-digest/2026-07-11.md",
+        "self-notes/daily-digest/2026-07-12.md",
+        "self-notes/daily-digest/2026-07-13.md",
+        "self-notes/daily-digest/2026-07-14.md",
+        "self-notes/daily-digest/2026-07-15.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-contact",
+        "feedback-loops",
+        "tradeoffs",
+        "owned-consequences",
+        "steady-discipline",
+        "mechanism-focus"
+      ],
+      "summary": "The week converges on one lesson: reduce the distance between reality and action by making clearer tradeoffs, seeking feedback, owning consequences, and reinforcing what truly works."
+    },
+    {
+      "date": "2026-07-17",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/school-of-hard-knocks/vic-keller-start-from-scratch.md"
+      ],
+      "source_folders": [
+        "show-notes/school-of-hard-knocks"
+      ],
+      "concept_tags": [
+        "durable-business",
+        "gauges-over-gut",
+        "professionalization",
+        "partnerships",
+        "hiring-standards",
+        "operator-discipline"
+      ],
+      "summary": "Durable operators scale by trusting gauges over emotion, building professional systems, and partnering for leverage instead of relying on hustle alone."
+    },
+    {
+      "date": "2026-07-18",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/lennys-podcast/002-the-hidden-pattern-behind-successful-products.md"
+      ],
+      "source_folders": [
+        "show-notes/lennys-podcast"
+      ],
+      "concept_tags": [
+        "proven-better-new",
+        "instinct-vs-ideas",
+        "cheap-testing",
+        "distribution-is-product",
+        "retention",
+        "intellectual-honesty"
+      ],
+      "summary": "Strong product builders keep their instinct, loosen their attachment to first implementations, and test better-plus-new ideas quickly against real retention and distribution evidence."
+    },
+    {
+      "date": "2026-07-20",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/my-first-million/09-mohnish-pabrai-on-warren-buffett-charlie-munger-and-100-baggers.md"
+      ],
+      "source_folders": [
+        "show-notes/my-first-million"
+      ],
+      "concept_tags": [
+        "asymmetric-bets",
+        "dhandho",
+        "compounding",
+        "inactivity",
+        "downside-protection",
+        "judgment"
+      ],
+      "summary": "Better judgment comes from structuring low-downside, high-upside bets and letting a few durable decisions compound instead of chasing constant activity."
+    },
+    {
+      "date": "2026-07-21",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/cal-newport/1-cultivating-discipline-as-a-cure-for-distraction.md"
+      ],
+      "source_folders": [
+        "show-notes/cal-newport"
+      ],
+      "concept_tags": [
+        "discipline",
+        "attention",
+        "groundedness",
+        "anti-optimization",
+        "identity",
+        "focus"
+      ],
+      "summary": "Lasting focus comes from a real, repeatable discipline sized to your life, not from performative optimization or brittle intensity."
     }
   ]
 }
