@@ -14,7 +14,7 @@ tags:
 
 ## Overview
 - Source: Apple Books annotations export
-- Highlights captured: 21
+- Highlights captured: 35
 
 ## Notes
 
@@ -117,6 +117,76 @@ tags:
 > My third prescription to you for misery is to go down and stay down when you get your first, second, or third severe reverse in the battle of life.
 
 **Context:** My third prescription to you for misery is to go down and stay down when you get your first, second, or third severe reverse in the battle of life. Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, in due course, you will be permanently mired in misery.
+
+### Highlight 22
+
+> My final prescription to you for a life of fuzzy thinking and infelicity is to ignore a story they told me when I was very young about a rustic who said, “I wish I knew where I was going to die, and then I’d never go there.”
+
+**Context:** My final prescription to you for a life of fuzzy thinking and infelicity is to ignore a story they told me when I was very young about a rustic who said, “I wish I knew where I was going to die, and then I’d never go there.” Most people smile, as you did, at the rustic’s ignorance and ignore his basic wisdom.
+
+### Highlight 23
+
+> “Invert, always invert.” It is in the nature of things, as Jacobi knew, that many hard problems are best solved only when they are addressed backward. For instance, when almost everyone else was trying to revise the electromagnetic laws of [James Clerk] Maxwell8 to be consistent with the motion laws of Newton, Einstein9 discovered special relativity as he made a 180-degree turn and revised Newton’s laws to fit Maxwell’s.
+
+**Context:** The great algebraist Jacobi had exactly the same approach as Carson and was known for his constant repetition of one phrase: “Invert, always invert.” It is in the nature of things, as Jacobi knew, that many hard problems are best solved only when they are addressed backward. For instance, when almost everyone else was trying to revise the electromagnetic laws of [James Clerk] Maxwell8 to be consistent with the motion laws of Newton, Einstein9 discovered special relativity as he made a 180-degree turn and revised Newton’s laws to fit Maxwell’s.
+
+### Highlight 24
+
+> If you minimize objectivity, you ignore not only a lesson from Darwin but also one from Einstein. Einstein said that his successful theories came from “curiosity, concentration, perseverance, and self-criticism.” And by self-criticism, he meant the testing and destruction of his own well-loved ideas.
+
+### Highlight 25
+
+> As I review in 2006 this talk made in 1986, I would not revise a single idea. If anything, I now believe even more strongly that 1) reliability is essential for progress in life
+
+**Context:** As I review in 2006 this talk made in 1986, I would not revise a single idea. If anything, I now believe even more strongly that 1) reliability is essential for progress in life and 2) while quantum mechanics is unlearnable for a vast majority, reliability can be learned to great advantage by almost anyone.
+
+### Highlight 26
+
+> What is elementary, worldly wisdom? Well, the first rule is that you can’t really know anything if you just remember isolated facts and try and bang ’em back. If the facts don’t hang together on a latticework of theory, you don’t have them in a usable form. You’ve got to have models in your head. And you’ve got to array your experience—both vicarious and direct—on this latticework of models. You may have noticed students who just try to remember and pound back what is remembered. Well, they fail in school and fail in life. You’ve got to hang experience on a latticework of models in your head.
+
+### Highlight 27
+
+> What are the models? Well, the first rule is that you’ve got to have multiple models
+
+**Context:** What are the models? Well, the first rule is that you’ve got to have multiple models—because if you have just one or two that you’re using, the nature of human psychology is such that you’ll torture reality so that it fits your models, or at least you’ll think it does.
+
+### Highlight 28
+
+> So you’ve got to have multiple models. And the models have to come from multiple disciplines—because all the wisdom of the world is not to be found in one little academic department. That’s why poetry professors, by and large, are so unwise in a worldly sense. They don’t have enough models in their heads. So you’ve got to have models across a fair array of disciplines.
+
+### Highlight 29
+
+> First, there’s mathematics. Obviously, you’ve got to be able to handle numbers and quantities—basic arithmetic. And the great useful model, after compound interest, is the elementary math of permutations and combinations. That was taught in my day in the sophomore year in high school. I suppose by now, in great private schools, it’s probably down to the eighth grade or so. It’s very simple algebra. And it was all worked out in the course of about one year in correspondence between [Blaise] Pascal and [Pierre de] Fermat.13 They worked it out casually in a series of letters.
+
+### Highlight 30
+
+> Many educational institutions—although not nearly enough—have realized this. At Harvard Business School, the great quantitative thing that bonds the first year class together is what they call decision tree theory. All they do is take high school algebra and apply it to real life problems. And the students love it
+
+**Context:** Many educational institutions—although not nearly enough—have realized this. At Harvard Business School, the great quantitative thing that bonds the first year class together is what they call decision tree theory. All they do is take high school algebra and apply it to real life problems. And the students love it.
+
+### Highlight 31
+
+> If you don’t get this elementary, but mildly unnatural, mathematics of elementary probability into your repertoire, then you go through a long life like a one legged man in an ass kicking contest. You’re giving a huge advantage to everybody else. One of the advantages of a fellow like Buffett, whom I’ve worked with all these years, is that he automatically thinks in terms of decision trees and the elementary math of permutations and combinations.
+
+### Highlight 32
+
+> Obviously, you have to know accounting. It’s the language of practical business life. It was a very useful thing to deliver to civilization.
+
+**Context:** Obviously, you have to know accounting. It’s the language of practical business life. It was a very useful thing to deliver to civilization. I’ve heard it came to civilization through Venice, which, of course, was once the great commercial power in the Mediterranean.
+
+### Highlight 33
+
+> He had another rule, from psychology—which, if you’re interested in wisdom, ought to be part of your repertoire, like the elementary mathematics of permutations and combinations. His rule for all the Braun Company’s communications was called the five Ws: You had to tell who was going to do what, where, when, and why. And if you wrote a letter or directive in the Braun Company telling somebody to do something and you didn’t tell him why, you could get fired. In fact, you would get fired if you did it twice.
+
+### Highlight 34
+
+> You might ask, why is that so important? Well, again, that’s a rule of psychology. Just as you think better if you array knowledge on a bunch of models that are basically answers to the question “Why, why, why?,” if you always tell people why, they’ll understand it better, they’ll consider it more important, and they’ll be more likely to comply
+
+**Context:** You might ask, why is that so important? Well, again, that’s a rule of psychology. Just as you think better if you array knowledge on a bunch of models that are basically answers to the question “Why, why, why?,” if you always tell people why, they’ll understand it better, they’ll consider it more important, and they’ll be more likely to comply.
+
+### Highlight 35
+
+> Which models are the most reliable? Well, obviously, the models that come from hard science and engineering are the most reliable models on this earth. And engineering quality control—at least the guts of it that matters to you and me and people who are not professional engineers—is very much based on the elementary mathematics of Fermat and Pascal: It costs so much, and you get so much less likelihood of it breaking if you spend this much. It’s all elementary high school mathematics. And an elaboration of that is what [W. Edwards] Deming15 brought to Japan for all of that quality control stuff.
 
 ## Notable Quotes
 
