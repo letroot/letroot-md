@@ -14,7 +14,7 @@ tags:
 
 ## Overview
 - Source: Apple Books annotations export
-- Highlights captured: 35
+- Highlights captured: 54
 
 ## Notes
 
@@ -187,6 +187,104 @@ tags:
 ### Highlight 35
 
 > Which models are the most reliable? Well, obviously, the models that come from hard science and engineering are the most reliable models on this earth. And engineering quality control—at least the guts of it that matters to you and me and people who are not professional engineers—is very much based on the elementary mathematics of Fermat and Pascal: It costs so much, and you get so much less likelihood of it breaking if you spend this much. It’s all elementary high school mathematics. And an elaboration of that is what [W. Edwards] Deming15 brought to Japan for all of that quality control stuff.
+
+### Highlight 36
+
+> And, of course, the engineering idea of a backup system is a very powerful idea. The engineering idea of breakpoints, that’s a very powerful model too. The notion of a critical mass—that comes out of physics—is a very powerful model.
+
+### Highlight 37
+
+> I’m like a poker player who’s learned to play pretty well without mastering Pascal. And, by the way, that works well enough. But you have to understand that bell shaped curve at least roughly as well as I do.
+
+**Context:** But if you ask me to work out something involving a Gaussian distribution to 10 decimal points, I can’t sit down and do the math. I’m like a poker player who’s learned to play pretty well without mastering Pascal. And, by the way, that works well enough. But you have to understand that bell shaped curve at least roughly as well as I do.
+
+### Highlight 38
+
+> I don’t think it’s necessary for most people to be terribly facile in statistics. For example, I’m not sure that I can even pronounce the Gaussian distribution, although I know what it looks like and I know that events and huge aspects of reality end up distributed that way. So I can do a rough calculation
+
+**Context:** I don’t think it’s necessary for most people to be terribly facile in statistics. For example, I’m not sure that I can even pronounce the Gaussian distribution, although I know what it looks like and I know that events and huge aspects of reality end up distributed that way. So I can do a rough calculation.
+
+### Highlight 39
+
+> Then, when you get into psychology, of course, it gets very much more complicated. But it’s an ungodly important subject if you’re going to have any worldly wisdom. And the reason why is that the perceptual apparatus of man has shortcuts in it. The brain cannot have unlimited circuitry. So someone who knows how to take advantage of those shortcuts and cause the brain to miscalculate in certain ways can cause you to see things that aren’t there.
+
+### Highlight 40
+
+> o when circumstances combine in certain ways—or, more commonly, when your fellow man starts acting like the magician and manipulates you on purpose by causing you cognitive dysfunction—you’re a patsy. And so, just as a man working with a tool has to know its limitations, a man working with his cognitive apparatus has to know its limitations.
+
+**Context:** So when circumstances combine in certain ways—or, more commonly, when your fellow man starts acting like the magician and manipulates you on purpose by causing you cognitive dysfunction—you’re a patsy. And so, just as a man working with a tool has to know its limitations, a man working with his cognitive apparatus has to know its limitations.
+
+### Highlight 41
+
+> The elementary part of psychology—the psychology of misjudgment, as I call it—is a terribly important thing to learn. There are about 20 little principles. And they interact, so it gets slightly complicated.
+
+### Highlight 42
+
+> Pascal said, “The mind of man at one and the same time is both the glory and the shame of the universe.” And that’s exactly right. It has this enormous power. However, it also has these standard misfunctions that often cause it to reach wrong conclusions. It also makes man extraordinarily subject to manipulation by others. For example, roughly half of the army of Adolf Hitler was composed of believing Catholics. Given enough clever psychological manipulation, what human beings will do is quite interesting.
+
+**Context:** There’s another saying that comes from Pascal that I’ve always considered one of the really accurate observations in the history of thought. Pascal said, “The mind of man at one and the same time is both the glory and the shame of the universe.” And that’s exactly right. It has this enormous power. However, it also has these standard misfunctions that often cause it to reach wrong conclusions. It also makes man extraordinarily subject to manipulation by others. For example, roughly half of the army of Adolf Hitler was composed of believing Catholics. Given enough clever psychological manipulation, what human beings will do is quite interesting.
+
+### Highlight 43
+
+> I now use a kind of two track analysis. First, what are the factors that really govern the interests involved, rationally considered? And second, what are the sub­conscious influences where the brain, at a subconscious level, is automatically doing these things—which, by and large, are useful but which often misfunction? One approach is rationality, the way you’d work out a bridge problem: by evaluating the real interests, the real probabilities, and so forth. And the other is to evaluate the psychological factors that cause subconscious conclusions, many of which are wrong.
+
+**Context:** Personally, I’ve gotten so that I now use a kind of two track analysis. First, what are the factors that really govern the interests involved, rationally considered? And second, what are the sub­conscious influences where the brain, at a subconscious level, is automatically doing these things—which, by and large, are useful but which often misfunction? One approach is rationality, the way you’d work out a bridge problem: by evaluating the real interests, the real probabilities, and so forth. And the other is to evaluate the psychological factors that cause subconscious conclusions, many of which are wrong.
+
+### Highlight 44
+
+> we come to another, somewhat less reliable form of human wisdom: microeconomics. Here I find it quite useful to think of a free-market economy—or a partly free-market economy—as sort of the equivalent of an ecosystem.
+
+**Context:** Now we come to another, somewhat less reliable form of human wisdom: microeconomics. Here I find it quite useful to think of a free-market economy—or a partly free-market economy—as sort of the equivalent of an ecosystem.
+
+### Highlight 45
+
+> But the truth is that it is a lot like an ecosystem. And you get many of the same results. Just as in an ecosystem, people who narrowly specialize can get terribly good at occupying some little niche. Just as animals flourish in niches, people who specialize in the business world—and get very good because they specialize—frequently find good economics that they wouldn’t get any other way.
+
+### Highlight 46
+
+> once we get into microeconomics, we get into the concept of advantages of scale. Now we’re getting closer to investment analysis, because in terms of which businesses succeed and which businesses fail, advantages of scale are ungodly important.
+
+**Context:** And once we get into microeconomics, we get into the concept of advantages of scale. Now we’re getting closer to investment analysis, because in terms of which businesses succeed and which businesses fail, advantages of scale are ungodly important.
+
+### Highlight 47
+
+> For example, one great advantage of scale taught in all of the business schools of the world is cost reductions along the so called experience curve. Just doing something complicated in more and more volume enables human beings, who are trying to improve and are motivated by the incentives of capitalism, to do it more and more efficiently.
+
+**Context:** For example, one great advantage of scale taught in all of the business schools of the world is cost reductions along the so called experience curve. Just doing something complicated in more and more volume enables human beings, who are trying to improve and are motivated by the incentives of capitalism, to do it more and more efficiently. The very nature of things is that if you get a whole lot of volume through your operation, you get better at processing that volume.
+
+### Highlight 48
+
+> For example, you can get advantages of scale from TV advertising. When TV advertising first arrived—when talking color pictures first came into our living rooms—it was an unbelievably powerful thing. And in the early days, we had three networks that had whatever it was, say 90 percent of the audience. Well, if you were Procter & Gamble, you could afford to use this new method of advertising. You could afford the very expensive cost of network television because you were selling so damn many cans and bottles. Some little guy couldn’t. And there was no way of buying it in part. Therefore, he couldn’t use it. In effect, if you didn’t have a big volume, you couldn’t use network TV advertising, which was the most effective technique. So when TV came in, the branded companies that were already big got a huge tailwind. Indeed, they prospered and prospered and prospered until some of them got fat and foolish, which happens with prosperity, at least to some people.
+
+### Highlight 49
+
+> advantage of scale can be an informational advantage. If I go to some remote place, I may see Wrigley chewing gum alongside Glotz’s chewing gum. Well, I know that Wrigley is a satisfactory product whereas I don’t know anything about Glotz’s. So if one is 40¢ and the other is 30¢, am I going to take something I don’t know and put it in my mouth—which is a pretty personal place, after all—for a lousy dime? So, in effect, Wrigley, simply by being so well known, has advantages of scale—what you might call an informational advantage.
+
+**Context:** And your advantage of scale can be an informational advantage. If I go to some remote place, I may see Wrigley chewing gum alongside Glotz’s chewing gum. Well, I know that Wrigley is a satisfactory product whereas I don’t know anything about Glotz’s. So if one is 40¢ and the other is 30¢, am I going to take something I don’t know and put it in my mouth—which is a pretty personal place, after all—for a lousy dime? So, in effect, Wrigley, simply by being so well known, has advantages of scale—what you might call an informational advantage.
+
+### Highlight 50
+
+> Another advantage of scale comes from psychology. Psychologists use the term social proof. We are all influenced—subconsciously and, to some extent, consciously—by what we see others do and approve. Therefore, if everybody’s buying something, we think it’s better. We don’t like to be the one guy who’s out of step. Again, some of this is at a subconscious level and some of it isn’t. Sometimes, we consciously and rationally think, “Gee, I don’t know much about this. They know more than I do. Therefore, why shouldn’t I follow them?”
+
+### Highlight 51
+
+> Well, suppose you have a little soft drink. Exactly how do you make it available all over the earth? The worldwide distribution setup, which is slowly won by a big enterprise, gets to be a huge advantage. And if you think about it, once you get enough advantages of that type, it can become very hard for anybody to dislodge you.
+
+### Highlight 52
+
+> newspaper. And, again, that’s a scale thing. Once I get most of the circulation, I get most of the advertising. And once I get most of the advertising and circulation, why would anyone want the thinner paper with less information in it? So it tends to cascade to a winner-take all situation. And that’s a separate form of the advantages of-scale phenomenon.
+
+**Context:** There’s practically no city left in the United States, aside from a few very big ones, where there’s more than one daily newspaper. And, again, that’s a scale thing. Once I get most of the circulation, I get most of the advertising. And once I get most of the advertising and circulation, why would anyone want the thinner paper with less information in it? So it tends to cascade to a winner-take all situation. And that’s a separate form of the advantages of-scale phenomenon.
+
+### Highlight 53
+
+> There’s another kind of advantage to scale. In some businesses, the very nature of things is to sort of cascade toward the overwhelming dominance of one firm. The most obvious one is daily news­papers. There’s practically no city left in the United States, aside from a few very big ones, where there’s more than one daily
+
+**Context:** There’s another kind of advantage to scale. In some businesses, the very nature of things is to sort of cascade toward the overwhelming dominance of one firm. The most obvious one is daily news­papers. There’s practically no city left in the United States, aside from a few very big ones, where there’s more than one daily newspaper.
+
+### Highlight 54
+
+> Similarly, all these huge advantages of scale allow greater specialization within the firm. Therefore, each person can be better at what he does. And these advantages of scale are so great, for example, that when Jack Welch16 came into General Electric, he just said, “To hell with it. We’re either going to be number one or number two in every field we’re in or we’re going to be out. I don’t care how many people I have to fire and what I have to sell. We’re going to be number one or number two or out.”
 
 ## Notable Quotes
 
