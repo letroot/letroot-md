@@ -1,7 +1,7 @@
 ---
 title: "A Smart Bear- Anthology"
 author: "Cohen, Jason"
-date: 2026-07-22
+date: 2026-07-23
 tags:
   - book-notes
   - marketing
