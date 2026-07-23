@@ -83,6 +83,8 @@ tags: [mental-models, investing, thinking, psychology, mathematics, engineering]
 - As each person specializes, each person can become better at what they do.
 - This is one reason [[Jack Welch]] pushed [[General Electric]] to be number one or number two in every field it entered, or else exit that field.
 
+### 
+
 ## Investment Takeaway
 - Munger's point is not that one model explains everything.
 - The point is to build a latticework of models from many disciplines: mathematics, statistics, engineering, psychology, and microeconomics.

@@ -1,6 +1,6 @@
 {
   "accentColor": "#394cdb",
-  "textFontFamily": "Helvetica,Andale Mono",
+  "textFontFamily": "Inter",
   "showRibbon": true,
   "theme": "moonstone"
 }

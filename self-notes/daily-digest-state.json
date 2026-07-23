@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-21",
+  "updated_at": "2026-07-23",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -189,6 +189,25 @@
       "summary": "Strong product builders keep their instinct, loosen their attachment to first implementations, and test better-plus-new ideas quickly against real retention and distribution evidence."
     },
     {
+      "date": "2026-07-19",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Fooled by Randomness.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "randomness",
+        "process-vs-outcome",
+        "hindsight-bias",
+        "uncertainty",
+        "humility",
+        "decision-quality"
+      ],
+      "summary": "Better judgment comes from separating process from outcome, respecting randomness, and evaluating decisions with more humility than hindsight naturally allows."
+    },
+    {
       "date": "2026-07-20",
       "concept_lane": "Money/judgment/risk",
       "source_paths": [
@@ -225,6 +244,44 @@
         "focus"
       ],
       "summary": "Lasting focus comes from a real, repeatable discipline sized to your life, not from performative optimization or brittle intensity."
+    },
+    {
+      "date": "2026-07-22",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/alex-hormozi/17-the-pricing-rule-that-5xd-my-profit-overnight.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "pricing",
+        "tiering",
+        "profit",
+        "offer-architecture",
+        "value-capture",
+        "positioning"
+      ],
+      "summary": "Founders underprice when they assume every buyer should fit one offer; better pricing ladders uncover value, sharpen positioning, and expand profit without flatly multiplying complexity."
+    },
+    {
+      "date": "2026-07-23",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/waka-droid-documentary/02-why-the-worlds-worst-oil-crisis-made-one-nigerian-billionaire-unstoppable.md"
+      ],
+      "source_folders": [
+        "show-notes/waka-droid-documentary"
+      ],
+      "concept_tags": [
+        "base-layer-problems",
+        "infrastructure",
+        "structural-bottlenecks",
+        "resilience",
+        "incumbent-resistance",
+        "case-study"
+      ],
+      "summary": "The strongest builders solve base-layer constraints that remain critical under stress, then survive the resistance that comes from reshaping how an industry functions."
     }
   ]
 }
