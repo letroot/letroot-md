@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-23",
+  "updated_at": "2026-07-27",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -282,6 +282,87 @@
         "case-study"
       ],
       "summary": "The strongest builders solve base-layer constraints that remain critical under stress, then survive the resistance that comes from reshaping how an industry functions."
+    },
+    {
+      "date": "2026-07-24",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-07-18.md",
+        "self-notes/daily-digest/2026-07-19.md",
+        "self-notes/daily-digest/2026-07-20.md",
+        "self-notes/daily-digest/2026-07-21.md",
+        "self-notes/daily-digest/2026-07-22.md",
+        "self-notes/daily-digest/2026-07-23.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-correction",
+        "process-over-ego",
+        "asymmetric-decisions",
+        "discipline",
+        "value-clarity",
+        "durability"
+      ],
+      "summary": "This week converges on one rule: build so reality can correct you early and cheaply, then keep concentrating effort on durable things that become clearer and stronger under stress."
+    },
+    {
+      "date": "2026-07-25",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "Clippings/Half-Baked Product.md"
+      ],
+      "source_folders": [
+        "Clippings"
+      ],
+      "concept_tags": [
+        "priority-discipline",
+        "core-problem",
+        "roadmap-integrity",
+        "technical-debt",
+        "customer-trust",
+        "operator-judgment"
+      ],
+      "summary": "When every new request becomes urgent, foundational work is perpetually deferred; durable operators protect the constraint that determines product quality and customer trust."
+    },
+    {
+      "date": "2026-07-26",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/lennys-podcast/001-mercado-libre-18k-engineers.md"
+      ],
+      "source_folders": [
+        "show-notes/lennys-podcast"
+      ],
+      "concept_tags": [
+        "user-observation",
+        "behavior-over-opinions",
+        "product-discovery",
+        "evidence-based-building",
+        "user-friction",
+        "leverage"
+      ],
+      "summary": "Product judgment improves when teams observe actual user behavior and uncover the job, friction, and context behind requests rather than translating stated opinions directly into features."
+    },
+    {
+      "date": "2026-07-27",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Poor Charlie's Almanack.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "multiple-mental-models",
+        "decision-quality",
+        "second-order-effects",
+        "incentives",
+        "downside-analysis",
+        "objectivity"
+      ],
+      "summary": "Better risk judgment comes from evaluating consequential choices through multiple lenses so that one favored model does not conceal incentives, operational limits, or downstream harm."
     }
   ]
 }
