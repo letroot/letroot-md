@@ -83,10 +83,26 @@ tags: [mental-models, investing, thinking, psychology, mathematics, engineering]
 - As each person specializes, each person can become better at what they do.
 - This is one reason [[Jack Welch]] pushed [[General Electric]] to be number one or number two in every field it entered, or else exit that field.
 
-### 
+=== fresh ===
+### Disadvantages of Scale
+
+And there are also disadvantages of scale. For example, we—by which I mean Berkshire Hathaway—are the largest shareholder in Capital Cities/ABC. And we had trade publications there that got murdered, where our competitors beat us. And the way they beat us was by going to a narrower specialization. We’d have a travel magazine for business travel, so somebody would create one that was addressed solely at corporate travel departments. Like an ecosystem, you’re getting a narrower and narrower specialization. 
+Well, they got much more efficient. They could tell more to the guys who ran corporate travel departments. Plus, they didn’t have to waste the ink and paper mailing out stuff that corporate travel departments weren’t interested in reading. It was a more efficient system. And they beat our brains out as we relied on our broader magazine.
+
+So occasionally, scaling down and intensifying gives you the big advantage. Bigger is not always better.
+
+The great defect of scale, of course, which makes the game interesting, so that the big people don’t always win, is that as you get big, you get the bureaucracy. And with the bureaucracy comes the territoriality—which is again grounded in human nature. And the incentives are perverse. For example, if you worked for AT & T in my day, it was a great bureaucracy. Who in the hell was really thinking about the shareholder or anything else? And in a bureaucracy, you think the work is done when it goes out of your in basket into somebody else’s in basket. But, of course, it isn’t. It’s not done until AT & T delivers what it’s supposed to deliver. So you get big, fat, dumb, unmotivated bureaucracies.
+
+#### more psychology
+CBS provides an interesting example of another rule of psychology, namely Pavlovian association. If people tell you what you really don’t want to hear, what’s unpleasant, there’s an almost automatic reaction of antipathy. You have to train yourself out of it. It isn’t foredestined that you have to be this way. But you will tend to be this way if you don’t think about it.
+
+
+
+
 
 ## Investment Takeaway
 - Munger's point is not that one model explains everything.
 - The point is to build a latticework of models from many disciplines: mathematics, statistics, engineering, psychology, and microeconomics.
 - In business analysis, especially investing, these models combine. Scale advantages can be physical, informational, psychological, operational, or distribution-based.
 - The best analysis asks which models apply, how they interact, and whether the business has durable economics because of them.
+
