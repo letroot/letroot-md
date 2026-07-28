@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-27",
+  "updated_at": "2026-07-28",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -363,6 +363,25 @@
         "objectivity"
       ],
       "summary": "Better risk judgment comes from evaluating consequential choices through multiple lenses so that one favored model does not conceal incentives, operational limits, or downstream harm."
+    },
+    {
+      "date": "2026-07-28",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/dr-k/001-the-impatient-man-and-kleshas.md"
+      ],
+      "source_folders": [
+        "show-notes/dr-k"
+      ],
+      "concept_tags": [
+        "thought-defusion",
+        "facts-vs-narrative",
+        "emotional-regulation",
+        "founder-anxiety",
+        "next-action",
+        "grounded-discipline"
+      ],
+      "summary": "Focus improves when difficult facts are separated from the self-critical story attached to them, allowing the next concrete action to replace anxious overreaction."
     }
   ]
 }
