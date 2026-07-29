@@ -14,7 +14,8 @@ tags:
 
 ## Overview
 - Source: Apple Books annotations export
-- Highlights captured: 54
+- Highlights captured: 83
+- Link: [Apple Books Link](ibooks://assetid/C76A41A177981C8690175D37DF040141)
 
 ## Notes
 
@@ -285,6 +286,128 @@ tags:
 ### Highlight 54
 
 > Similarly, all these huge advantages of scale allow greater specialization within the firm. Therefore, each person can be better at what he does. And these advantages of scale are so great, for example, that when Jack Welch16 came into General Electric, he just said, “To hell with it. We’re either going to be number one or number two in every field we’re in or we’re going to be out. I don’t care how many people I have to fire and what I have to sell. We’re going to be number one or number two or out.”
+
+### Highlight 55
+
+> And there are also disadvantages of scale. For example, we—by which I mean Berkshire Hathaway—are the largest shareholder in Capital Cities/ABC. And we had trade publications there that got murdered, where our competitors beat us. And the way they beat us was by going to a narrower specialization. We’d have a travel magazine for business travel, so somebody would create one that was addressed solely at corporate travel departments. Like an ecosystem, you’re getting a narrower and narrower specialization. Well, they got much more efficient. They could tell more to the guys who ran corporate travel departments. Plus, they didn’t have to waste the ink and paper mailing out stuff that corporate travel departments weren’t interested in reading. It was a more efficient system. And they beat our brains out as we relied on our broader magazine.
+
+### Highlight 56
+
+> So occasionally, scaling down and intensifying gives you the big advantage. Bigger is not always better.
+
+**Context:** Just think of how narrowcast that kind of publishing is. So occasionally, scaling down and intensifying gives you the big advantage. Bigger is not always better.
+
+### Highlight 57
+
+> CBS provides an interesting example of another rule of psychology, namely Pavlovian association.17 If people tell you what you really don’t want to hear, what’s unpleasant, there’s an almost automatic reaction of antipathy. You have to train yourself out of it. It isn’t foredestined that you have to be this way. But you will tend to be this way if you don’t think about it.
+
+### Highlight 58
+
+> The great defect of scale, of course, which makes the game interesting, so that the big people don’t always win, is that as you get big, you get the bureaucracy. And with the bureaucracy comes the territoriality—which is again grounded in human nature. And the incentives are perverse. For example, if you worked for AT & T in my day, it was a great bureaucracy. Who in the hell was really thinking about the shareholder or anything else? And in a bureaucracy, you think the work is done when it goes out of your in basket into somebody else’s in basket. But, of course, it isn’t. It’s not done until AT & T delivers what it’s supposed to deliver. So you get big, fat, dumb, unmotivated bureaucracies.
+
+### Highlight 59
+
+> So life is an everlasting battle between those two forces: to get these advantages of scale on one side and a tendency to get a lot like the US Department of Agriculture on the other side, where they just sit around and so forth. I don’t know exactly what they do. However, I do know that they do very little useful work.
+
+### Highlight 60
+
+> It’s quite interesting to think about Walmart18 starting from a single store in Arkansas against Sears, Roebuck, with its name, reputation, and all of its billions. How does a guy in Bentonville, Arkansas, with no money, blow right by Sears, Roebuck? And he does it in his own lifetime—in fact, during his own late lifetime because he was already pretty old by the time he started out with one little store. He played the chain store game harder and better than anyone else. [Sam] Walton invented practically nothing. But he copied everything anybody else ever did that was smart—and he did it with more fanaticism and better employee manipulation. So he just blew right by them all.
+
+### Highlight 61
+
+> But at any rate, it’s an interesting model of how the scale of things and fanaticism combine to be very powerful.
+
+### Highlight 62
+
+> Sears had layers and layers of people it didn’t need. It was very bureaucratic. It was slow to think. And there was an established way of thinking. If you poked your head up with a new thought, the system kind of turned against you. It was everything in the way of a dysfunctional big bureaucracy that you would expect. In all fairness, there was also much that was good about it. But it just wasn’t as lean and mean and shrewd and effective as Sam Walton. And, in due time, all Sears’ advantages of scale were not enough to prevent it from losing heavily to Walmart and other, similar retailers.
+
+### Highlight 63
+
+> The great lesson in microeconomics is to discriminate between when technology is going to help you and when it’s going to kill you
+
+**Context:** The great lesson in microeconomics is to discriminate between when technology is going to help you and when it’s going to kill you.
+
+### Highlight 64
+
+> For example, when we were in the textile business, which is a terrible commodity business, we were making low end textiles, which are a real commodity product. And one day, the people came to Warren and said, “They’ve invented a new loom that we think will do twice as much work as our old ones.” And Warren said, “Gee, I hope this doesn’t work—because if it does, I’m going to close the mill.” And he meant it. What was he thinking? He was thinking, “It’s a lousy business. We’re earning substandard returns and keeping it open just to be nice to the elderly workers. But we’re not going to put huge amounts of new capital into a lousy business.” And he knew that the huge productivity increases that would come from a better machine introduced into the production of a commodity product would all go to the benefit of the buyers of the textiles. Nothing was going to stick to our ribs as owners.
+
+**Context:** But a fellow like Buffett does. For example, when we were in the textile business, which is a terrible commodity business, we were making low end textiles, which are a real commodity product. And one day, the people came to Warren and said, “They’ve invented a new loom that we think will do twice as much work as our old ones.” And Warren said, “Gee, I hope this doesn’t work—because if it does, I’m going to close the mill.” And he meant it. What was he thinking? He was thinking, “It’s a lousy business. We’re earning substandard returns and keeping it open just to be nice to the elderly workers. But we’re not going to put huge amounts of new capital into a lousy business.” And he knew that the huge productivity increases that would come from a better machine introduced into the production of a commodity product would all go to the benefit of the buyers of the textiles. Nothing was going to stick to our ribs as owners.
+
+### Highlight 65
+
+> That’s such an obvious concept—that there are all kinds of wonderful new inventions that give you nothing as owners except the opportunity to spend a lot more money in a business that’s still going to be lousy. The money still won’t come to you. All of the advantages from great improvements are going to flow through to the customers.
+
+### Highlight 66
+
+> In all cases, the people who sell the machinery—and, by and large, even the internal bureaucrats urging you to buy the equipment—show you projections with the amount you’ll save at current prices with the new technology. However, they don’t do the second step of the analysis, which is to determine how much is going to stay home and how much is just going to flow through to the customer. I’ve never seen a single projection incorporating that second step in my life. And I see them all the time. Rather, they always read, “This capital outlay will save you so much money that it will pay for itself in three years.”
+
+### Highlight 67
+
+> So you keep buying things that will pay for themselves in three years. And after 20 years of doing it, somehow you’ve earned a return of only about 4 percent per annum. That’s the textile business. And it isn’t that the machines weren’t better. It’s just that the savings didn’t go to you. The cost reductions came through, all right. But the benefit of the cost reductions didn’t go to the guy who bought the equipment. It’s such a simple idea. It’s so basic. And yet it’s so often forgotten.
+
+### Highlight 68
+
+> Then there’s another model from microeconomics that I find very interesting. When technology moves as fast as it does in a civilization like ours, you get a phenomenon that I call competitive destruction. You know, you have the finest buggy whip factory, and all of a sudden, in comes this little horseless carriage. And before too many years go by, your buggy whip business is dead. You either get into a different business or you’re dead—you’re destroyed. It happens again and again and again.
+
+### Highlight 69
+
+> And when these new businesses come in, there are huge advantages for the early birds. When you’re an early bird, there’s a model that I call surfing—when a surfer gets up and catches the wave and just stays there, he can go a long, long time. But if he gets off the wave, he becomes mired in shallows. But people get long runs when they’re right on the edge of the wave, whether it’s Microsoft or Intel or all kinds of people, including National Cash Register21 in the early days.
+
+### Highlight 70
+
+> I have in my files an early National Cash Register company report in which Patterson described his methods and objectives. And a well-educated orangutan could see that buying into a partnership with Patterson in those early days, given his notions about the cash register business, was a total 100 percent cinch. And, of course, that’s exactly what an investor should be looking for. In a long life, you can expect to profit heavily from at least a few of those opportunities if you develop the wisdom and will to seize them. At any rate, surfing is a very powerful model.
+
+### Highlight 71
+
+> So you have to figure out what your own aptitudes are. If you play games where other people have the aptitudes and you don’t, you’re going to lose. And that’s as close to certain as any prediction you can make. You have to figure out where you’ve got an edge. And you’ve got to play within your own circle of competence. If you want to be the best tennis player in the world, you may start out trying and soon find out that it’s hopeless—that other people blow right by you. However, if you want to become the best plumbing contractor in Bemidji, that is probably doable by two-thirds of you. It takes a will. It takes the intelligence. But after a while, you’d gradually know all about the plumbing business in Bemidji and master the art. That is an attainable objective, given enough discipline. And people who could never win a chess tournament or stand in center court in a respectable tennis tournament can rise quite high in life by slowly developing a circle of competence, which results partly from what they were born with and partly from what they slowly develop through work.
+
+### Highlight 72
+
+> The model I like—to sort of simplify the notion of what goes on in a market for common stocks—is the pari mutuel system22 at the racetrack. If you stop to think about it, a pari mutuel system is a market. Everybody goes there and bets, and the odds change based on what’s bet. That’s what happens in the stock market.
+
+### Highlight 73
+
+> Any damn fool can see that a horse carrying a light weight with a wonderful win rate and a good post position, etc., etc., is way more likely to win than a horse with a terrible record and extra weight and so on and so on. But if you look at the damn odds, the bad horse pays 100 to 1, whereas the good horse pays 3 to 2. Then it’s not clear which is statistically the best bet using the mathematics of Fermat and Pascal. The prices have changed in such a way that it’s very hard to beat the system. And then the track is taking 17 percent off the top. So not only do you have to outwit all the other bettors, but you’ve got to outwit them by such a big margin that, on average, you can afford to take 17 percent of your gross bets off the top and give it to the house before the rest of your money can be put to work. Given those mathematics, is it possible to beat the horses using only one’s intelligence? Intelligence should give some edge because lots of people who don’t know anything go out and bet lucky numbers and so forth. Therefore, somebody who really thinks about nothing but horse performance and is shrewd and mathematical could have a very considerable edge, in the absence of the frictional cost caused by the house take. Unfortunately, what a shrewd horseplayer’s edge does in most cases is to reduce his average loss over a season of betting from the 17 percent that he would lose if he got the average result to maybe 10 percent. However, there are actually a few people who can beat the game after paying the full 17 percent.
+
+### Highlight 74
+
+> I used to play poker, when I was young, with a guy who made a substantial living doing nothing but betting on harness races. Now, harness racing is a relatively inefficient market. You don’t have the depth of intelligence betting on harness races that you do on regular races. What my poker pal would do was to think about harness races as his main profession. And he would bet only occasionally when he saw some mispriced bet available. And by doing that, after paying the full handle to the house—which I presume was around 17 percent—he made a substantial living.
+
+### Highlight 75
+
+> You have to say that’s rare. However, the market was not perfectly efficient. And if it weren’t for that big 17 percent handle, lots of people would regularly be beating lots of other people at the horse races. It’s efficient, yes. But it’s not perfectly efficient. And with enough shrewdness and fanaticism, some people will get better results than others. The stock market is the same way, except that the house handle is so much lower. If you take transaction costs—the spread between the bid and the ask plus the commissions—and if you don’t trade too actively, you’re talking about fairly low transaction costs. So, with enough fanaticism and enough discipline, some of the shrewd people are going to get way better results than average in the nature of things.
+
+### Highlight 76
+
+> How do you get to be one of those who is a winner—in a relative sense—instead of a loser? Here again, look at the pari mutuel system. I had dinner last night by absolute accident with the president of Santa Anita. He says that there are two or three bettors who have a credit arrangement with the track, now that they have off-track betting, who are actually beating the house. The track is sending money out net after the full handle—a lot of it to Las Vegas, by the way—to people who are actually winning slightly, net, after paying the full handle. They’re that shrewd about something with as much unpredictability as horse racing. It’s not given to human beings to have such talent that they can just know everything about everything all the time. But it is given to human beings who work hard at it—who look and sift the world for a mispriced bet—that they can occasionally find one. And the wise ones bet heavily when the world offers them that opportunity. They bet big when they have the odds. And the rest of the time, they don’t. It’s just that simple.
+
+### Highlight 77
+
+> How many insights do you need? Well, I’d argue that you don’t need many in a lifetime. If you look at Berkshire Hathaway and all of its accumulated billions, the top 10 insights account for most of it. And that’s with a very brilliant man—Warren’s a lot more able than I am and very disciplined—devoting his lifetime to it. I don’t mean to say that he’s only had 10 insights. I’m just saying that most of the money came from 10 insights.
+
+### Highlight 78
+
+> So you can get very remarkable investment results if you think more like a winning pari mutuel player. Just think of it as a heavy-odds against game full of bullshit and craziness with an occasional mispriced something or other. And you’re probably not going to be smart enough to find thousands in a lifetime. And when you get a few, you really load up. It’s just that simple.
+
+### Highlight 79
+
+> When Warren lectures at business schools, he says, “I could improve your ultimate financial welfare by giving you a ticket with only 20 slots in it so that you had 20 punches, representing all the investments that you got to make in a lifetime. And once you’d punched through the card, you couldn’t make any more investments at all.” He says, “Under those rules, you’d really think carefully about what you did, and you’d be forced to load up on what you’d really thought about. So you’d do so much better.”
+
+### Highlight 80
+
+> To me, it’s obvious that the winner has to bet very selectively. It’s been obvious to me since very early in life. I don’t know why it’s not obvious to very many other people.
+
+### Highlight 81
+
+> I think the reason why we got into such idiocy in investment management is best illustrated by a story that I tell about the guy who sold fishing tackle. I asked him, “My god, they’re purple and green. Do fish really take these lures?” And he said, “Mister, I don’t sell to fish.”
+
+### Highlight 82
+
+> So what makes sense for the investor is different from what makes sense for the manager. And, as usual in human affairs, what determines the behavior are incentives for the decision maker, and getting the incentives right is a very, very important lesson.
+
+### Highlight 83
+
+> From all businesses, my favorite case on incentives is Federal Express.23 The heart and soul of its system, which creates the integrity of the product, is having all its airplanes come to one place in the middle of the night and shift all the packages from plane to plane. If there are delays, the whole operation can’t deliver a product full of integrity to Federal Express customers. And it was always screwed up. They could never get it done on time. They tried everything—moral suasion, threats, you name it. And nothing worked. Finally, somebody got the idea to pay all these people not so much an hour but so much a shift, and when it’s all done, they can all go home. Well, their problems cleared up overnight.
 
 ## Notable Quotes
 

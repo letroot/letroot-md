@@ -15,6 +15,7 @@ tags:
 ## Overview
 - Source: Apple Books annotations export
 - Highlights captured: 1
+- Link: [Apple Books Link](ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751)
 
 ## Notes
 
