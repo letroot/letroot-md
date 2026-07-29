@@ -20,6 +20,8 @@ But presently, we've been taking a look at the internal realities of the new lif
 
 There is no greater emphasis speaking on righteousness itself than love. There's no greater emphasis than love relative to righteousness. Now, many times they are sometimes they are separated, you know, there is a distinction made between righteousness and love um for some reason, but other times they are essentially they are still referred to the same thing.
 
+## The Love of God Abiding Within
+
 Now, where we saw in 1 John chapter 3 and in verse 14 and 15, where it tells us that um we know we have passed from death to life because we love the brethren. He that hates his brother abides in death. Then verse 15 says, um he that hates his brother is a murderer and we know that no murderer has eternal life abiding in him.
 
 So, very clearly from that text is we can understand that when you are in the life of God, it or when eternal life is in you, then you are going to be found walking in love. But, that that phrase eternal life in us is also described as the love of God abiding in us. You find that in 1 John 3 and in verse 17, whoever has this world's goods and sees his brother in need and shuts up his bowels of compassion from him, how does the love of God abide in him?
@@ -58,6 +60,8 @@ Then I don't want anybody to affect me would also likely come with anger. That k
 
 It is already in unrighteousness because pride and self-righteousness is usually at play. Now, having said all of that, so love is Relational righteousness is the most emphatic part of our walk in righteousness. Our focus has now been on the expressions of love.
 
+## Preset Anger and Righteous Expression
+
 We have seen anger um as We have seen how the expression of love relates with anger. If you recall Ephesians chapter 4, we saw that he said, "Be angry and sin not. Um be angry and not sin and do not sin." So, there is displeasure and anger that doesn't uh devolve into into sin.
 
 There's a way people can have genuine righteous displeasure and then the expression of that displeasure is sinful. Very important that we know how to hold displeasure in a godly, righteous, and in fact loving way. We saw how anger should be expressed by the believer.
@@ -78,6 +82,8 @@ You seek justice even if you loved it. That's just the righteous thing to do. Yo
 
 You can only hope that they are saved maybe prior along the way. And wish them the best, but seeking justice is absolutely right in those cases. There's absolutely nothing wrong with that.
 
+## Tenderness, Kindness, and Rebuke
+
 Now, let's get to We've seen the expression of love in when it comes to anger and other things in Ephesians 4. We saw that love has tender mercies and meekness of kindness. We must be careful that we are not unduly harsh.
 
 There's also a place of love where the expression may be may not ordinarily mean life. It may be odd, but it is still for good. Where sometimes people can't describe it as tough love.
@@ -91,6 +97,8 @@ We should be given to tenderness, kindness, and love, but there's usually the pl
 Because we are about self, there will be pride. There will be boastfulness and arrogance. But it told us that love is patient, is kind, is not boastful, does not seek its own, is not easily provoked, is not provoked.
 
 Um it rejoices in truth, does not rejoice in iniquity. Give us an awesome view of love in 1 Corinthians chapter 13. Now, I want us to go to Matthew chapter 5 where we stopped, as it's going to lead us to the next thing we're trying to see now, which is the expression of love in forgiveness, where there is breakdown of relationship between people.
+
+## Loving Enemies
 
 But, we'll start first with first Matthew 5, which is loving our enemies. Very important. Matthew chapter 5 1:43.
 
@@ -120,7 +128,11 @@ I mean you are even praying, supplying God's power for their good, even hoping f
 
 You speak well of them. Bless them. You pray for them and you do good towards them.
 
-Then he says you'll be like sons of your father in heaven because you are not only good to the good, but also good to the evil ones. And that's what he means by be perfect as your heavenly father is perfect. Now, this issue extends towards forgiveness.
+Then he says you'll be like sons of your father in heaven because you are not only good to the good, but also good to the evil ones. And that's what he means by be perfect as your heavenly father is perfect.
+
+## Forgiveness and Reconciliation
+
+Now, this issue extends towards forgiveness.
 
 And I'll show us two texts on forgiveness. We're going to pick it up. And after we see forgiveness, reconciliation, that would help us to conclude with how we walk in love.
 

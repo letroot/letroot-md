@@ -18,6 +18,8 @@ Or we could say that love is one of the realities of the new life that is within
 
 So, one of the realities of that life in us is the love nature. We've already seen that righteousness is the primary thing that is described as the nature that we have. Um but then there is a there's a particular special emphasis on love within the scope of righteousness.
 
+## Love as Evidence of Eternal Life
+
 Now, not to waste time, we're going to jump right to 1 John and in chapter 3. Then from there we are going to quickly recap all the things that we have seen before we proceed to um other matters we're going to be examining. Now, in 1 John chapter 3 and in verse 14, John says, "We know we have passed from death to life because we love the brethren." Um He who does not love his brother abides in death.
 
 So, one of the proofs that a man is no longer in the oldness of death, but in the newness of life is love, the expression of love. Then it says, "Whoever hates his brother is a murderer." And we know that all murderers turn our life abiding in him. So, we could tell whether you are under life and whether life is in you by your love walk.
@@ -29,6 +31,8 @@ He says, "But whoever has this world's goods and sees his brother in need and sh
 That is, his spirit is such that it cannot do anything contrary to what is of God's nature. Unfortunately, since our actions come from our um our conducts and actions come from our mind as they are influenced by the spirit of God or the spirit of the world or or the flesh in this world. Therefore, we can find that someone in conduct might sin even though it's impossible for them by nature to sin.
 
 Now, verse 10 is going to say that in this the children of God and the children of the devil are manifest. Whoever does not practice righteousness is not of God, nor is he who does not love his brother. So, we find that one cannot live unrepentantly in sin if they are born of God.
+
+## Nature, Conformity, and the Believer
 
 All right. Um there are things we must be able to make certain distinctions of what is possible to one who has a nature and what is not. Use this example.
 
@@ -66,6 +70,8 @@ Many other regards, but if all you care about is your personal holiness and non-
 
 You are not really concerned concerning about walking in love towards other people. So, that's something that we should take note of. Now, our focus has recently been on the expression of love.
 
+## The Expression of Love and Anger
+
 We have looked at about four texts relative to the expression of love. We're going We're going to look at one more, forgiveness, before we start to talk about how we walk in love. So, we have looked at Ephesians 4.
 
 We said the emphasis there is on anger. And I just want to give you a bit of commentary on it. I was thinking I should ignore it, but I think there's some things worth mentioning there.
@@ -75,6 +81,8 @@ Um the expression of love relative to anger in Ephesians 4 says, "Be angry and s
 So, it literally the way it is in the syntax is, "Be angry and not sin." So, the negation is on sin. So, he's already speaking on the possibility of anger. We have already also explained that um the Lord Jesus we do see is recorded and described that he was angry at the Pharisees Mark 3 and verse 5.
 
 So, anger is not all evil. That's why we see wrath and anger mentioned a lot. Now, I know you might want to run to a text like Ephesians 4:30 to 32 that says, "Put away all anger." And we must see that in this context where it does mean unrighteous anger, or that which is sinful, you know, rage, or holding people to heart, grudge, and those type of things.
+
+## Preset Anger and Righteous Displeasure
 
 But, there is anger in the sense of displeasure. And there is no person that shouldn't have displeasure. Things you are displeased about because in a world where there is life and death, there is good and evil.
 
@@ -89,6 +97,8 @@ It is preset anger. There are two words majorly used for anger. We have the word
 The other one is more reactionary, thumos, or when anger is an expression, which is like either the blazing effect of it when it is active, you know, and sometimes they are used interchangeably as with many words, but in a in a more defined way then orge is more preset. Even though it's to be found active when it is it is occasioned by a situation. So, there are things you should already be displeased about, preset anger.
 
 But, not only does preset anger mean you have what you're displeased about, you it is preset anger because you have how you are displeased about it. You know what you would do in a situation. So, generally, things we are is we should know how to respond to them.
+
+## Expressing Displeasure Righteously
 
 If you're raising a child, for instance, and you're displeased about something the child does, you should know that the first instance of doing that does not require a rebuke. The first instance of doing that requires an explanation. To say, "Hey, you, that was not right.
 
@@ -105,6 +115,8 @@ You're saying, "No, I told you already that's not right." Then, there's a place 
 But, then, people could choose not to listen. Or, people could choose to act differently. Yeah, um, and that's where, usually, the final phase of correction is.
 
 And many times, as we see with God, when people are hardened of heart, he withdraws. He leaves them to themselves to suffer the consequence of what they do. And we must also know that now there's a place of justice, where we're talking about using the authority of the state, like Romans 13 says, to ensure justice is done.
+
+## Justice and Love
 
 So, we must separate that from when we're talking about interpersonal relationship, where after a while, if you're displeased about something, all you can do is to withdraw so that you don't walk in the flesh where you get violent about it. But, if it's about justice where it's about ensuring that evil is not is not made normative in the society, then of course we should seek justice. It's just like you can have a the heart of love towards evil people like maybe terrorists, but you should want justice for them.
 
