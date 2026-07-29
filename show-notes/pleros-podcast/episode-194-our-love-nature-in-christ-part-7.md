@@ -1,6 +1,6 @@
 ---
 title: "Our Love Nature in Christ (Part 7)"
-date: 2026-07-19
+date: 2026-07-20
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=_87tbnvd0V4"
 type: solo
