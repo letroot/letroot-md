@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-28",
+  "updated_at": "2026-07-29",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -382,6 +382,25 @@
         "grounded-discipline"
       ],
       "summary": "Focus improves when difficult facts are separated from the self-critical story attached to them, allowing the next concrete action to replace anxious overreaction."
+    },
+    {
+      "date": "2026-07-29",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/starter-story/01-how-we-grew-our-app-to-30k-month.md"
+      ],
+      "source_folders": [
+        "show-notes/starter-story"
+      ],
+      "concept_tags": [
+        "content-first-validation",
+        "demand-testing",
+        "distribution-led-development",
+        "willingness-to-pay",
+        "feedback-before-building",
+        "marketing"
+      ],
+      "summary": "Founders can reduce wasted build time by testing a clear promised outcome through lightweight distribution before investing heavily in product development."
     }
   ]
 }
