@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-07-29",
+  "updated_at": "2026-08-04",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -401,6 +401,25 @@
         "marketing"
       ],
       "summary": "Founders can reduce wasted build time by testing a clear promised outcome through lightweight distribution before investing heavily in product development."
+    },
+    {
+      "date": "2026-08-04",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/two-percent/1-executive-coach-top-0-01-percent-dr-julie-gurner.md"
+      ],
+      "source_folders": [
+        "show-notes/two-percent"
+      ],
+      "concept_tags": [
+        "impulse-control",
+        "emotional-regulation",
+        "irreversible-decisions",
+        "constructive-anger",
+        "self-command",
+        "judgment"
+      ],
+      "summary": "Reliable judgment requires separating strong emotion from irreversible decisions, then channeling that energy into a constructive next action."
     }
   ]
 }
