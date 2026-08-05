@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-04",
+  "updated_at": "2026-08-05",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -420,6 +420,25 @@
         "judgment"
       ],
       "summary": "Reliable judgment requires separating strong emotion from irreversible decisions, then channeling that energy into a constructive next action."
+    },
+    {
+      "date": "2026-08-05",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/smart-bear/01-more-value-not-save-money.md"
+      ],
+      "source_folders": [
+        "show-notes/smart-bear"
+      ],
+      "concept_tags": [
+        "positioning",
+        "growth-over-savings",
+        "value-communication",
+        "pricing-power",
+        "customer-incentives",
+        "distribution"
+      ],
+      "summary": "Positioning a product around the growth or strategic outcome it enables can create more urgency and pricing power than framing the same mechanics as cost savings."
     }
   ]
 }
