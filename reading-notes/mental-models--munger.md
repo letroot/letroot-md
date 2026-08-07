@@ -234,3 +234,8 @@ tags: [mental-models, investing, thinking, psychology, mathematics, engineering]
   - How do they interact?
   - Does the business have durable economics because of them?
   - Is the opportunity mispriced enough to justify a concentrated bet?
+
+
+
+=== new clips ===
+
