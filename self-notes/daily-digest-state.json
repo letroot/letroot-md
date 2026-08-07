@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-05",
+  "updated_at": "2026-08-07",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -439,6 +439,28 @@
         "distribution"
       ],
       "summary": "Positioning a product around the growth or strategic outcome it enables can create more urgency and pricing power than framing the same mechanics as cost savings."
+    },
+    {
+      "date": "2026-08-07",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-07-28.md",
+        "self-notes/daily-digest/2026-07-29.md",
+        "self-notes/daily-digest/2026-08-04.md",
+        "self-notes/daily-digest/2026-08-05.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-contact",
+        "reversible-tests",
+        "emotional-regulation",
+        "value-communication",
+        "deliberate-adjustment",
+        "operating-loop"
+      ],
+      "summary": "A strong operating loop separates facts from self-drama, tests demand before heavy commitment, pauses irreversible reactions, and keeps effort directed at real customer value."
     }
   ]
 }
