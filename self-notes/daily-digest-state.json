@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-07",
+  "updated_at": "2026-08-08",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -461,6 +461,25 @@
         "operating-loop"
       ],
       "summary": "A strong operating loop separates facts from self-drama, tests demand before heavy commitment, pauses irreversible reactions, and keeps effort directed at real customer value."
+    },
+    {
+      "date": "2026-08-08",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/commoncog/1-there-are-many-configurations-of-business-that-work.md"
+      ],
+      "source_folders": [
+        "show-notes/commoncog"
+      ],
+      "concept_tags": [
+        "business-configuration",
+        "founder-priorities",
+        "agency",
+        "capital-alignment",
+        "growth-tradeoffs",
+        "ownership"
+      ],
+      "summary": "Founders should deliberately choose a business configuration that matches their real goals, then align capital, team, growth, and operating choices with that game."
     }
   ]
 }
