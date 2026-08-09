@@ -1,28 +1,31 @@
 ---
 title: "A Smart Bear- Anthology"
 author: "Cohen, Jason"
-date: 2026-07-23
+date: 2026-08-09
 tags:
   - book-notes
+  - business
   - marketing
-  - positioning
 ---
 
 # A Smart Bear- Anthology
 
-**Author:** Cohen, Jason
+> Structured notes from Apple Books annotations. 1 annotation preserved.
 
 ## Overview
-- Source: Apple Books annotations export
-- Highlights captured: 1
-- Link: [Apple Books Link](ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751)
 
-## Notes
+This note collects highlights from **A Smart Bear- Anthology** by **Cohen, Jason**, organized by theme. Chapter information was not provided in the source export.
 
-### Highlight 1
+## Startups, technology, and the future
+
+### Annotation 1
 
 > So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.
 
 ## Notable Quotes
 
-- Add standout lines worth revisiting here.
+- “So the next time you want to formulate your product as a way to “save time” or “save money” or “be more efficient” …. don’t. Instead, figure out how your product creates value in the way your customer already measures value, and position your product as a way to accomplish that.”
+
+## Source
+
+- [Apple Books Link](ibooks://assetid/4B44A6D7BFC9119712DE5839EBB41751)
