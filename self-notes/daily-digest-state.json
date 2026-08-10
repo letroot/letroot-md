@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-08",
+  "updated_at": "2026-08-10",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -480,6 +480,25 @@
         "ownership"
       ],
       "summary": "Founders should deliberately choose a business configuration that matches their real goals, then align capital, team, growth, and operating choices with that game."
+    },
+    {
+      "date": "2026-08-10",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Zero to One- Notes on Startups, or How to Build the Future.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "value-capture",
+        "differentiation",
+        "competitive-markets",
+        "pricing-power",
+        "durable-advantage",
+        "independent-thinking"
+      ],
+      "summary": "Durable businesses must both create customer value and retain a defensible share of it through meaningful differentiation rather than undifferentiated competition."
     }
   ]
 }
