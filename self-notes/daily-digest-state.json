@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-10",
+  "updated_at": "2026-08-11",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -499,6 +499,25 @@
         "independent-thinking"
       ],
       "summary": "Durable businesses must both create customer value and retain a defensible share of it through meaningful differentiation rather than undifferentiated competition."
+    },
+    {
+      "date": "2026-08-11",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/mike-israetel/1-stop-pressuring-yourself.md"
+      ],
+      "source_folders": [
+        "show-notes/mike-israetel"
+      ],
+      "concept_tags": [
+        "self-imposed-pressure",
+        "creation-vs-vetting",
+        "consistency",
+        "recovery",
+        "calm-execution",
+        "focus"
+      ],
+      "summary": "Sustainable execution comes from removing identity-level pressure, creating freely, reviewing deliberately, and protecting recovery so consistent work remains possible."
     }
   ]
 }
