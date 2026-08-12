@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-11",
+  "updated_at": "2026-08-12",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -518,6 +518,25 @@
         "focus"
       ],
       "summary": "Sustainable execution comes from removing identity-level pressure, creating freely, reviewing deliberately, and protecting recovery so consistent work remains possible."
+    },
+    {
+      "date": "2026-08-12",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/grant-owen/1-every-level-of-marketing.md"
+      ],
+      "source_folders": [
+        "show-notes/grant-owen"
+      ],
+      "concept_tags": [
+        "customer-empathy",
+        "organic-validation",
+        "message-testing",
+        "funnel-attachment",
+        "feedback-loops",
+        "distribution"
+      ],
+      "summary": "Effective distribution starts with empathy-led message testing, uses organic response as evidence, scales proven angles, and connects attention to a concrete next step."
     }
   ]
 }
