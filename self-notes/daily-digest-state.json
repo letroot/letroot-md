@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-12",
+  "updated_at": "2026-08-14",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -537,6 +537,28 @@
         "distribution"
       ],
       "summary": "Effective distribution starts with empathy-led message testing, uses organic response as evidence, scales proven angles, and connects attention to a concrete next step."
+    },
+    {
+      "date": "2026-08-14",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-08-08.md",
+        "self-notes/daily-digest/2026-08-10.md",
+        "self-notes/daily-digest/2026-08-11.md",
+        "self-notes/daily-digest/2026-08-12.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "operating-loop",
+        "deliberate-choices",
+        "customer-feedback",
+        "calm-execution",
+        "evidence-over-ego",
+        "consistent-action"
+      ],
+      "summary": "A durable founder loop combines deliberate business choices, differentiated value, customer feedback, and calm repeated execution without treating outcomes as identity verdicts."
     }
   ]
 }
