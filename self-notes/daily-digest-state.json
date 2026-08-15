@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-14",
+  "updated_at": "2026-08-15",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -559,6 +559,25 @@
         "consistent-action"
       ],
       "summary": "A durable founder loop combines deliberate business choices, differentiated value, customer feedback, and calm repeated execution without treating outcomes as identity verdicts."
+    },
+    {
+      "date": "2026-08-15",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/mark-pincus/2-mark-pincus-unpacks-his-proven-better-new-framework-with-reid-hoffman.md"
+      ],
+      "source_folders": [
+        "show-notes/mark-pincus"
+      ],
+      "concept_tags": [
+        "founder-instinct",
+        "problem-vs-solution",
+        "disposable-hypotheses",
+        "interpretable-tests",
+        "evidence-over-ego",
+        "operator-judgment"
+      ],
+      "summary": "Founders should preserve conviction about a customer problem while treating each implementation as a disposable hypothesis that must earn survival through evidence."
     }
   ]
 }
