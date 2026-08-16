@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-15",
+  "updated_at": "2026-08-16",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -578,6 +578,25 @@
         "operator-judgment"
       ],
       "summary": "Founders should preserve conviction about a customer problem while treating each implementation as a disposable hypothesis that must earn survival through evidence."
+    },
+    {
+      "date": "2026-08-16",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/pragmatic-engineer/1-building-opencode-with-dax-raad.md"
+      ],
+      "source_folders": [
+        "show-notes/pragmatic-engineer"
+      ],
+      "concept_tags": [
+        "ai-shortcuts",
+        "feedback-loops",
+        "shipping-restraint",
+        "first-time-experience",
+        "quality",
+        "product-judgment"
+      ],
+      "summary": "AI leverage is lost when faster output hides accumulating shortcuts; durable teams protect feedback loops, clean first-use experience, and product judgment over raw velocity."
     }
   ]
 }
