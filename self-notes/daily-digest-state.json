@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-16",
+  "updated_at": "2026-08-17",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -597,6 +597,25 @@
         "product-judgment"
       ],
       "summary": "AI leverage is lost when faster output hides accumulating shortcuts; durable teams protect feedback loops, clean first-use experience, and product judgment over raw velocity."
+    },
+    {
+      "date": "2026-08-17",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/How to Get Rich.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "cash-flow",
+        "optionality",
+        "fixed-costs",
+        "runway",
+        "reversible-commitments",
+        "financial-discipline"
+      ],
+      "summary": "Early-stage judgment preserves optionality by controlling cash flow, avoiding unnecessary fixed commitments, and monitoring spending while problems are still small."
     }
   ]
 }
