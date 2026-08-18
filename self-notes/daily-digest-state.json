@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-17",
+  "updated_at": "2026-08-18",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -616,6 +616,25 @@
         "financial-discipline"
       ],
       "summary": "Early-stage judgment preserves optionality by controlling cash flow, avoiding unnecessary fixed commitments, and monitoring spending while problems are still small."
+    },
+    {
+      "date": "2026-08-18",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/cal-newport/1-cultivating-discipline-as-a-cure-for-distraction.md"
+      ],
+      "source_folders": [
+        "show-notes/cal-newport"
+      ],
+      "concept_tags": [
+        "non-instrumental-discipline",
+        "identity-diversification",
+        "groundedness",
+        "plateaus",
+        "anti-optimization",
+        "attention"
+      ],
+      "summary": "A right-sized concrete discipline outside work grounds attention, diversifies identity, and builds patient consistency without becoming performative optimization."
     }
   ]
 }
