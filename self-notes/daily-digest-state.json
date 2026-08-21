@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-18",
+  "updated_at": "2026-08-21",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -635,6 +635,28 @@
         "attention"
       ],
       "summary": "A right-sized concrete discipline outside work grounds attention, diversifies identity, and builds patient consistency without becoming performative optimization."
+    },
+    {
+      "date": "2026-08-21",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-08-15.md",
+        "self-notes/daily-digest/2026-08-16.md",
+        "self-notes/daily-digest/2026-08-17.md",
+        "self-notes/daily-digest/2026-08-18.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "conviction-and-flexibility",
+        "customer-problem",
+        "product-quality",
+        "optionality",
+        "grounded-discipline",
+        "operating-system"
+      ],
+      "summary": "Durable judgment combines conviction about real problems with flexibility about implementations, while preserving product quality, personal grounding, and financial optionality."
     }
   ]
 }
