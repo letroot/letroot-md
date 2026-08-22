@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-21",
+  "updated_at": "2026-08-22",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -657,6 +657,25 @@
         "operating-system"
       ],
       "summary": "Durable judgment combines conviction about real problems with flexibility about implementations, while preserving product quality, personal grounding, and financial optionality."
+    },
+    {
+      "date": "2026-08-22",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/alex-hormozi/12-im-broke-what-business-do-i-start.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "specificity",
+        "customer-avatar",
+        "concrete-pain",
+        "one-sentence-offer",
+        "real-conversations",
+        "iteration"
+      ],
+      "summary": "Early founders gain learning velocity by narrowing to a specific customer and concrete pain, then testing a plain-language offer in real conversations."
     }
   ]
 }
