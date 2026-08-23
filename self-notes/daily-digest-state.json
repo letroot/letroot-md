@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-22",
+  "updated_at": "2026-08-23",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -676,6 +676,25 @@
         "iteration"
       ],
       "summary": "Early founders gain learning velocity by narrowing to a specific customer and concrete pain, then testing a plain-language offer in real conversations."
+    },
+    {
+      "date": "2026-08-23",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "Clippings/Good Tools Are Invisible.md"
+      ],
+      "source_folders": [
+        "Clippings"
+      ],
+      "concept_tags": [
+        "invisible-tools",
+        "good-defaults",
+        "user-burden",
+        "common-path",
+        "product-judgment",
+        "outcome-over-cleverness"
+      ],
+      "summary": "Product leverage comes from making the common path invisible through strong defaults and fewer user burdens, rather than mistaking complexity or configurability for capability."
     }
   ]
 }
