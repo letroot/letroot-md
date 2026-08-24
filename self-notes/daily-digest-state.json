@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-23",
+  "updated_at": "2026-08-24",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -695,6 +695,25 @@
         "outcome-over-cleverness"
       ],
       "summary": "Product leverage comes from making the common path invisible through strong defaults and fewer user burdens, rather than mistaking complexity or configurability for capability."
+    },
+    {
+      "date": "2026-08-24",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/1-skin-in-the-game.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "skin-in-the-game",
+        "risk-symmetry",
+        "reality-judged-feedback",
+        "survival",
+        "ethical-risk",
+        "accountability"
+      ],
+      "summary": "Better risk judgment keeps upside and downside connected, uses reality-judged feedback over appearance, and takes exposure without accepting ruin."
     }
   ]
 }
