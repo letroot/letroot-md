@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-24",
+  "updated_at": "2026-08-25",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -714,6 +714,25 @@
         "accountability"
       ],
       "summary": "Better risk judgment keeps upside and downside connected, uses reality-judged feedback over appearance, and takes exposure without accepting ruin."
+    },
+    {
+      "date": "2026-08-25",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/alex-hormozi/13-focus-is-a-daily-fight-not-a-one-time-win.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "focus",
+        "opportunity-cost",
+        "valley-of-despair",
+        "procedural-knowledge",
+        "repetition",
+        "saying-no"
+      ],
+      "summary": "Focus compounds when a person resists attractive restarts, stays through the difficult middle, and builds procedural knowledge through repeated real-world reps."
     }
   ]
 }
