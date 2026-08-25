@@ -2,148 +2,130 @@
 title: "Our Supernatural Nature in Christ (Part 20)"
 date: 2026-08-25
 tags: [podcast, pleros]
-url: "https://www.youtube.com/watch?v=PXY8rFGv5qM"
+url: "https://www.youtube.com/watch?v=OJf26Qs6SGQ"
 type: solo
 ---
 
 # Our Supernatural Nature in Christ (Part 20)
 
-## Introduction to the Pleros Podcast
+Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today.
+## &gt;&gt; Welcome back to the Pleros podcast
 
-Let's get right into it. Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life.
+&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue in this episode our study on our supernatural nature in Christ. We have identified that one of the realities of the new life we have in Christ is our supernatural nature. And that's because every reality of the new life is powered by the spirit.
 
-## Our Supernatural Nature in Christ
+And the Lord Jesus pointed out to us in John 14 that when he gives the spirit, one of the things that would happen is we who believe in him will be able to do supernatural or miraculous works. And if we carefully study that text, we see that the people he was speaking to were already doing supernatural or miraculous works. But now he's saying that on account of the spirit that he would send and that would be in them, they'll be able to do supernatural or miraculous works.
 
-We continue our study on our supernatural nature in Christ. We have seen that our supernatural nature is one of the realities we have in the newness of life in Christ. And this is because every reality of the new life is powered by the Spirit. And when the Lord Jesus spoke about his sending of the Spirit in John 14, the first thing he mentioned we will be able to do are supernatural or miraculous works.
+## So, the way in by which they would be able to do...
 
-Therefore, it is worth our time and attention to find out about you know the supernatural nature that we have because of the sending of the Spirit upon the work of redemption. Now he says that believe me not only for the even sorry John 14 and verse 11 he said believe that I'm in the Father and the Father in me or else believe me for the sake of the works themselves. So he's saying here that we shouldn't only believe by reason of his message or his person, but we could also see the attestations or miraculous works as a basis of faith. And then he goes on in verse 12 to say that he who believes in me, the works I do, he will do also and greater works than these shall he do because I go unto my Father.
+So, the way in by which they would be able to do these works would change. It's no longer going to be a matter of delegation. It's going to be because God's spirit is resident in them. They now have a supernatural nature.
 
-So we can do the works that Jesus did and greater works. He is saying the individual who believes can do the works I do and greater and the reason is because I go to the Father. What happens when he goes to the Father? I will send the Spirit.
+## Now, with this said, we then have to begin our study on...
 
-So because of the giving of the Spirit we will be able to do the works that Jesus did and greater.
+Now, with this said, we then have to begin our study on understanding this supernatural nature first from the person of our Lord Jesus and then to ourselves. I'll quickly read John 14 just so that we can have, you know, the same context. It says, "Believe me that I'm in the Father, the Father in me, or else believe me for the sake of the works themselves." Most assuredly or very, very I say unto you, "He who believes in me, the individual that believes in me, the works I do he will do also, and greater works than these shall you do because I go to my father.
 
-## The Lord Jesus and the Giving of the Spirit
+## So, he's telling us that those of us who believe in him...
 
-Now to have an understanding of this, our first work was to see the interaction between the Spirit and the Lord Jesus himself from his birth to his baptism, to his ministry, to his delegation to his disciples and finally what he taught about the Spirit in his teachings. We saw him teach on the fact that we will be able to do supernatural revelation utterance and power. Then we saw him teach on the fact that we need to be born of the Spirit. We need to drink of the Spirit and we also need to be baptized with the Spirit.
+So, he's telling us that those of us who believe in him will do the works he does because he goes to the father. What will happen when he goes to the father? Verse 16 tells us, "I will pray the father and he will give you another comforter that he may abide with you forever." So, when he goes to the father, he would ask that the spirit should be given to us, the spirit of truth whom the world cannot receive. For they neither see nor know him, but he's with you and shall be in you. Also, John 16:77 says that "If I do not depart, I can't send the spirit unto you, but if I go, then I will send the helper or the spirit or the comforter to you." So, very clearly, something happens when he goes to the father, he sends the spirit to now be in us. This goes beyond delegating the spirit to be with us as it did at that point, you know, he told them John 14:17, "The world cannot see him for they neither see nor know him, but he's with you and shall be in you." And that was just the person of Jesus being with them because when he says it in that sense, even when they were not with him physically, the reality of his power delegated to them, the power of the spirit was still true. Aside the fact that even before the Lord Jesus, which is something we'll see later, people had the spirit with them in hopes of having the spirit in them regeneratively when redemption is fulfilled.
 
-Having seen all those details, we arrived at certain conclusions. One of which is the Lord Jesus is the giver of the Spirit. He's the direct giver of the Spirit. Some texts will say that the Father is the giver of the Spirit which is to say he's the indirect giver of the Spirit.
+## Now, with all of this said, our concern has been if we...
 
-So he's the source and origin of the Spirit. You can therefore call him the giver of the Spirit in that sense of attribution. So but it is expressed that by virtue of the work of redemption accomplished it is the Lord Jesus who directly gives the Spirit at the instance of his accomplishment of that work and there are so many text we could see in that regard John 7 where he says that the Spirit will flow out of him because the Spirit is given when he's glorified. John 4, where he says that if you know who speaks you would have if you know the gift of god and he who says to you give me to drink you would have asked of him and he would have given you living water.
+Now, with all of this said, our concern has been if we are to do supernatural works like the Lord and greater, we first need to understand how the means of doing the supernatural work, which is the spirit, you know, was at work in the life of the Lord Jesus himself. What was the interaction between the spirit and Lord? And we ran through that, we saw the spirit in his birth, we saw the spirit at his baptism, we saw the spirit in his ministry, then we saw the delegation of the spirit to his disciples for ministry as well. And finally, we saw the spirit things teaching. And the major thing we saw about the spirit things teaching is one he told us we'll be able to do supernatural works like supernatural revelation, the spirit giving us what to say, supernatural utterance, the spirit heading how we say it, and finally supernatural power where the spirit is at work to effects, you know, um changes that can be visible in the natural.
 
-So John 4:10, as well as John 14:13 and 14, there clearly there is no doubt he's the giver of the Spirit. We could also in some from some text say the Father is the giver from Titus 3:6 Titus 3:5 and 6 describes God giving the Spirit through Jesus Christ. John 14:1617 as well as John 14:26 describes the Father giving the Spirit on account of the Lord Jesus. So God gives the Spirit.
+When we talk about supernatural revelation, there's no change in the natural world. Um supernatural utterance, there's no change in the natural world. We are just the one speaking supernaturally. But supernatural power is causing a change in the natural world. It's interfering with the state of things in natural world. Could be healing, could be casting out of demons, could be any form of miracle in the natural as well. Even provision, preservation are having effect in the natural and things like that.
 
-He pours out the Spirit.
+## So, he even mentioned that to us the next thing we saw...
 
-## Receiving the Spirit by Faith in Redemption
+So, he even mentioned that to us the next thing we saw him about the spirit particularly in the book of John was how there is such a thing as being born of the spirit, that those of us who thirst or believe in him should come and drink of the water of the spirit from him. How he's the one who gives these gifts of the spirit. And when we drink of it, it becomes a well of water springing up onto everlasting life. That's I just mentioned John 3, John 7, John 4. Then from John 14, he starts to talk about how the spirit will cause us to do supernatural works when he sends the spirit to be in us. Then John 15 as well, he says he will send the spirit.
 
-He sends the Spirit. But our question has now been when the Spirit is given, how do we receive the Spirit? Do we have more than one reception of the Spirit? Do we receive the Spirit by asking, praying, begging for the Spirit?
+## John 16, he will send the spirit
 
-How exactly do we receive the Spirit? One thing becomes clear when we run through the entire text of scripture. The first reception of the Spirit does not happen by asking directly for the Spirit. It happens by our faith in redemption.
+John 16, he will send the spirit. So, something becomes clear. Jesus sends the spirit.
 
-Our faith in the work of redemption that Christ has accomplished. Our faith in Christ Jesus. At the instance of faith in Christ, we automatically receive the Spirit. That is abundantly clear from scripture.
+## Now, one text or two texts, John 14 and 16 and then...
 
-Even John 14 here was speaking to that effect when he says, "He that believes on me, the works I do, he will do because I go to the Father." Why will he do those works? Because he will receive the Spirit that I send when I go to the Father. How does he receive the Spirit? Because he believes on me.
+Now, one text or two texts, John 14 and 16 and then 26 tell us that the Father sends the spirit, which is to describe the Father as the indirect giver of the spirit. But consistently, the Lord Jesus is described as the direct giver, baptizer with um the one who pours out the spirit directly, while the Father is described as the origin of the spirits, the one from whom the spirit proceeds. All right.
 
-He that believes on me. That is John 14 and verse 12 downward to 17. All right. We have several texts on that.
+## So, with all of those details in mind, our question has been,...
 
-We have seen Romans 8:9. If you don't have the Spirit, you are not Christ. 1 Corinthians 6:11. The Spirit washes, sanctifies, justifies us.
+So, with all of those details in mind, our question has been, when the Lord pours out his spirit, when the Father pours out the spirit, when they give us the spirits, what does the reception of the spirit look like? What exactly does the reception of the spirit like? Do we then say, "Oh, now the spirit has been poured out. God, please let us receive the spirit." How does the How How does the reception pan out? And what we notice is there are There is more than one reception of the spirit when we run through scripture. The very first contact we're going to see with the redemption of the spirit is not us requesting the spirit, it's rather &gt;&gt; [snorts] &gt;&gt; us receiving on account of our faith in redemption.
 
-So all the reality of redemption that happen at the instance of faith are done by the Spirit. 1 Corinthians 6:17, he that is joined to the Lord is one spirit with him. Our body is the temple of the Holy Ghost who is in us, which is 1 Corinthians 6:19.
+## So, when we believe in the work of redemption Christ has done,...
 
-Galatians 3:2 says, "We receive the Spirit by the hearing of faith." Galatians 3:14, God gives the promise of the Spirit to the Gentiles through faith. Galatians 3:26, we are all sons of God by faith in Jesus. And those who are sons of God have the Spirit of his son sent to their hearts. Galatians 4:6.
+So, when we believe in the work of redemption Christ has done, we automatically instantly receive the spirit at that point, not by requesting the spirit, but by reason of our faith in redemption, by reason of salvific faith, then we receive the spirit in us. So, the giving of the spirit is clear. The Father, you could say, or the Lord Jesus gives the spirit. He pours out the spirit. This is going to happen when redemption is done, when I've gone to the Father and I've done the work of redemption. On account of me, the spirit will move sending my name, or when I pray to the Father, I will send the spirit, or I will give the spirit that proceeds from the Father. On account of me, the spirit will be given in redemption.
 
-Ephesians 1:13 says you know having believed you were sealed with the Holy Spirit of promise. Titus 3 4-7 the love and kindness of God of God our savior towards man appeared not of the works of righteousness which we have done but according to his own mercy he saved us which we know that salvation is by faith you know. So according to his own mercy, he saved us by the washing of regeneration and the renewing of the Holy Ghost whom he poured out abundantly on us. So that giving of the Spirit is to save us.
+## Now, that part is settled
 
-The pouring out of the Spirit is to save us, regenerate us and renew us. All right? So the Spirit is received. There's an internal regenerative reception of the Spirit that washes, sanctifies, justifies, saves, renews, regenerates, baptizes into the body, joins us with Christ.
+Now, that part is settled. There is an outpouring, a giving of the spirit at the instance of redemption, but the part that we need to to resolve is the reception of the spirit. Do we ask to receive the spirit? What happens, you know, that ensures receive the spirit? And we We see the first reception of the spirit, which we could call an internal regenerative reception of the spirit is without requesting the spirit.
 
-Everything you can think of as an accomplishment of redemption happens in this first reception of the Spirit when we have faith in Christ.
+He's only at the instance of faith. We We run through several texts on that. And so, I'm not going to do as much as we've done before. Even here in John 14, when he says, "He who believes on me, he will do these works because I go to the Father." Then John 16, he explains, "When I go to the Father, I'll send the spirit that may be in you." So, at that instance of faith, you receive the spirit in you. But, of course, John 14 also has in view rece- receiving the spirit in this in an external empowering form. Don't forget we're talking about two receptions, as we began to see, that there's an internal regenerative reception of the spirit, but there's also an external empowering reception of the spirit.
 
-## The External Empowering Reception of the Spirit
+## Now, we're going to come back to that one later
 
-You don't need to even request the Spirit at that instance for all for that reality of the Spirit in you and the Spirit baptizing you into the body to happen just at the instance of faith it happens. But we see that beyond that instance of faith there is an external empowering reception of the Spirit. And in this episode we want to put that to bed more clearly. The first people we will see this external empowering reception of the Spirit with is the apostles themselves.
+Now, we're going to come back to that one later. We run through all that text like John Romans 8:9, "If you don't have the spirit, you are not Christ's own." 1 Corinthians 6:7, "You were washed, sanctified, justified by the spirit." All of these describing soteriological realities. At the instance of salvation, you were washed, sanctified, justified, and it happened by the spirit. Then, "He that is joined to the Lord is one spirit with him." Um "Your body is the temple of the Holy Ghost which is in you." Galatians 3:2, "You received the spirit by the hearing of faith." Galatians 3:14, "The Gentiles received the promise of the spirit through faith." So, at the very instance of the of faith, we received the spirit. Galatians 3:26 says, "We are all sons of God in Christ." Then Galatians 4:6 says, "Because you are sons, God has sent forth the spirit of the Son into your heart." That means on account of the faith that makes you sons, you have the spirit of sonship given to you.
 
-When the Lord told them in Luke chapter 24, it says, "And you are witnesses of these things. Behold, I send the promise of my Father upon you, but tarry in the city of Jerusalem unto you. You are endued with power from on high." So this is about an empowerment or enduement with power that happens when the Spirit is sent. Now on one hand you know because he's speaking in a practical narrative sense in fulfillment of times and seasons I will send the Spirit.
+It's not as much an order because we put the Pauline thing and our theology together, you find that's not an order that oh, you first become a son then receive the spirit. It's that if you are sons, then you have God sending the spirit to you. That is what it does in that case.
 
-This empowering reception of the Spirit will start will take off from the day of pentecost. On the other hand by redemption he has sent the Spirit.
+## Ephesians 1:13 tells us that we um having believed received the Holy...
 
-## The Apostles Believed and Received the Spirit
+Ephesians 1:13 tells us that we um having believed received the Holy Spirit of promise. Then Titus 3:5-7 also is clear. He says, um "Not of the works of righteousness which we have done, but according to his own mercy saved us through the washing of regeneration and the renewing of the Holy Ghost whom he poured out abundantly on us through Jesus Christ.
 
-All right he has poured out the Spirit and then in fulfillment of times and season then the empowering reception of the Spirit will take off from that time. We know this because in John 20 he he breathed on them and told them receive the Spirit. So the outpouring of the Spirit had happened from redemption from the resurrection from the ascension. the outpouring of the Spirit that happened and he breathed on them to receive the Spirit at the instance of faith there they they received the Spirit in this internal regenerative sense because we are told that they believed in John 20 we see that they believed because Thomas was doubting and because he was not there at the instance then when the Lord appeared to him he believed look at that John 20 before we come back to Luke 24 John 20 he was not the only one who doubted at the first but his case is peculiarly pointed out in John.
+## So, we are saved by faith
 
-So in John 20 he the Lord told him in verse 27 reach your finger here look at my hands reach your hands here put it into my side. Do not be unbelieving but believing and Thomas answered and said to him my Lord and my God and he said Thomas because you have seen you have believed. So he believed there blessed are those who have not seen and yet believe. Those who have not seen and yet believe includes two sets of people.
+So, we are saved by faith. We know that. Ephesians 2:8. And this salvation by faith causes the spirit to save us, you could say. Um when we believe, then the spirit saves, regenerates, or renews us.
 
-People prior to the coming of the Lord Jesus and we who are after time because we don't need the historical event to believe in what is necessary truth which redemption is necessary truth but we don't need the record of the historical event to know of it fulfillment which is why we believe from the standpoint of fulfillment today. That's a separate discussion. Now in Luke chapter 24 we see that all of them initially doubted just like Thomas. In Luke 24 verse 36.
+Okay? Even 1 John 3:24 says when you keep his commandments, you have his spirit in you. He's still talking about faith.
 
-Now as they said these things Jesus himself stood in the midst of them and said to them peace to you. And they were terrified and frightened and supposed that they had seen a Spirit and he said to them why are you troubled? Why do you why do doubts arise in your heart? So they were doubting and you know he says behold my hands are my feet that I myself handle and see for a Spirit does not have flesh and bones as you see me have and when he had said these things he showed them his hands and his feet but while they still did not believe for joy.
+## So, the first reception of the spirit, which is an internal regenerative...
 
-So they were moving away from doubt skepticism but now amazement can this really be and marveled he said to them have you any food so they gave him a piece of fish and some honeycomb and he took it and ate in their presence. So essentially they believed. He preached the message to them. They believed and now they have received the Spirit in this internal regenerative sense.
+So, the first reception of the spirit, which is an internal regenerative redemption, happens by faith. In this instance, it could be said that the spirit saves us. The spirit regenerates us. The spirit renews All right? The spirit saves, regenerates, renews us.
 
-## Power When the Holy Spirit Comes Upon You
+The spirit washes us, sanctifies us, justifies us. We could also say the spirit baptizes us into the body of Christ. 1 Corinthians 12 and verse 13. We've seen all of that. As well as Ephesians 4:4-6. But that's the first part of receiving the spirit. This internal regenerative reception of the spirit.
 
-But in verse 4849 he tells them I'm sending the Spirit to be received in this external empowering sense. I'm sending the Spirit to be received in this external empowering sense. Let's see Acts chapter 1. So they have believed but they still need another reception of the Spirit for the sake of their work in ministry or in God's purpose.
+## We must not confuse the spirit work in baptizing us into Christ...
 
-You could say in Acts 1 and in verse 4 commanded them not to depart from Jerusalem but to wait for the promise of the Father which he said you have heard from me for John truly baptized with water but you shall be baptized with the Holy Spirit not many days from now. In verse 8 he tells them what will happen. You shall receive power when the Holy Ghost has come upon you.
+We must not confuse the spirit work in baptizing us into Christ as the baptism of the Holy Spirit. In the spirit baptizing us into Christ, the spirit is the agent doing the work of putting us in Christ. In the baptism of the Holy Spirit, the Lord Jesus is the agent baptizing us with the spirit to be empowered for service, for purpose. They are two different things. One is salvific.
 
-## The Samaritans and the Baptism with the Holy Spirit
+The spirit doing all this work of effecting what Christ has accomplished, including putting us into the body of Christ, putting us in Christ. But the other one is not redemptive. The other one is empowering. And that's what was pointed out to us first by John the Baptist when he says, "I indeed baptize you with water unto repentance, but he that comes after me will baptize you with the Holy Spirit and with fire." Mark 1:8 says the same thing.
 
-So there is this empowerment that happens when you receive the Spirit in this way to show you the separation between the reception of the Spirit at salvation which we have established. It is clear that the Spirit is receive salvation. Acts 8 is one of the prime examples we should use here. In Acts 8 when Philip preached to them we are told that they believe the things he said.
+## Luke 3:16 as well
 
-Acts 8:5 Philip went down to the city of Samaria and preached Christ to them and the multitude with one accord heeded the things spoken by Philip hearing and seeing the miracles which he did. Then by verse 12 we see again but when they believed Philip as he preached the things concerning the kingdom of God and the name of Jesus Christ both men and women were baptized. So they believed they were also baptized with water. They had the Spirit of God in them regeneratively.
+Luke 3:16 as well. Then in John 1:32-33, John says he was told that upon whom he sees the Spirit descending and remaining on him is the one who baptizes with the Holy Ghost. He says, "I did not know him, but he who sent me to baptize John 1:33 with water I said to me, upon whom you see the Spirit descending and remaining on him." Don't forget the Lord has already been birthed by the Spirit and been regenerated into humanity and saved by the Spirit at his birth. Um regenerated carefully. He's still God. Then upon whom you see the Spirit descending and remaining on him is this is he who baptizes with the Holy Spirit.
 
-Yet there was another reception of the Spirit that was to happen. You'll see that in verse 14. When the apostles who were at Jerusalem heard that Samaria had received the word of God, they sent Peter and John to them who when they had come down prayed for them that they might receive the Holy Spirit. That's strange because at the instance of faith Ephesians 1:13, Galatians 3 14 you know Titus 3 4 to7 they have already received the Spirit but this is another reception of the Spirit an external empowering reception of the Spirit.
+## So, very important
 
-All right it says that they might receive the Holy Spirit for as yet he had fallen upon none of them. So it was in them but there was this external reception they did not yet have. They had only been baptized in the name of the Lord Jesus. All right.
+So, very important. I do think that when John says baptizing with the Holy Spirit, he's already presupposing salvation, which is also what he was ministering, but was extending the work that the Lord Jesus would do beyond salvation. That is, you're already believing onto deliverance from the kingdom of darkness and no from the world, which is what you're expressing by these Jordan baptisms that is that I'm doing, a form of an Exodus. But the this person is going to do beyond that.
 
-So clearly Luke is expressing a doctrinal understanding that there is salvation and the baptism thereof and there is the reception of the Spirit which we could call the baptism with the Holy Spirit. the baptism in the Holy Spirit different from the regenerative reception of the Spirit or the Spirit baptizing you into the body. Two separate things. There is Jesus baptizing with the Holy Spirit.
+## Now, the Lord is the one who does the actual fulfillment of...
 
-There's the Spirit baptizing with the body as salvation. All right? I know it is one stream. The Lord Jesus gives the Spirit when you believe the Spirit regenerates you, saves you, washes you, sanctifies you and baptize you in the body.
+Now, the Lord is the one who does the actual fulfillment of what John was doing as well, but he's saying there is even more than salvation available in what he's going to do and he's calling that the baptism of the Holy Spirit. This sentiment is also expressed by the Lord Jesus. He not only tells us that we are to drink of the water that he's going to give so that we are changed internally. He also tells them to wait for a particular experience, a particular reception of the Spirit that is going to empower.
 
-But the Lord Jesus gives the Spirit also so you can be externally empowered with the Spirit. So he baptizes you with the Spirit. That's a separate experience from he gives the Spirit and the Spirit baptizes you into the body.
+## So, there was an understanding that there is one work of the...
 
-## The Disciples at Ephesus
+So, there was an understanding that there is one work of the Spirit that is internally regenerative, salvific, redemptive, taking you out of darkness into light, but there's another work of the Spirit that is essentially empowering, and it is that important. John spoke about this empowering work of the Spirit presupposing the salvific and redemptive one that he was also, you know, cut circle and unquote ministering. But, it was already into that this empowering work of the Spirit as an important reality God wants us to partake of. All right.
 
-One is further down the line than the other. All right. So also another instance that makes this clear is Acts chapter 19. Paul asked them, he said, did you receive the Holy Spirit since you believed?
+## Let's see the text that speak about this external empowering work of...
 
-They said we have not so much as heard about any Holy Spirit. Into what were you baptized? Into John's baptism. He said John said to believe on the Lord Jesus who will come after him.
+Let's see the text that speak about this external empowering work of the Spirit. Again, Luke chapter 24 because in subsequent episodes we are now moving forward to how this external empowering work of the Spirit leads to our walk in the supernatural. In Luke 24 and verse 48, the Lord speaking to his apostles, whom we are told are just believed because they were initially doubting, and had now believed, he told them, "You are witnesses of the resurrection that you have seen. Behold, I send the promise of my father upon you, but tarry in the city of Jerusalem until you be endued with power from on high." And the promise of the Father there is the Spirit. I will send upon you.
 
-And when they heard this, they were baptized in the name of the Lord Jesus. So he moves their faith from a pre-redemptive faith where they were expecting the Christ to a post redemptive faith. Now they understand that the Christ has come and has fulfilled redemption. So he they moved their faith at that point they were baptized.
+Wait for it that you may be endued with power from on high. This is about empowering. This is not about regeneration.
 
-## Two Receptions of the Spirit
+## In Acts 1 and in verse 4, again, the Lord said to...
 
-And then it goes further and when Paul had laid hands on them, the Holy Spirit came upon them and they spoke with tongues and prophesied. Then he ministered to them to have this external empowering reception of the Spirit. So there are two receptions of the Spirit that we can see. One is salvific we could say.
+In Acts 1 and in verse 4, again, the Lord said to wait for the promise of the Father, which he said you have heard from me. For John truly baptized with water, but you shall be baptized with the Holy Spirit not many days from now. So, there's going to be something beyond salvific reality with respect to the Spirit that will happen to you. You'll be [snorts] baptized with the Spirit not many days from now. And this empowering work of the Spirit is so important that it is distinctly highlighted by John, by the Lord Jesus, and by the apostles.
 
-The other one is charismatic. Galatians 3 we can argue was expressing these thoughts. Galatians 3 and in verse two says did you receive the Spirit by the works of the law by the hearing of faith?
+It's that important. He says, "You shall receive power, verse 8, when or after the Holy Ghost has come upon you." So, at this instance, then there is an empowerment that takes place. You receive power when the Holy Holy Ghost comes upon you. For For we can pretty much sum it up there are two receptions of the spirit. There's an internal regenerative reception and there's an external empowering reception of the spirit. This is reflected not only scriptures as we're still going to see yet again in subsequent episodes, but also reflected also visible rather in the history of the church even though the expression that follow the practice of these two receptions of the spirit might seem to have changed from the Bible through history. And that may be a call for us to pay attention to something we might have lost sight of, we might have quenched, and that we need to ensure we maintain.
 
-## Cornelius’ Household
+## All right, on that note, we wrap it up
 
-Then Galatians 3:5 says, "He that supplies the Spirit unto you and works miracles amongst you, does he do it by the hearing of the law or by the hearing of faith." The text, you know, there can be all kinds of debate there. But we can also use it for corroborative effect that there is the internal regenerative reception of the Spirit and there is the external empowering reception of the Spirit. In Acts chapter 10, we also have a sense of these two receptions of the Spirit. It is just that this is a unique account.
+All right, on that note, we wrap it up. Thank you. God bless you. We continue in the next episode.
 
-In Acts 10, Peter was preaching to the Gentiles for the first time, those in Cornelius' household. And he was telling them about their own experience, you know, out there witnessed the person of Jesus from his baptism from John going forward, the miracles he did and all of that. Then he told them that he told him that he commanded them to preach to the people and to testify that he was ordained by God to judge the living and the dead. To him all the prophets witness through his name.
+## Fulfill God's purpose
 
-Whoever believes in him will receive remission of sins. So he was preaching to them to have faith in Christ. And remember upon faith you have the internal regenerative reception of the Spirit. Now we have no evidence here that Peter preached beyond this.
+Fulfill God's purpose. See you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. &gt;&gt; To learn more of God's word, visit pleroma.org.
 
-We can only assume because we are told in verse 44 while he was still speaking. So it seems his message got them to have faith regeneratively. But it may not be unlikely even though there is no evidence for that that he preached to what happened in Acts 2 because not only did they believe in a salvific sense but we also see them receive the Spirit in this external empowering sense.
+You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles &gt;&gt; at pleroma_org.
 
-## Peter’s Explanation of the Same Gift
+## For now, stay blessed and keep walking in his purpose
 
-Whilst Peter was still speaking these words the Holy Spirit fell upon those who heard the word. And those of the circumcision who believed were astonished, as many as came with Peter, because the gift of the Holy Spirit had been poured out on the Gentiles also, for they heard them speak with tongues and magnify God. What is even important here is what Peter says about this experience in Acts 11:15. He said, "As I began to speak, the Holy Spirit fell upon them as upon us at the beginning.
-
-And I remember the words of the word of the Lord how he said John indeed baptized with water but you shall be baptized with the Holy Spirit. If therefore God gave them the same gift as he gave us when we believed on the Lord Jesus Christ who was that could withstand God. So for those people who have believed on Jesus there is a gift that God gives. Now when they believe on Jesus they already have the Spirit.
-
-That one is clear like Acts 8 independent of receiving that gift. But there is a gift that God then gives when one has been regenerated. This external empowering reception of the Spirit. So the apostles themselves believed on Jesus which we can see happened John 20, Luke 24 you know even Mark 16 and Matthew 20 when they initially doubted them they believed.
-
-Then God gave them a gift of the empowering reception of the Spirit. The same thing happened here. It means these people believed on Jesus. He said he gave us when we first believed they believed on Jesus and then they had this external reception of the Spirit also happened to them.
-
-You know that is so important. Now Peter did not pray for them like, you know, they are Gentiles.
-
-## Walking in Miraculous and Supernatural Works
-
-Maybe he was a bit wary and his doctrine was still, you know, trying to accommodate them, but he preached it to them. They believed, very likely maybe preached on the baptism of the Holy Ghost or not, but they also had that same experience as they did when they believed. Well, on that note, it is pretty clear there are two receptions of the Spirit overwhelmingly settled in God's word. We're going to pick it up from here to see a couple of things and we start to talk about how this external reception leads to the walk in miraculous and supernatural works.
-
-## Closing Exhortation
-
-Thank you. May God bless you, fulfill God's purpose, and see you on the next one. We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
-
-To learn more of God's word, visit pleros.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Pleros_hq. For now, stay blessed and keep walking in his purpose.
+For now, stay blessed and keep walking in his purpose.
