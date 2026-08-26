@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-25",
+  "updated_at": "2026-08-26",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -733,6 +733,25 @@
         "saying-no"
       ],
       "summary": "Focus compounds when a person resists attractive restarts, stays through the difficult middle, and builds procedural knowledge through repeated real-world reps."
+    },
+    {
+      "date": "2026-08-26",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/starter-story/02-i-built-a-30k-month-app-here-s-my-exact-process-idea-build-marketing.md"
+      ],
+      "source_folders": [
+        "show-notes/starter-story"
+      ],
+      "concept_tags": [
+        "marketing-first",
+        "clear-hook",
+        "message-testing",
+        "organic-to-paid",
+        "visible-outcome",
+        "distribution"
+      ],
+      "summary": "Distribution improves when founders clarify the visible customer outcome first, test messages organically, and use paid spend to scale creative evidence rather than replace it."
     }
   ]
 }
