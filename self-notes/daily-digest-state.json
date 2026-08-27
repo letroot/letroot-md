@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-26",
+  "updated_at": "2026-08-27",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -752,6 +752,25 @@
         "distribution"
       ],
       "summary": "Distribution improves when founders clarify the visible customer outcome first, test messages organically, and use paid spend to scale creative evidence rather than replace it."
+    },
+    {
+      "date": "2026-08-27",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/waka-droid-documentary/01-how-one-state-solved-nigerias-50-year-power-crisis.md"
+      ],
+      "source_folders": [
+        "show-notes/waka-droid-documentary"
+      ],
+      "concept_tags": [
+        "critical-dependencies",
+        "structural-bottleneck",
+        "selective-ownership",
+        "resilience",
+        "long-term-execution",
+        "case-study"
+      ],
+      "summary": "The Abia power project shows how controlling a critical dependency can remove a structural bottleneck, provided builders sustain ownership and preparation through long uncertainty."
     }
   ]
 }
