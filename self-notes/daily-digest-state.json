@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-27",
+  "updated_at": "2026-08-28",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -771,6 +771,30 @@
         "case-study"
       ],
       "summary": "The Abia power project shows how controlling a critical dependency can remove a structural bottleneck, provided builders sustain ownership and preparation through long uncertainty."
+    },
+    {
+      "date": "2026-08-28",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-08-22.md",
+        "self-notes/daily-digest/2026-08-23.md",
+        "self-notes/daily-digest/2026-08-24.md",
+        "self-notes/daily-digest/2026-08-25.md",
+        "self-notes/daily-digest/2026-08-26.md",
+        "self-notes/daily-digest/2026-08-27.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "clear-promise",
+        "simple-path",
+        "accountability",
+        "focus",
+        "customer-evidence",
+        "critical-dependencies"
+      ],
+      "summary": "A strong operating system makes customer promises clear, workflows simple, consequences owned, and learning continuous through focused real-world repetition."
     }
   ]
 }
