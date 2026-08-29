@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-28",
+  "updated_at": "2026-08-29",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -795,6 +795,25 @@
         "critical-dependencies"
       ],
       "summary": "A strong operating system makes customer promises clear, workflows simple, consequences owned, and learning continuous through focused real-world repetition."
+    },
+    {
+      "date": "2026-08-29",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/my-first-million/04-what-i-learned-building-a-300m-year-blue-collar-business.md"
+      ],
+      "source_folders": [
+        "show-notes/my-first-million"
+      ],
+      "concept_tags": [
+        "systemization",
+        "documentation",
+        "delegation",
+        "anti-self-hiring",
+        "reliability",
+        "operating-leverage"
+      ],
+      "summary": "Operators scale by turning recurring work into simple systems, documenting standards and handoffs, then delegating or automating the work that does not require their unique judgment."
     }
   ]
 }
