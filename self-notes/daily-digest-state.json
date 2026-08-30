@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-29",
+  "updated_at": "2026-08-30",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -814,6 +814,25 @@
         "operating-leverage"
       ],
       "summary": "Operators scale by turning recurring work into simple systems, documenting standards and handoffs, then delegating or automating the work that does not require their unique judgment."
+    },
+    {
+      "date": "2026-08-30",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/lennys-podcast/001-mercado-libre-18k-engineers.md"
+      ],
+      "source_folders": [
+        "show-notes/lennys-podcast"
+      ],
+      "concept_tags": [
+        "user-observation",
+        "behavior-over-requests",
+        "task-friction",
+        "product-discovery",
+        "intent",
+        "evidence-based-building"
+      ],
+      "summary": "Product judgment improves when teams observe real user behavior and intent, identify the highest-cost friction, and resist translating feature requests directly into solutions."
     }
   ]
 }
