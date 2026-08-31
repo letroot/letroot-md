@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-30",
+  "updated_at": "2026-08-31",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -833,6 +833,25 @@
         "evidence-based-building"
       ],
       "summary": "Product judgment improves when teams observe real user behavior and intent, identify the highest-cost friction, and resist translating feature requests directly into solutions."
+    },
+    {
+      "date": "2026-08-31",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Poor Charlie's Almanack.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "two-track-analysis",
+        "incentives",
+        "cognitive-misjudgment",
+        "decision-quality",
+        "bias-awareness",
+        "objectivity"
+      ],
+      "summary": "Better judgment separates the observable economics and incentives of a decision from the psychological forces that may distort its interpretation."
     }
   ]
 }
