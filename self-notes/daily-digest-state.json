@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-08-31",
+  "updated_at": "2026-09-04",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -852,6 +852,27 @@
         "objectivity"
       ],
       "summary": "Better judgment separates the observable economics and incentives of a decision from the psychological forces that may distort its interpretation."
+    },
+    {
+      "date": "2026-09-04",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-08-29.md",
+        "self-notes/daily-digest/2026-08-30.md",
+        "self-notes/daily-digest/2026-08-31.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-loops",
+        "systemization",
+        "user-observation",
+        "bias-awareness",
+        "clear-next-actions",
+        "operating-judgment"
+      ],
+      "summary": "Durable operating judgment comes from repeatable systems, direct observation of user behavior, and separating factual evidence from the stories and biases shaping decisions."
     }
   ]
 }
