@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-05",
+  "updated_at": "2026-09-08",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -892,6 +892,25 @@
         "independent-thinking"
       ],
       "summary": "A founder builds durable advantage by finding an overlooked but concrete market truth, dominating a small wedge, and following a deliberate plan toward differentiation and durability."
+    },
+    {
+      "date": "2026-09-08",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/dr-k/002-how-to-actually-have-an-elite-mindset.md"
+      ],
+      "source_folders": [
+        "show-notes/dr-k"
+      ],
+      "concept_tags": [
+        "outcomes-vs-identity",
+        "present-action",
+        "founder-anxiety",
+        "emotional-regulation",
+        "process-metrics",
+        "agency"
+      ],
+      "summary": "Sustainable performance separates outcomes from identity, turns factual results into controllable next actions, and prevents fear or craving from consuming attention."
     }
   ]
 }
