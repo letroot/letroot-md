@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-08",
+  "updated_at": "2026-09-12",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -911,6 +911,25 @@
         "agency"
       ],
       "summary": "Sustainable performance separates outcomes from identity, turns factual results into controllable next actions, and prevents fear or craving from consuming attention."
+    },
+    {
+      "date": "2026-09-12",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/smart-bear/04-what-is-the-value-of-one-hour-of-a-startup-founders-time.md"
+      ],
+      "source_folders": [
+        "show-notes/smart-bear"
+      ],
+      "concept_tags": [
+        "founder-time",
+        "high-leverage",
+        "delegation",
+        "prioritization",
+        "founder-only-work",
+        "attention-allocation"
+      ],
+      "summary": "Founders increase company odds by protecting time for customer learning, positioning, product judgment, and other high-leverage work only they can do while delegating or systemizing routine work."
     }
   ]
 }
