@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-12",
+  "updated_at": "2026-09-15",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -930,6 +930,25 @@
         "attention-allocation"
       ],
       "summary": "Founders increase company odds by protecting time for customer learning, positioning, product judgment, and other high-leverage work only they can do while delegating or systemizing routine work."
+    },
+    {
+      "date": "2026-09-15",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "Clippings/Maybe you should learn something.md"
+      ],
+      "source_folders": [
+        "Clippings"
+      ],
+      "concept_tags": [
+        "deliberate-practice",
+        "beginner-discomfort",
+        "skill-acquisition",
+        "right-sized-effort",
+        "sleep-and-learning",
+        "patience"
+      ],
+      "summary": "Skill development requires accepting early discomfort, using right-sized deliberate practice, and returning consistently long enough for learning to compound."
     }
   ]
 }
