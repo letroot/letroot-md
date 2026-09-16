@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-15",
+  "updated_at": "2026-09-16",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -949,6 +949,25 @@
         "patience"
       ],
       "summary": "Skill development requires accepting early discomfort, using right-sized deliberate practice, and returning consistently long enough for learning to compound."
+    },
+    {
+      "date": "2026-09-16",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/ai-engineer/ai-changes-nothing-dax-raad.md"
+      ],
+      "source_folders": [
+        "show-notes/ai-engineer"
+      ],
+      "concept_tags": [
+        "aha-moment",
+        "friction-removal",
+        "common-path",
+        "product-onboarding",
+        "ai-leverage",
+        "attention"
+      ],
+      "summary": "AI increases implementation speed but not product fundamentals; durable leverage comes from a clear aha moment, frictionless common path, and disciplined focus on the core user journey."
     }
   ]
 }
