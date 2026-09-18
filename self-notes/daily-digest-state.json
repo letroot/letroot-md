@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-16",
+  "updated_at": "2026-09-18",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -968,6 +968,25 @@
         "attention"
       ],
       "summary": "AI increases implementation speed but not product fundamentals; durable leverage comes from a clear aha moment, frictionless common path, and disciplined focus on the core user journey."
+    },
+    {
+      "date": "2026-09-18",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/2-antifragile-things-that-gain-from-disorder.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "bounded-downside",
+        "optionality",
+        "reversible-experiments",
+        "fragility-test",
+        "avoid-ruin",
+        "convexity"
+      ],
+      "summary": "Better risk judgment avoids ruin first, then favors reversible experiments whose downside is capped and whose learning or upside can compound."
     }
   ]
 }
