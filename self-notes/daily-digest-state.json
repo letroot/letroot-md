@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-09-18",
+  "updated_at": "2026-10-02",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -987,6 +987,25 @@
         "convexity"
       ],
       "summary": "Better risk judgment avoids ruin first, then favors reversible experiments whose downside is capped and whose learning or upside can compound."
+    },
+    {
+      "date": "2026-10-02",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/dalton-michael/04-should-you-pivot-your-startup.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "pivot-diagnosis",
+        "traction-honesty",
+        "founder-alignment",
+        "next-best-option",
+        "pivot-hell",
+        "decision-freeze"
+      ],
+      "summary": "A startup pivot should follow a time-based diagnosis of traction, founder alignment, and credible alternatives; depth beats weekly switching, while honest resets beat indefinite attachment to sunk work."
     }
   ]
 }
