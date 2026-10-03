@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-02",
+  "updated_at": "2026-10-03",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1006,6 +1006,25 @@
         "decision-freeze"
       ],
       "summary": "A startup pivot should follow a time-based diagnosis of traction, founder alignment, and credible alternatives; depth beats weekly switching, while honest resets beat indefinite attachment to sunk work."
+    },
+    {
+      "date": "2026-10-03",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "Clippings/Half-Baked Product.md"
+      ],
+      "source_folders": [
+        "Clippings"
+      ],
+      "concept_tags": [
+        "core-product-reliability",
+        "feature-creep",
+        "priority-discipline",
+        "maintenance-complexity",
+        "customer-promise",
+        "team-sustainability"
+      ],
+      "summary": "Small feature requests can quietly displace the core customer outcome; protect product reliability by making maintenance cost and displaced priorities explicit, and by addressing team strain before it becomes a recurring crunch."
     }
   ]
 }
