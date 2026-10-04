@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-03",
+  "updated_at": "2026-10-04",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1025,6 +1025,25 @@
         "team-sustainability"
       ],
       "summary": "Small feature requests can quietly displace the core customer outcome; protect product reliability by making maintenance cost and displaced priorities explicit, and by addressing team strain before it becomes a recurring crunch."
+    },
+    {
+      "date": "2026-10-04",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Fooled by Randomness.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "process-vs-outcome",
+        "hindsight-bias",
+        "luck-and-skill",
+        "decision-journal",
+        "probabilistic-humility",
+        "causal-reasoning"
+      ],
+      "summary": "In uncertain environments, outcomes alone cannot validate decisions; record evidence and assumptions beforehand, account for luck and selection, and improve the process rather than copying visible success."
     }
   ]
 }
