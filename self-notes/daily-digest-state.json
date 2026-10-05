@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-04",
+  "updated_at": "2026-10-05",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1044,6 +1044,25 @@
         "causal-reasoning"
       ],
       "summary": "In uncertain environments, outcomes alone cannot validate decisions; record evidence and assumptions beforehand, account for luck and selection, and improve the process rather than copying visible success."
+    },
+    {
+      "date": "2026-10-05",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/dalton-michael/01-most-important-lifestyle-habits-of-successful-founders.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "resilience-infrastructure",
+        "sleep",
+        "health-basics",
+        "information-diet",
+        "setback-recovery",
+        "sustainable-discipline"
+      ],
+      "summary": "Founders absorb inevitable setbacks better when sleep, food, movement, environment, and information boundaries are built as ordinary operating infrastructure rather than postponed until work is finished."
     }
   ]
 }
