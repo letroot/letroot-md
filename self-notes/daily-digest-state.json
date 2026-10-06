@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-05",
+  "updated_at": "2026-10-06",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1063,6 +1063,25 @@
         "sustainable-discipline"
       ],
       "summary": "Founders absorb inevitable setbacks better when sleep, food, movement, environment, and information boundaries are built as ordinary operating infrastructure rather than postponed until work is finished."
+    },
+    {
+      "date": "2026-10-06",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/dalton-michael/12-how-great-founders-approach-sales.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "founder-led-sales",
+        "customer-empathy",
+        "diagnostic-listening",
+        "value-before-price",
+        "customer-language",
+        "mutual-benefit"
+      ],
+      "summary": "Effective founder-led sales diagnoses the customer's real problem before pitching or discounting, then explains value in the customer's own language and pursues only mutually beneficial deals."
     }
   ]
 }
