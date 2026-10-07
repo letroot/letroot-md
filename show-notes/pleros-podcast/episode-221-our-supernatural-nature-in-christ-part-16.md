@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 16)
 
-Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've already seen a number of things with respect to our supernatural nature. We've seen that it's one of the realities we have in the newness of life.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've already seen a number of things with respect to our supernatural nature. We've seen that it's one of the realities we have in the newness of life.
 
 And we made this emphasis that every reality of the newness of life is enabled, empowered by the spirit. Whether it's the external realities or the internal one. I mean, things like healing, preservation, favor, our righteous nature, our love nature, are all powered by the spirits. And then we noticed that when the Lord was speaking about the giving of his spirit following his fulfillment of redemption, one of the first things he emphasized in John 14 was the fact that we would be able to do miraculous and supernatural works as a result.
 
@@ -120,7 +120,7 @@ We'll see that in the next episode. For now, thank you. God bless you.
 
 ## Fulfill God's purpose, and see you in the next one
 
-Fulfill God's purpose, and see you in the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. &gt;&gt; To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, &gt;&gt; don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles &gt;&gt; at therose_hug.
+Fulfill God's purpose, and see you in the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.  To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website,  don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles  at therose_hug.
 
 ## For now, stay blessed and keep walking in his purpose
 

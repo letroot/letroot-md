@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 34)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Blush podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Blush podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're still studying our supernatural nature in Christ. We're about concluding on this study. We've already seen a number of very important things.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're still studying our supernatural nature in Christ. We're about concluding on this study. We've already seen a number of very important things.
 
 One of which is that we all as believers have a supernatural nature as one of the realities of the new life in Christ. And particularly the words of the Lord Jesus helped to establish this very clearly when he said in John 14:12 that he that believes on me the works I do he will do also and greater works than the shall he do because I go unto my father and the very context of his discussion there was about supernatural or miraculous works. So he's saying the individual who believes on him will do the supernatural or miraculous works that he does and even greater. And from there we began to study how did he do these works because he said we'll do the works he does and then greater when or because he goes to the father. So we saw he did these works by the spirit which is exactly what will happen when he goes to the father he will give to us the spirit to be in us. And we then saw the interaction between the lord and the spirit at conception at baptism in um his ministry his delegation to his disciples um and in his teaching as well. From his teaching, we saw the text that told us that we as well would be able to function by the spirit.
 
@@ -76,7 +76,7 @@ Do we see the supernatural as who we are? That is this is part of our nature, ou
 
 ## God bless you
 
-God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

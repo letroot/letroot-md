@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 9)
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to Pleros Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship hour, status before God. We've already seen that in the new life we have in Christ, our status is arguably the primary reality we ought to be concerned with, the primary reality we ought to come in contact with before we talk about other realities like our character, our supernatural abilities, our external realities like healing, preservation, and favor. Before ever we talk about those things, the first thing that ought to hit us when we say we have a new life in Christ or we are in God's purpose, which is sonship, is we are children of God who cry Abba Father.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship hour, status before God. We've already seen that in the new life we have in Christ, our status is arguably the primary reality we ought to be concerned with, the primary reality we ought to come in contact with before we talk about other realities like our character, our supernatural abilities, our external realities like healing, preservation, and favor. Before ever we talk about those things, the first thing that ought to hit us when we say we have a new life in Christ or we are in God's purpose, which is sonship, is we are children of God who cry Abba Father.
 
 That our status has changed. We are now children of God. And to have an appreciation of our status today before God, we need to first understand our status first as creatures, then our status under sin. We saw that from Romans chapter 1. Our status as creatures to God being creator ought to leave us in awe of him, to glorify him with awe and awe of the creator of the world.
 
@@ -116,9 +116,9 @@ So, he's going to change where you think of as the place of worship. The place o
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next journey. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next journey.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-&gt;&gt; To learn more of God's word, visit plerose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. While still on our website, don't forget to join the Plerose community channel on WhatsApp and follow us on all our social media handles at plerose_org.
+To learn more of God's word, visit Pleros.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. While still on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at plerose_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

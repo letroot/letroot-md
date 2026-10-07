@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 27)
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We are continuing our study on our supernatural nature in Christ, and we are getting particularly into the subject of tongues, the phenomenon of speaking with tongues. But quickly, we would establish the things we have seen. We have seen that the supernatural is part of the reality of the newness of life.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We are continuing our study on our supernatural nature in Christ, and we are getting particularly into the subject of tongues, the phenomenon of speaking with tongues. But quickly, we would establish the things we have seen. We have seen that the supernatural is part of the reality of the newness of life.
 
 We have also seen that the Lord said we would be able to do supernatural and miraculous works like he did and even greater. The reason he told us we would be able to do this is because of the spirit. And therefore, we studied the interaction between the spirit and himself through the course of his incarnation. And what we notice is that there was an interaction between the Lord and the spirit at his conception, at his baptism by John, in his ministry, in the instance of his delegation of the spirit or his authority to his disciples. And finally, we saw the spirit in his teaching. And what he taught us on the spirit is that we who believe in him would be able to walk in supernatural or trans revelation and power by the spirit.
 
@@ -124,7 +124,7 @@ Why is it the most common outward manifestation that happens? But, just to concl
 
 ## All right, thank you for fulfilling God's purpose and see you on...
 
-All right, thank you for fulfilling God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. &gt;&gt; While still on our website, don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
+All right, thank you for fulfilling God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it.  While still on our website, don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in His purpose
 

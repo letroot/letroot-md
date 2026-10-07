@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 18)
 
-Welcome to Plural &gt;&gt; Grace Podcast. You are about to be blessed by the teaching ministry of Pastor Achieng. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Achieng. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plural Grace Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plural Grace Podcast. This is your daily download of God's word, transforming you to fulfill God's purpose for your life. We're looking at our supernatural nature in Christ. We're seeing that is one of the realities of the newness of life and just like every other reality of the newness of life, it is enabled by the spirit. We particularly have a good understanding of our supernatural nature in Christ when the Lord Jesus began to speak of his giving of the spirit in the book of John.
+Welcome back to the Pleros podcast. This is your daily download of God's word, transforming you to fulfill God's purpose for your life. We're looking at our supernatural nature in Christ. We're seeing that is one of the realities of the newness of life and just like every other reality of the newness of life, it is enabled by the spirit. We particularly have a good understanding of our supernatural nature in Christ when the Lord Jesus began to speak of his giving of the spirit in the book of John.
 
 Starting in John 14 especially. And he starts out by talking about the fact that they ought to believe on him not only because of his message, his person, but also because of his miraculous works. Then he goes further to say that those miraculous works he does, we would also be able to do and greater because he goes to the Father. And what happens when he goes to the Father? He gives us the spirit to be in us.
 
@@ -96,7 +96,7 @@ So, we can take it that after this entire episode, even though Matthew just reco
 
 ## Let's see how Mark records that
 
-Let's see how Mark records that. Mark 16, the order might differ because we'll see John's order differs from what we are seeing here, but the point remains in um Mark 16 and verse 14, we understand that well in critical text, the inclusion of this is debatable but I mean, as some history so and is valuable &gt;&gt; [snorts] &gt;&gt; and in agreement with other text. So, we could read John's Mark 16 and verse 14. Later he appeared to the 11 as they sat at the table and he rebuked their unbelief and hardness of heart because they did not believe those who had seen him after he was risen from the dead.
+Let's see how Mark records that. Mark 16, the order might differ because we'll see John's order differs from what we are seeing here, but the point remains in um Mark 16 and verse 14, we understand that well in critical text, the inclusion of this is debatable but I mean, as some history so and is valuable  [snorts]  and in agreement with other text. So, we could read John's Mark 16 and verse 14. Later he appeared to the 11 as they sat at the table and he rebuked their unbelief and hardness of heart because they did not believe those who had seen him after he was risen from the dead.
 
 ## So, we could take here that he's correcting them to bring them...
 
@@ -140,7 +140,7 @@ So, there's a second reception of the spirit, clearly spoken of in scripture. We
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose, and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose, and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
 To learn more of God's work, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 

@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 22)
 
-Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill your God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ, our supernatural nature in Christ. We've seen that our our supernatural nature is part of the realities of the new life we have in Christ. We've seen all the realities such as healing, preservation, favor. We saw our righteous nature and our love nature.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill your God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ, our supernatural nature in Christ. We've seen that our our supernatural nature is part of the realities of the new life we have in Christ. We've seen all the realities such as healing, preservation, favor. We saw our righteous nature and our love nature.
 
 ## Now, present what we saw about all the different realities of the...
 
@@ -50,7 +50,7 @@ Titus 3 for example 5 to 6 will say God has poured out the spirit abundantly on 
 
 ## Luke 24:49 will say, "I will send the promise of my Father...
 
-Luke 24:49 will say, "I will send the promise of my Father upon you." So, there's that interchangeable use we can see, even though more expressly the Lord Jesus is the direct giver of the Spirit. Now, &gt;&gt; [snorts] &gt;&gt; having said that, we began to ask the question, when he sends the Spirit, what You know, what happens? How do we receive the Spirit? And when we speak of how do we receive the Spirit, do we notice there's more than one reception of the Spirit?
+Luke 24:49 will say, "I will send the promise of my Father upon you." So, there's that interchangeable use we can see, even though more expressly the Lord Jesus is the direct giver of the Spirit. Now,  [snorts]  having said that, we began to ask the question, when he sends the Spirit, what You know, what happens? How do we receive the Spirit? And when we speak of how do we receive the Spirit, do we notice there's more than one reception of the Spirit?
 
 ## Now, clearly we have settled that we receive the Spirit by salvific...
 
@@ -136,7 +136,7 @@ We'll build on that in the next one, and that's going to lead us into our work i
 
 ## Fulfill God's purpose, and see you on the next one
 
-Fulfill God's purpose, and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God's his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
+Fulfill God's purpose, and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God's his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

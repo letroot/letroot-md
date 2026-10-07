@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 26)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plus Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plus Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've already made certain conclusions in this teaching. One is that the supernatural nature is one of the realities we have in newness of life.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've already made certain conclusions in this teaching. One is that the supernatural nature is one of the realities we have in newness of life.
 
 Another is that the Lord Jesus has given the spirit following the work he did in redemption and we are to receive the spirit. And we saw that there are two receptions of the spirit. First is the internal regenerative reception of the spirit where we drink of the spirit and it regenerates us. And this happens by at the instance of faith in Christ. Once we believe the gospel, the spirit comes to reside on the inside of us in a regenerative way, washing us, cleansing us, sanctifying us, justifying us and baptizing us into the body of Christ.
 
@@ -86,7 +86,7 @@ So even when they have seen the truth they need to win off it. And so they need 
 
 We teach the word there's knowledge on their hearts. They are firm with their mouths and then they emboldened and steed to walk in that which they have received to have the outward manifestation. And now the question what happens when we receive the bapt of the Holy Ghost is it tongues? We've already established that we must be careful if we say the baptism of the Holy Ghost must be accompanied with tongues and there cannot be the baptism of the Holy Ghost without tongues. The reason is we will see signs of the baptism of the Holy Ghost or a similitude of the baptism of the Holy Ghost prior to what the Lord has done where people were filled with the Holy Ghost where we see this external empowering work of the spirit going on and there wasn't tongues available at all.
 
-This will take us to question of what is tongues itself? What happens at the baptism of the Holy Ghost? Why then the tongues come into the picture? All this and more we're going to answer in the next for ourselves by faith and the outward manifestation follows all the details of that what the outward manifestations are what they are not etc we look at in subsequent episodes for now thank you God bless you fulfill God's purpose and see you on the next one &gt;&gt; we trust you are blessed by today's episode do stay in faith about all you've heard to walk in it to learn more of God's word visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+This will take us to question of what is tongues itself? What happens at the baptism of the Holy Ghost? Why then the tongues come into the picture? All this and more we're going to answer in the next for ourselves by faith and the outward manifestation follows all the details of that what the outward manifestations are what they are not etc we look at in subsequent episodes for now thank you God bless you fulfill God's purpose and see you on the next one  we trust you are blessed by today's episode do stay in faith about all you've heard to walk in it to learn more of God's word visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

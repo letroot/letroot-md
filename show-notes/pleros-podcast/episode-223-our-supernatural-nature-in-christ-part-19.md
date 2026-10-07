@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 19)
 
-Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue in this episode our study on our supernatural nature in Christ. We have identified that one of the realities of the new life we have in Christ is our supernatural nature. And that's because every reality of the new life is powered by the spirit.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue in this episode our study on our supernatural nature in Christ. We have identified that one of the realities of the new life we have in Christ is our supernatural nature. And that's because every reality of the new life is powered by the spirit.
 
 And the Lord Jesus pointed out to us in John 14 that when he gives the spirit, one of the things that would happen is we who believe in him will be able to do supernatural or miraculous works. And if we carefully study that text, we see that the people he was speaking to were already doing supernatural or miraculous works. But now he's saying that on account of the spirit that he would send and that would be in them, they'll be able to do supernatural or miraculous works.
 
@@ -48,7 +48,7 @@ Now, one text or two texts, John 14 and 16 and then 26 tell us that the Father s
 
 ## So, with all of those details in mind, our question has been,...
 
-So, with all of those details in mind, our question has been, when the Lord pours out his spirit, when the Father pours out the spirit, when they give us the spirits, what does the reception of the spirit look like? What exactly does the reception of the spirit like? Do we then say, "Oh, now the spirit has been poured out. God, please let us receive the spirit." How does the How How does the reception pan out? And what we notice is there are There is more than one reception of the spirit when we run through scripture. The very first contact we're going to see with the redemption of the spirit is not us requesting the spirit, it's rather &gt;&gt; [snorts] &gt;&gt; us receiving on account of our faith in redemption.
+So, with all of those details in mind, our question has been, when the Lord pours out his spirit, when the Father pours out the spirit, when they give us the spirits, what does the reception of the spirit look like? What exactly does the reception of the spirit like? Do we then say, "Oh, now the spirit has been poured out. God, please let us receive the spirit." How does the How How does the reception pan out? And what we notice is there are There is more than one reception of the spirit when we run through scripture. The very first contact we're going to see with the redemption of the spirit is not us requesting the spirit, it's rather  [snorts]  us receiving on account of our faith in redemption.
 
 ## So, when we believe in the work of redemption Christ has done,...
 
@@ -122,9 +122,9 @@ All right, on that note, we wrap it up. Thank you. God bless you. We continue in
 
 ## Fulfill God's purpose
 
-Fulfill God's purpose. See you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. &gt;&gt; To learn more of God's word, visit pleroma.org.
+Fulfill God's purpose. See you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.  To learn more of God's word, visit pleroma.org.
 
-You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles &gt;&gt; at pleroma_org.
+You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles  at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

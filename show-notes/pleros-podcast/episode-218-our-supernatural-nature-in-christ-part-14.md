@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 14)
 
-Welcome to Plural Grace Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plural Grace Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plural Grace Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We continue our study on our supernatural nature in Christ. In this episode, quickly recall that we have established some things. For example, the newness of life is powered by the spirit of God.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We continue our study on our supernatural nature in Christ. In this episode, quickly recall that we have established some things. For example, the newness of life is powered by the spirit of God.
 
 All the realities there are powered by the spirit. Um [snorts] healing is powered by the spirit, preservation powered by the spirit, favor powered by the spirit, righteousness and love as well. And we said that same spirit is what accounts for our supernatural nature. And our understanding of the new creation, ourselves as having the supernatural nature, can best be studied starting with the text John chapter 14.
 
@@ -110,9 +110,9 @@ All right, I'm going to wrap it up here because of our time, but let me just wra
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, &gt;&gt; God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at pleroma_org.
+To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel,  God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

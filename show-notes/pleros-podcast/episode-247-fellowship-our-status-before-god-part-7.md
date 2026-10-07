@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 7)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Blros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Blros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are continuing our study on fellowship our status before God. We've seen that in the newness of life or in God's purpose. There are different realities we have.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are continuing our study on fellowship our status before God. We've seen that in the newness of life or in God's purpose. There are different realities we have.
 
 We have our status. We have our character abilities altogether. We have a new nature in Christ. But we said that of all these realities, uh, status is the first implication that ought to dawn on us relative to the new life in Christ. Like Paul says in Romans chapter 8 and in verse 15, he said, you have not received the spirit of bondage, you're going to fear, but the spirit of adoption whereby you cry aba father.
 
@@ -104,9 +104,9 @@ Do we have access somewhere up? Do we have access somewhere where? Those and mor
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

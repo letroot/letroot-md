@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 14)
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've already established some very important details. We've seen Acts salvation or upon entering into the newness of life or entering into God's purpose, the first reality that ought to dawn on us is the reality of our status, especially our status before God.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've already established some very important details. We've seen Acts salvation or upon entering into the newness of life or entering into God's purpose, the first reality that ought to dawn on us is the reality of our status, especially our status before God.
 
 The fact that we are now children of God, we cry Abba Father. We have been brought into fellowship with him ontologically and relationally. It ought to be the first thing that dawns on us. In that we now realize, "Oh, in this beautiful reality that part of God's family, he has given me this righteous nature, this love nature, this supernatural nature. I can walk in all these external realities of healing, preservation, favor, etc." Well, that's the first thing that ought to dawn on us.
 
@@ -130,7 +130,7 @@ By redemption, we can now come to take our place in that house of God. And so wh
 
 ## God bless you for fulfilling God's purpose and see you on the...
 
-God bless you for fulfilling God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit plerose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plerose community channel on WhatsApp. And follow us on all our social media handles at plerose_org.
+God bless you for fulfilling God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit Pleros.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp. And follow us on all our social media handles at plerose_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

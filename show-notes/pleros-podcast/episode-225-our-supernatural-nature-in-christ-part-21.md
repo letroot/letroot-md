@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 21)
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros Podcast. This is your daily dose of God's word transform you so you can fulfill God's purpose for your life. We continue our study on our supernatural nature in Christ. In this episode, we are moving further from things we've already seen. First, we have settled that our supernatural nature is one of the realities of the new life we have in Christ.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transform you so you can fulfill God's purpose for your life. We continue our study on our supernatural nature in Christ. In this episode, we are moving further from things we've already seen. First, we have settled that our supernatural nature is one of the realities of the new life we have in Christ.
 
 And we know that all the realities of the new life are powered by the spirits. The Lord Jesus told us in John 14 that when he sends the spirits, we'll be able to do miraculous and supernatural works, not just in a delegated sense, but because the spirits will be in us, implying that we're going to have a supernatural nature from which we can now do supernatural works. We first had to see the spirit in the life of the Lord Jesus because he said the works he does will do also and greater works. And what we can notice about the spirit in the life of the Lord Jesus is we saw the spirit at his birth, at his baptism, in his ministry, in his delegation to his disciples, and also in his teaching.
 
@@ -104,7 +104,7 @@ Those two things must be in mind when we think of the empowerment of the spirit,
 
 ## God bless you
 
-God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. &gt;&gt; To learn more of God's word, visit pleroma.org.
+God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.  To learn more of God's word, visit pleroma.org.
 
 You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles at pleroma_org.
 

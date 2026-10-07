@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 28)
 
-Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's for your life. We continue our study on our supernatural nature in Christ and we are looking at what happens when we receive the baptism of the Holy Ghost or the external empowering reception of the spirit. What happens at the instance of the external empowering reception of the spirit.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's for your life. We continue our study on our supernatural nature in Christ and we are looking at what happens when we receive the baptism of the Holy Ghost or the external empowering reception of the spirit. What happens at the instance of the external empowering reception of the spirit.
 
 ## So, we're looking at that with respect to our study on our...
 
@@ -120,7 +120,7 @@ It is God-facing and personally beneficial. You will see him go on in verse 4 to
 
 ## For now, thank you
 
-For now, thank you. God bless you for fulfilling God's purpose, and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
+For now, thank you. God bless you for fulfilling God's purpose, and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in His purpose
 

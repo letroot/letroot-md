@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 1)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome to the Plleos podcast
+## Welcome to Pleros podcast
 
-&gt;&gt; Welcome to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we are beginning a new study on the podcast and that is fellowship. Fellowship, our status before God. That's what we're calling it, fellowship, our status before God.
+Welcome to Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we are beginning a new study on the podcast and that is fellowship. Fellowship, our status before God. That's what we're calling it, fellowship, our status before God.
 
 And this is part of our study on the newness of life. If you may recall um when we started our study on theess of life we we saw that there are three broad categories of realities we have in the new life. There's the status we have um then there are the character or there is the character that we have and then lastly there are the abilities that we have as new creations as those who are in the newness of life. Again there is the status that we have. There is the character that we have or there is the nature as well we could say that we have and lastly there are these abilities that we have.
 
@@ -82,7 +82,7 @@ We'll see you on the next one. Thank you. God bless you.
 
 ## Fulfill God's purpose and see you there
 
-Fulfill God's purpose and see you there. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+Fulfill God's purpose and see you there.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

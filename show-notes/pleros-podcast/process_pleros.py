@@ -1,5 +1,15 @@
 import re
 
+
+def normalize_pleros(text):
+    """Normalize recurring show-name and transcript cue artifacts."""
+    variants = r"Plar Rose|Plaro\'s|Pluros|Plurus|Plurose|Pllearose|Plerose|Plleos|Plle|Pl Rose|Blros|Blues|Blush|Plus|Paris|PlaySt|Peruse|Polaroa\'s|Plural Zone|Plural Grace|Plural Rose|Glorious|Flourish"
+    text = text.replace('&gt;&gt;', '').replace('>>', '')
+    text = re.sub(rf'\b(?:{variants})\b', 'Pleros', text, flags=re.IGNORECASE)
+    text = re.sub(r'Welcome to [^.?!\n]*?podcast', 'Welcome to Pleros podcast', text, flags=re.IGNORECASE)
+    text = re.sub(r'Welcome back to [^.?!\n]*(?:podcast|PlaySt)', 'Welcome back to the Pleros podcast', text, flags=re.IGNORECASE)
+    return text
+
 # Episode data: (episode_num, title, video_id, date)
 episodes = [
     (132, "Preservation in the Newness of Life (Part 4)", "fujZakdSLPM", "2026-05-14"),
@@ -21,6 +31,7 @@ def clean_transcript(text):
     text = text.replace('Pastor Aking', 'Pastor Akim')
     text = text.replace('Pleroma', 'Pleros')
     text = re.sub(r'\s+', ' ', text)
+    text = normalize_pleros(text)
     return text.strip()
 
 def remove_standard_segments(text):

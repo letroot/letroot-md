@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 5)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plleos podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. Fellowship, our status before God. And we've already seen that when we speak of the newness of life, which is the reality that we enter into upon salvation, upon our entrance into God's purpose, the primary reality in the new life is that we are children of God.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. Fellowship, our status before God. And we've already seen that when we speak of the newness of life, which is the reality that we enter into upon salvation, upon our entrance into God's purpose, the primary reality in the new life is that we are children of God.
 
 It's the same thing when we speak of God's purpose which is sunship. The first truth is that we are children of God. This is what God always wanted. He wanted a family of his own that would fellowship with him that would walk in his character and nature that would carry out his assignment. And when we look at that reality of being children of God, we can be concerned more with our character as children of God, our nature as children of God, our abilities as children of God, and miss out on some very fundamental details that ought to affect our hearts, our minds about the fact that we are children of God.
 
@@ -88,7 +88,7 @@ Thereby we have in common with the father and the son. And this affects how we v
 
 For now thank you. God bless you. Fulfill God's purpose and see you on the next one. We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_HOG.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_HOG.
 
 ## For now, stay blessed and keep walking in his purpose
 

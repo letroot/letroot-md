@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 15)
 
-Welcome to Plural Rose Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to Plural Rose Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to Plural Rose Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study our supernatural nature in Christ. We've already established that all the realities of the newness of life are enabled and powered by the spirit. And that includes both the external realities of the newness of life and the internal ones. And one of the things we'll see mentioned about the spirit in the teachings of the Lord Jesus is a change that he's saying will occur when he gives the spirit to be in us after he fulfills that work of redemption.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study our supernatural nature in Christ. We've already established that all the realities of the newness of life are enabled and powered by the spirit. And that includes both the external realities of the newness of life and the internal ones. And one of the things we'll see mentioned about the spirit in the teachings of the Lord Jesus is a change that he's saying will occur when he gives the spirit to be in us after he fulfills that work of redemption.
 
 ## We can see this from John chapter 14
 
@@ -116,9 +116,9 @@ If you believe on Jesus, the spirit of God comes into you, you have drunk of the
 
 ## So, we're going to wrap it there for now
 
-So, we're going to wrap it there for now. God bless you. Thank you for fulfilling God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+So, we're going to wrap it there for now. God bless you. Thank you for fulfilling God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-&gt;&gt; To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
+To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp, and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

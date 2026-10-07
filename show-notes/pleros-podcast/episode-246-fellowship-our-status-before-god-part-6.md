@@ -10,9 +10,9 @@ type: solo
 
 Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship our status before God. Fellowship our status We've seen that the newness of life, which is the life that we enter into upon faith in Christ, you know, um has several realities that pertain to it.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship our status before God. Fellowship our status We've seen that the newness of life, which is the life that we enter into upon faith in Christ, you know, um has several realities that pertain to it.
 
 ## So, we have seen realities like healing, preservation, favor in the newness...
 
@@ -164,7 +164,7 @@ So we have fellowship with God in an ontological sense. That means in a sense of
 
 ## For now, thank you
 
-For now, thank you. God bless you for fulfilling God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp and follow us on all our social media handles at pleroma_org.
+For now, thank you. God bless you for fulfilling God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp and follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in His purpose
 

@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 13)
 
-Welcome to Plural Zone Podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor A. Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor A. Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plural Zone Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plural Zone Podcast. This is your daily dose of God's word transforming you to fulfill your purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've been looking at the different realities that we have in the newness of life. And we've already seen some external realities that we have in the newness of life like healing, preservation, and favor. And since then, our focus has been on the internal realities that we have in the newness of life. For instance, as we've looked at our righteous nature in Christ, our love nature in Christ, and we are proceeding or we have since gone on to see our supernatural nature in Christ.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill your purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We've been looking at the different realities that we have in the newness of life. And we've already seen some external realities that we have in the newness of life like healing, preservation, and favor. And since then, our focus has been on the internal realities that we have in the newness of life. For instance, as we've looked at our righteous nature in Christ, our love nature in Christ, and we are proceeding or we have since gone on to see our supernatural nature in Christ.
 
 ## Now, one thing we have established is that every reality of the...
 
@@ -32,7 +32,7 @@ So, what exactly will happen when he goes to the Father? We have seen several te
 
 So, when he gives us the Spirit, we'll be able to do the works he does and greater. Then we see John 16 and verse 7 as well. It says, "It's to your advantage that I go away. If I do not go away, I will not send the Helper or the Comforter to you." So, he's going to the Father is to the end that he gives us the Spirit. And this is so important.
 
-Well, when he gives us the Spirit, the Spirit that enables new life, you know. &gt;&gt; [snorts] &gt;&gt; Well, as Romans 7:6 would say, we should serve in the newness of the Spirit. When he gives us the Spirit, we'll be able to function in the supernatural.
+Well, when he gives us the Spirit, the Spirit that enables new life, you know.  [snorts]  Well, as Romans 7:6 would say, we should serve in the newness of the Spirit. When he gives us the Spirit, we'll be able to function in the supernatural.
 
 ## We'll be able to do supernatural and miraculous works like him
 
@@ -116,7 +116,7 @@ So, he has this rule as the giver of the spirit. And this is a rule that is reco
 
 ## So, when the spirit is given, we are then supposed to receive...
 
-So, when the spirit is given, we are then supposed to receive the spirit. &gt;&gt; [clears throat] &gt;&gt; But, we are going to notice that there a number of receptions of the spirit and that not every receiving the spirit is the same, but there is one giving of the spirit. Let's see some other texts that we'll talk about the giving of the spirit. Acts chapter 2 33. Then a very important one, Titus chapter 1 and then we'll wrap it up for now on this episode.
+So, when the spirit is given, we are then supposed to receive the spirit.  [clears throat]  But, we are going to notice that there a number of receptions of the spirit and that not every receiving the spirit is the same, but there is one giving of the spirit. Let's see some other texts that we'll talk about the giving of the spirit. Acts chapter 2 33. Then a very important one, Titus chapter 1 and then we'll wrap it up for now on this episode.
 
 ## In Acts chapter 2 and in verse 33 it says, "Therefore being...
 
@@ -130,9 +130,9 @@ But then, the receiving of the spirit, what is that about? The spirit they pour 
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose, and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose, and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-&gt;&gt; To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles &gt;&gt; at pleroma_org.
+To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, His purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles  at pleroma_org.
 
 ## For now, stay blessed and keep walking in His purpose
 

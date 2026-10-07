@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 31)
 
-Welcome to Pleros podcast. You are about to be blessed &gt;&gt; by the teaching ministry of Pastor It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed  by the teaching ministry of Pastor It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We have established that the supernatural nature is one of the realities of the new life. And by the supernatural nature, we're speaking of the ability we have as new creations, as believers in Christ Jesus, to do miraculous and supernatural works, which the Lord Jesus told us includes supernatural or trans-supernatural revelation and supernatural power.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. We have established that the supernatural nature is one of the realities of the new life. And by the supernatural nature, we're speaking of the ability we have as new creations, as believers in Christ Jesus, to do miraculous and supernatural works, which the Lord Jesus told us includes supernatural or trans-supernatural revelation and supernatural power.
 
 We have established this from John 14, where the Lord mentioned that we should believe in him not just for his message or his person, but also for his works. And he was referring to miraculous works. Then he goes on in the next verse, verse 12, to say, "Those of us who believe on him, the works he does, we will do also, and greater works than these shall we do, because he goes to the Father and sends the Spirit to us." So, when he goes to the Father and he sends the Spirit to us, we'll be able to do the works he does and greater works. Having established that we um uh saw how it was that the Lord himself did supernatural works because of his interaction with the Spirit first at his conception, then at his baptism, then at then in his ministry. Then we saw that he delegated the Spirit and his authority to his disciples.
 
@@ -70,7 +70,7 @@ I want to make a point on what we take initiative on because I recall using the 
 
 ## So, I'm going to call that word what happens when the spirit...
 
-So, I'm going to call that word what happens when the spirit is upon a man. I'll call it impulse. &gt;&gt; [snorts] &gt;&gt; Impulse. There's an impulse to do, speak, act, you know, to see, to receive something that is upon a person at the instance of the this external empowering work of the spirit when a man is filled with the Holy Ghost, intoxicated with the Holy Ghost. There's an impulse to do something or to receive something or to um say something that the man has at that moment. This is very, very important.
+So, I'm going to call that word what happens when the spirit is upon a man. I'll call it impulse.  [snorts]  Impulse. There's an impulse to do, speak, act, you know, to see, to receive something that is upon a person at the instance of the this external empowering work of the spirit when a man is filled with the Holy Ghost, intoxicated with the Holy Ghost. There's an impulse to do something or to receive something or to um say something that the man has at that moment. This is very, very important.
 
 ## So, the flow of the baptism of the Holy Ghost, you receive...
 
@@ -122,7 +122,7 @@ Now, the next thing we're going back to in the next episode is again to conclusi
 
 ## So, on that note, brothers and sisters, thank you fulfill your gospel...
 
-So, on that note, brothers and sisters, thank you fulfill your gospel calls and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles at pleroma_org.
+So, on that note, brothers and sisters, thank you fulfill your gospel calls and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 11)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to Plus Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to Plus Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've seen that in the newness of life and in God's purpose, the first reality that we have is the reality of sharing God's life or being God's child. The fact that we have his life, the fact that we are his children is the first truth of his purpose is the first reality of the new life.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've seen that in the newness of life and in God's purpose, the first reality that we have is the reality of sharing God's life or being God's child. The fact that we have his life, the fact that we are his children is the first truth of his purpose is the first reality of the new life.
 
 And the implication it had to have on us is with respect to our status. Status before God, status over darkness etc. And we see this from Romans 8 and verse 5 where Paul said, "We have not received the spirit of bondage again to fear but the spirit of sunship whereby we cry aba father." Then verse 16 says, "The spirit himself bears witness with our spirit that we are the children of God." So when we receive the spirit of sunship, we cry aba father. And the first testimony of sunship itself is that we are children of God. We cry abba father.
 
@@ -96,9 +96,9 @@ In 1 Peter chapter 2 and in verse 4 it says coming to Jesus as to a living stone
 
 ## Thank you
 
-Thank you. God bless you. Fulfill God's purpose and I'll see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+Thank you. God bless you. Fulfill God's purpose and I'll see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

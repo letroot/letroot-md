@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 17)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the PlaySt
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the PlaySt. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship, our status before God. Fellowship, our status before God. We've seen that in God's purpose or in the newness of life, one of the first realities that ought to dawn on us is the fact that we are children of God, our status as children of God, recognizing God as our father.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship, our status before God. Fellowship, our status before God. We've seen that in God's purpose or in the newness of life, one of the first realities that ought to dawn on us is the fact that we are children of God, our status as children of God, recognizing God as our father.
 
 And to appreciate that status that we have today, it begins with understanding the status we had before God as creatures of him. And then the status we had before God whilst we were under sin. And we studied that from Romans 1 as well as Romans 3. All of those details. With that clear, we have moved on to say that now that redemption has been wrought and has changed our status before God.
 
@@ -96,9 +96,9 @@ Now we can fellowship with God relationally from the understanding that we have 
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about how you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about how you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Pllearose_hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Pllearose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

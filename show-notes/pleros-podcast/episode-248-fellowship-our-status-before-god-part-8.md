@@ -10,9 +10,9 @@ type: solo
 
 Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship, our status before God. Fellowship, our status before God. We've seen that in God's purpose or in the newness of life, the primary reality we ought to be concerned with is fellowship or with our status.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on fellowship, our status before God. Fellowship, our status before God. We've seen that in God's purpose or in the newness of life, the primary reality we ought to be concerned with is fellowship or with our status.
 
 And our status especially before God. Sometimes we get concerned with other realities for different reasons. Some of these realities may be relate with more pressing issues of our life. Like if someone is concerned with healing, this is a genuinely pressing issue even for one who has not believed the gospel. And it's understandable why those kind of those realities in God's purpose, those realities in the new life would sometimes catch the attention of people more, would be of a greater concern to people than maybe fellowship, than our status before God.
 
@@ -132,9 +132,9 @@ So, where do we have access to? How do we relate with him? Where is the building
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you in the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you in the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit therose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plural Community Channel on WhatsApp. And follow &gt;&gt; us on all our social media handles at Plural _hub.
+To learn more of God's word, visit therose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plural Community Channel on WhatsApp. And follow  us on all our social media handles at Plural _hub.
 
 ## For now, stay blessed and keep walking in his purpose
 

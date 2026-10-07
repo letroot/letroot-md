@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 3)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Peruse podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Peruse podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. Fellowship, our status before God.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. Fellowship, our status before God.
 
 ## Now, you recall that from the getgo on the podcast, one of...
 
@@ -94,7 +94,7 @@ And that's why we need redemption. And 21 then tells us that now the righteousne
 
 ## For now thank you God bless you fulfill God's purpose and see...
 
-For now thank you God bless you fulfill God's purpose and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp, and follow us on all our social media handles at Plurose_Hog.
+For now thank you God bless you fulfill God's purpose and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at Plurose_Hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

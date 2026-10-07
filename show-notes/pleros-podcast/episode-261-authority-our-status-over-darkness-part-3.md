@@ -8,11 +8,11 @@ type: solo
 
 # Authority: Our Status Over Darkness (Part 3)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pluros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are continuing our study on authority. Our status over darkness. Authority.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We are continuing our study on authority. Our status over darkness. Authority.
 
 Our status over darkness. We've established that when we enter into the newness of life coming from the oldness of death, we can describe where we are coming from as the authority of darkness. So when Paul was speaking about our entrance into the newness of life, he was doing so on the background of the things he had said about the reign of sin and death. So in Romans 5 and verse 12, you will see him talk about the reign of sin and death. When he says, "Through one man sin entered into the world, and death by sin, and thus death spread upon all men because all have sinned. For until the law sin was in the world, the sin was not imputed where there was no Lord. Nevertheless, death reigned from Adam to Moses, even over those who had not sinned according to the likeness of Adam's transgression, who is the type of reign to come.
 
@@ -124,9 +124,9 @@ Now we have freedom release. We know that death, darkness no longer has a right.
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit clarose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
+To learn more of God's word, visit clarose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

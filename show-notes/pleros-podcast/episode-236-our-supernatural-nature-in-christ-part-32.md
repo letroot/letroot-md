@@ -8,7 +8,7 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 32)
 
-Welcome back to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. Our supernatural nature in Christ. We've established that the supernatural nature is one of the realities we have in the new life in Christ.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our study on our supernatural nature in Christ. Our supernatural nature in Christ. We've established that the supernatural nature is one of the realities we have in the new life in Christ.
 
 ## And we have seen how the Lord told us that we can...
 

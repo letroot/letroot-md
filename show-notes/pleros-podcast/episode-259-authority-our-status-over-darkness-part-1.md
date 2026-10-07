@@ -8,11 +8,11 @@ type: solo
 
 # Authority: Our Status Over Darkness (Part 1)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to Glorious Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to Glorious Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In today's episode, we begin a new study. We're going to be looking at authority. Our status over darkness.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In today's episode, we begin a new study. We're going to be looking at authority. Our status over darkness.
 
 Authority. Our status over darkness. Now when we speak of the newness of life which we have entered into via the work of redemption, it already implies that there is that which was old and there's the relationship or status that we had with that which was old and we now have a new relationship and status with that which was old in the light of the new.
 
@@ -88,7 +88,7 @@ So we have a lot to unpack about darkness. the personalities that are under dark
 
 ## God bless you
 
-God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp, and follow us on all our social media handles at Plurose_hog.
+God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

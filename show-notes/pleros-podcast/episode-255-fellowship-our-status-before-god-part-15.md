@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 15)
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught to be. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Pleros Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Pleros Podcast. This is your daily dose of God's word, transforming you to fulfill your God's purpose for your life. We continue our study on fellowship our status before God. We already seen that in God's purpose or in the new life we have in Christ, our status as children of God is one of the first realities that ought to dawn on us. You could see this from Romans chapter 8 and verse 15 where Paul says that we received not the spirit of bondage again, but the spirit of adoption whereby we cry Abba Father.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill your God's purpose for your life. We continue our study on fellowship our status before God. We already seen that in God's purpose or in the new life we have in Christ, our status as children of God is one of the first realities that ought to dawn on us. You could see this from Romans chapter 8 and verse 15 where Paul says that we received not the spirit of bondage again, but the spirit of adoption whereby we cry Abba Father.
 
 ## So, when we receive the spirit of adoption, one of the immediate...
 
@@ -122,9 +122,9 @@ I know there will be questions about things like what happens when these things 
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-&gt;&gt; To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles at pleroma_org.
+To learn more of God's word, visit pleroma.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the pleroma community channel on WhatsApp. And follow us on all our social media handles at pleroma_org.
 
 ## For now, stay blessed and keep walking in his purpose
 

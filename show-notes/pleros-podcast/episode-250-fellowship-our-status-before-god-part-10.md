@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 10)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Blues podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Blues podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've seen already that in the newness of life or in God's purpose, the primary reality we ought to come in contact with is the fact that we are children of God. Is the fact that we have God's life and nature.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on fellowship, our status before God. We've seen already that in the newness of life or in God's purpose, the primary reality we ought to come in contact with is the fact that we are children of God. Is the fact that we have God's life and nature.
 
 And that fact ought to address the estimation that we have of oursel first before God. Then the estimation we have of ourselves with respect to darkness and evil and the devil and his cause. Then the estimation we have of oursel amongst men. So redemption does affect very significantly and even importantly our estimation the way that we see ourselves. And we're starting with our status before God.
 
@@ -98,7 +98,7 @@ So every believer makes up the home of God collectively. Individually, as we are
 
 For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. We trust you were blessed by today's episode. Do stay in faith about how you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

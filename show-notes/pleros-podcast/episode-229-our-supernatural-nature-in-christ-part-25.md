@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 25)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plleos podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plleos podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our teaching on our supernatural nature in Christ. We have already established that our supernatural nature is one of the realities that we have in the new life in Christ. We sought out the realities of the new life are enabled or sponsored by the spirit.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode, we continue our teaching on our supernatural nature in Christ. We have already established that our supernatural nature is one of the realities that we have in the new life in Christ. We sought out the realities of the new life are enabled or sponsored by the spirit.
 
 And one of those realities is the supernatural. This ability to do miraculous or supernatural works. The text that made this very clear to us is the words of the Lord Jesus in John chapter 14 where he mentioned that we should believe him not only for his message but because of the works he does. Then in verse 12 he says he that believes on me the works I do he will do also and greater works than the shall he do because I go unto my father. So very clearly we can do those of us who believe on him the works he does and greater and the reason is because he will send the spirit when he goes to the father.
 
@@ -88,9 +88,9 @@ Then what really is tongues? Is it human language or non-human language or both?
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp, and follow us on all our social media handles at Plurose_hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp, and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

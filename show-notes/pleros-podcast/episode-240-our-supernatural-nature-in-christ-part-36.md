@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 36)
 
-Welcome to Plaro's podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plurus podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plurus podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this particular episode, we'll conclude our study on our supernatural nature in Christ. We have been on this subject matter for a while. We've already established some truth.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this particular episode, we'll conclude our study on our supernatural nature in Christ. We have been on this subject matter for a while. We've already established some truth.
 
 We want to bring every bit of it to a close and then we'll direct you to other teachings that would help you in regards to your walk in the supernatural. And now the things that we've established in this study are pretty simple. One of it is that as a matter or legal truth, we have a supernatural nature in the new life in Christ.
 
@@ -106,9 +106,9 @@ You can check pleuse.org/ library I think for teachings on that. And then you kn
 
 ## So, thank you
 
-So, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+So, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pllearose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

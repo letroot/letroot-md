@@ -8,11 +8,11 @@ type: solo
 
 # Our Supernatural Nature in Christ (Part 12)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; All right, welcome back to the Pluros podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; All right, welcome back to the Pluros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're looking at our supernatural nature in Christ. We've already made some things clear. This study is part of our examination of the newness of life for us to grow to fulfill God's purpose.
+All right, Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're looking at our supernatural nature in Christ. We've already made some things clear. This study is part of our examination of the newness of life for us to grow to fulfill God's purpose.
 
 What we grow in is the new life we have in Christ. And we've seen the external realities of that life. We are presently looking at the internal realities of that life like our righteous nature, our love nature and now our supernatural nature. Um we have established that every reality of that life is powered by the spirit is why we see in Romans 6:4 the newness of life is mentioned and in Romans 7:6 the newness of the spirit is mentioned. So to show that that newness we have come into is by the spirit.
 
@@ -104,9 +104,9 @@ No longer just promising the Holy Spirit. I will send. I will send. Now he says,
 
 ## For now, thank you
 
-For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. &gt;&gt; We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
+For now, thank you. God bless you. Fulfill God's purpose and see you on the next one.  We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.h. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
+To learn more of God's word, visit pleose.h. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

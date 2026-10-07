@@ -10,7 +10,7 @@ type: solo
 
 ## Introduction to the Pleros Podcast
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're continuing our study on our supernatural nature in Christ and we have made some very important conclusions. Today we want to get to why then tongues, right? And we're doing that because having seen that the supernatural nature is one of the realities of the new life in Christ.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We're continuing our study on our supernatural nature in Christ and we have made some very important conclusions. Today we want to get to why then tongues, right? And we're doing that because having seen that the supernatural nature is one of the realities of the new life in Christ.
 
 ## Why Tongues?
 
@@ -86,4 +86,4 @@ Tongues is bringing to perfection, completion and fullness what God intended ori
 
 I'm also going to give a comment on how the baptism of the Holy Ghost happens in the next episode where we are going to see the role of the impulse of the spirit when we are in faith for the baptism of the Holy Ghost upon which we then take initiative. For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. We trust you are blessed by today's episode. Do stay in faith about all you've heard to walk in it. To learn more of God's word, visit pleose.h. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it.
 
-Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_hog. For now, stay blessed and keep walking in his purpose.
+Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_hog. For now, stay blessed and keep walking in his purpose.

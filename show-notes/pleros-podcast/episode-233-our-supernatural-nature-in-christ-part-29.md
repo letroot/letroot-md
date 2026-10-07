@@ -10,7 +10,7 @@ type: solo
 
 ## Introduction to the Pleros Podcast
 
-Welcome to Pleros Podcast. You are about to be blessed by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. Welcome back to Pleros Podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode we consider our study on our supernatural nature in Christ. We are particularly looking at the whole matter of tongues. How did we arrive at this new phenomenon called tongues? What was it all about in scripture? What are we meant to do with it?
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akin. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it. Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. In this episode we consider our study on our supernatural nature in Christ. We are particularly looking at the whole matter of tongues. How did we arrive at this new phenomenon called tongues? What was it all about in scripture? What are we meant to do with it?
 
 ## Reviewing Our Supernatural Nature in Christ
 

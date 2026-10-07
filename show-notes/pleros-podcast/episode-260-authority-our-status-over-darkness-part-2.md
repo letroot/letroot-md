@@ -8,11 +8,11 @@ type: solo
 
 # Authority: Our Status Over Darkness (Part 2)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Flourish Podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Flourish Podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on authority, our status over darkness.
+Welcome back to the Pleros podcast. This is your daily dose of God's word, transforming you to fulfill God's purpose for your life. In this episode, we continue our study on authority, our status over darkness.
 
 ## So, we just began this study from the last episode
 
@@ -102,7 +102,7 @@ So he has brought us out of darkness into light by fully paying the demands of d
 
 For now, thank you. God bless you. Fulfill God's purpose and see you on the next one. We trust you were blessed by today's episode. Do stay in faith about all you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_Hog.
 
 ## For now, stay blessed and keep walking in his purpose
 

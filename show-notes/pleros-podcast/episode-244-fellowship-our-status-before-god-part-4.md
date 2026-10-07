@@ -8,11 +8,11 @@ type: solo
 
 # Fellowship: Our Status Before God (Part 4)
 
-Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
+Welcome to Pleros podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
-## &gt;&gt; Welcome back to the Plle podcast
+## Welcome back to the Pleros podcast
 
-&gt;&gt; Welcome back to the Plle podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on on fellowship our status before God. Fellowship our status before God.
+Welcome back to the Pleros podcast. This is your daily dose of God's word transforming you to fulfill God's purpose for your life. We continue our study on on fellowship our status before God. Fellowship our status before God.
 
 ## What we have seen in our study is that whether we're looking...
 
@@ -88,9 +88,9 @@ It says, "Righteousness shall be imputed to us who believe in him who raised Jes
 
 He has made us right by nature. Therefore in in view of justice in from the lens of justice as well in the face of justice we are justified. And then relationally we have peace with God through our Lord Jesus Christ. Through whom we have access. You can start to see all of this is fellowship.
 
-um we have access by faith into this grace in which we stand and rejoice in the hope of the glory of God. This is so important and to take us to Ephesians 2 where the word access is spoken of as access to God by redemption and by the spirit and to lead us into a whole world of study where we are seeing what fellowship means ontologically, what fellowship means relationally because of what Christ has accomplished. So again now we are seeing our status has moved from the status we had as creation status we had under sin now to the status we have as new creations and we're going to open this more in the next episode when we see what happened in redemption ontologically what does it mean for fellowship what happened durically what does it mean for fellowship now what happens relationally and what does it mean for our fellowship with God today for now thank you God bless you fulfill God's purpose and see you on the next one. &gt;&gt; We trust you were blessed by today's episode. Do stay in faith about how you've heard to walk in it.
+um we have access by faith into this grace in which we stand and rejoice in the hope of the glory of God. This is so important and to take us to Ephesians 2 where the word access is spoken of as access to God by redemption and by the spirit and to lead us into a whole world of study where we are seeing what fellowship means ontologically, what fellowship means relationally because of what Christ has accomplished. So again now we are seeing our status has moved from the status we had as creation status we had under sin now to the status we have as new creations and we're going to open this more in the next episode when we see what happened in redemption ontologically what does it mean for fellowship what happened durically what does it mean for fellowship now what happens relationally and what does it mean for our fellowship with God today for now thank you God bless you fulfill God's purpose and see you on the next one.  We trust you were blessed by today's episode. Do stay in faith about how you've heard to walk in it.
 
-To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Plurose community channel on WhatsApp and follow us on all our social media handles at Plurose_HOG.
+To learn more of God's word, visit pleose.org. You will find answers to your questions on the gospel, God, his purpose, and how to fulfill it. Whilst on our website, don't forget to join the Pleros community channel on WhatsApp and follow us on all our social media handles at Plurose_HOG.
 
 ## For now, stay blessed and keep walking in his purpose
 
