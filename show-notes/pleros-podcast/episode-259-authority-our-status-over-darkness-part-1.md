@@ -1,12 +1,12 @@
 ---
-title: "Authority: Our Status Over Darkness"
+title: "Authority: Our Status Over Darkness (Part 1)"
 date: 2026-10-05
 tags: [podcast, pleros]
 url: "https://www.youtube.com/watch?v=jlmAu-6n24c"
 type: solo
 ---
 
-# Authority: Our Status Over Darkness
+# Authority: Our Status Over Darkness (Part 1)
 
 Welcome to Plar Rose podcast. You are about to be blessed by the teaching ministry of Pastor Akim. It is going to be an enlightening time in God's word, renewing your mind and transforming your life to fulfill God's purpose. We pray for you that you are established in all the truths of God's word taught today. Let's get right into it.
 
