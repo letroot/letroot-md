@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-06",
+  "updated_at": "2026-10-07",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1082,6 +1082,25 @@
         "mutual-benefit"
       ],
       "summary": "Effective founder-led sales diagnoses the customer's real problem before pitching or discounting, then explains value in the customer's own language and pursues only mutually beneficial deals."
+    },
+    {
+      "date": "2026-10-07",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/my-first-million/11-i-failed-22-times-then-i-built-a-2-5b-company.md"
+      ],
+      "source_folders": [
+        "show-notes/my-first-million"
+      ],
+      "concept_tags": [
+        "bad-art",
+        "low-stakes-experiments",
+        "founder-iteration",
+        "validate-before-building",
+        "customer-commitment",
+        "identity-separation"
+      ],
+      "summary": "Christina Cacioppo's path to Vanta illustrates how treating early ideas as low-stakes attempts makes it easier to test demand, learn, and continue searching without tying each result to personal worth."
     }
   ]
 }
