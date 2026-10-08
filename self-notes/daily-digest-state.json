@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-07",
+  "updated_at": "2026-10-08",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1101,6 +1101,30 @@
         "identity-separation"
       ],
       "summary": "Christina Cacioppo's path to Vanta illustrates how treating early ideas as low-stakes attempts makes it easier to test demand, learn, and continue searching without tying each result to personal worth."
+    },
+    {
+      "date": "2026-10-08",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-10-02.md",
+        "self-notes/daily-digest/2026-10-03.md",
+        "self-notes/daily-digest/2026-10-04.md",
+        "self-notes/daily-digest/2026-10-05.md",
+        "self-notes/daily-digest/2026-10-06.md",
+        "self-notes/daily-digest/2026-10-07.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-contact",
+        "core-customer-outcome",
+        "small-tests",
+        "decision-quality",
+        "sustainable-capacity",
+        "customer-empathy"
+      ],
+      "summary": "The six-day sequence converges on a durable operating loop: diagnose with evidence, protect the core customer outcome, run small tests, learn from uncertain results, sell through empathy, and preserve the capacity to continue."
     }
   ]
 }
