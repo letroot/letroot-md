@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-08",
+  "updated_at": "2026-10-09",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1125,6 +1125,25 @@
         "customer-empathy"
       ],
       "summary": "The six-day sequence converges on a durable operating loop: diagnose with evidence, protect the core customer outcome, run small tests, learn from uncertain results, sell through empathy, and preserve the capacity to continue."
+    },
+    {
+      "date": "2026-10-09",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/my-first-million/04-what-i-learned-building-a-300m-year-blue-collar-business.md"
+      ],
+      "source_folders": [
+        "show-notes/my-first-million"
+      ],
+      "concept_tags": [
+        "founder-self-awareness",
+        "delegate-weaknesses",
+        "role-design",
+        "complementary-strengths",
+        "operating-capacity",
+        "accountable-delegation"
+      ],
+      "summary": "A founder scales more reliably by noticing essential work they avoid or do poorly, then building capacity through process, automation, or complementary people while retaining accountability for results."
     }
   ]
 }
