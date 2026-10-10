@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-09",
+  "updated_at": "2026-10-10",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1144,6 +1144,25 @@
         "accountable-delegation"
       ],
       "summary": "A founder scales more reliably by noticing essential work they avoid or do poorly, then building capacity through process, automation, or complementary people while retaining accountability for results."
+    },
+    {
+      "date": "2026-10-10",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/colossus/1-invisible-companies.md"
+      ],
+      "source_folders": [
+        "show-notes/colossus"
+      ],
+      "concept_tags": [
+        "competitive-neglect",
+        "under-served-markets",
+        "boring-workflows",
+        "direct-customer-learning",
+        "fragmented-industries",
+        "status-blind-spots"
+      ],
+      "summary": "Some opportunities remain under-competed because founders and investors overlook fragmented, ordinary workflows; direct study of the people doing essential work can reveal narrow pains worth solving."
     }
   ]
 }
