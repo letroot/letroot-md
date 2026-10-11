@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-10",
+  "updated_at": "2026-10-11",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1163,6 +1163,25 @@
         "status-blind-spots"
       ],
       "summary": "Some opportunities remain under-competed because founders and investors overlook fragmented, ordinary workflows; direct study of the people doing essential work can reveal narrow pains worth solving."
+    },
+    {
+      "date": "2026-10-11",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/1-skin-in-the-game.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "risk-ownership",
+        "consequence-bearing",
+        "adviser-credibility",
+        "ethical-symmetry",
+        "customer-reality-checks",
+        "accountability"
+      ],
+      "summary": "Advice and expertise gain credibility when the adviser bears consequences for being wrong; founders should keep commitments, customer evidence, and downside responsibility connected."
     }
   ]
 }
