@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-11",
+  "updated_at": "2026-10-12",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1182,6 +1182,25 @@
         "accountability"
       ],
       "summary": "Advice and expertise gain credibility when the adviser bears consequences for being wrong; founders should keep commitments, customer evidence, and downside responsibility connected."
+    },
+    {
+      "date": "2026-10-12",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Poor Charlie's Almanack.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "circle-of-competence",
+        "earned-judgment",
+        "knowledge-boundaries",
+        "evidence-before-bets",
+        "expertise-compounding",
+        "intellectual-humility"
+      ],
+      "summary": "Sound judgment depends on knowing where your understanding is reliable, naming what remains guesswork, and expanding expertise through deliberate learning rather than confidence."
     }
   ]
 }
