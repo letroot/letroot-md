@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-12",
+  "updated_at": "2026-10-13",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1201,6 +1201,25 @@
         "intellectual-humility"
       ],
       "summary": "Sound judgment depends on knowing where your understanding is reliable, naming what remains guesswork, and expanding expertise through deliberate learning rather than confidence."
+    },
+    {
+      "date": "2026-10-13",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/cal-newport/1-cultivating-discipline-as-a-cure-for-distraction.md"
+      ],
+      "source_folders": [
+        "show-notes/cal-newport"
+      ],
+      "concept_tags": [
+        "non-instrumental-discipline",
+        "attention-training",
+        "intrinsic-practice",
+        "identity-diversification",
+        "plateau-curiosity",
+        "right-sized-routine"
+      ],
+      "summary": "A sustainable disciplined pursuit outside work can train attention and create a source of mastery that is not dependent on startup outcomes; size it to life, schedule it, and let curiosity carry practice through plateaus."
     }
   ]
 }
