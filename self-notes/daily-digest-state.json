@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-13",
+  "updated_at": "2026-10-14",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1220,6 +1220,25 @@
         "right-sized-routine"
       ],
       "summary": "A sustainable disciplined pursuit outside work can train attention and create a source of mastery that is not dependent on startup outcomes; size it to life, schedule it, and let curiosity carry practice through plateaus."
+    },
+    {
+      "date": "2026-10-14",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/smart-bear/07-double-your-productivity-without-more-work-or-stress.md"
+      ],
+      "source_folders": [
+        "show-notes/smart-bear"
+      ],
+      "concept_tags": [
+        "average-work-velocity",
+        "low-value-work",
+        "attention-tracking",
+        "context-switching",
+        "distraction-removal",
+        "protected-focus"
+      ],
+      "summary": "Sustained output depends on the average quality of attention across the day; make low-value drains visible and remove or contain them so focused work has room."
     }
   ]
 }
