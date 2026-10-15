@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-14",
+  "updated_at": "2026-10-15",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1239,6 +1239,25 @@
         "protected-focus"
       ],
       "summary": "Sustained output depends on the average quality of attention across the day; make low-value drains visible and remove or contain them so focused work has room."
+    },
+    {
+      "date": "2026-10-15",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/dalton-michael/13-how-startups-close-million-dollar-deals.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "enterprise-buying-process",
+        "procurement-friction",
+        "familiar-pricing",
+        "buyer-journey",
+        "sales-motion",
+        "upmarket-learning"
+      ],
+      "summary": "Large deals become more navigable when founders learn the buyer's existing approval path and structure pricing and offers to fit it, rather than making the customer invent a new process."
     }
   ]
 }
