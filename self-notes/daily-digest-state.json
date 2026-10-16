@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-15",
+  "updated_at": "2026-10-16",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1258,6 +1258,25 @@
         "upmarket-learning"
       ],
       "summary": "Large deals become more navigable when founders learn the buyer's existing approval path and structure pricing and offers to fit it, rather than making the customer invent a new process."
+    },
+    {
+      "date": "2026-10-16",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/my-first-million/13-living-in-a-garage-to-building-the-1b-savannah-bananas.md"
+      ],
+      "source_folders": [
+        "show-notes/my-first-million"
+      ],
+      "concept_tags": [
+        "customer-experience-metrics",
+        "leading-indicators",
+        "service-operations",
+        "promise-delivery",
+        "fan-experience",
+        "revenue-as-scorecard"
+      ],
+      "summary": "The Savannah Bananas case illustrates how tracking concrete experience measures such as wait and service times can reveal whether the customer promise is being delivered before revenue reflects the result."
     }
   ]
 }
