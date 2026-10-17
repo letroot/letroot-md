@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-16",
+  "updated_at": "2026-10-17",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1277,6 +1277,30 @@
         "revenue-as-scorecard"
       ],
       "summary": "The Savannah Bananas case illustrates how tracking concrete experience measures such as wait and service times can reveal whether the customer promise is being delivered before revenue reflects the result."
+    },
+    {
+      "date": "2026-10-17",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-10-11.md",
+        "self-notes/daily-digest/2026-10-12.md",
+        "self-notes/daily-digest/2026-10-13.md",
+        "self-notes/daily-digest/2026-10-14.md",
+        "self-notes/daily-digest/2026-10-15.md",
+        "self-notes/daily-digest/2026-10-16.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-contact",
+        "earned-judgment",
+        "customer-promise",
+        "observable-experience",
+        "attention-protection",
+        "decision-accountability"
+      ],
+      "summary": "The week’s lessons connect into a practical loop: stay within earned judgment, understand the buyer, make customer promises measurable, own decision consequences, and protect the attention and capacity needed to deliver."
     }
   ]
 }
