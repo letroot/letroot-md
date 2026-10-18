@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-17",
+  "updated_at": "2026-10-18",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1301,6 +1301,25 @@
         "decision-accountability"
       ],
       "summary": "The week’s lessons connect into a practical loop: stay within earned judgment, understand the buyer, make customer promises measurable, own decision consequences, and protect the attention and capacity needed to deliver."
+    },
+    {
+      "date": "2026-10-18",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/dalton-michael/02-low-ambition-is-killing-your-startup.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "ambition-calibration",
+        "funding-model-fit",
+        "venture-scale-economics",
+        "credible-growth-steps",
+        "business-model-choice",
+        "long-term-outcome"
+      ],
+      "summary": "Founders should align ambition, funding, and business model: venture capital needs a credible path to exceptional scale, while a smaller durable business should be designed for profitable ownership rather than mismatched growth expectations."
     }
   ]
 }
