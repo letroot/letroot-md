@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-18",
+  "updated_at": "2026-10-19",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1320,6 +1320,24 @@
         "long-term-outcome"
       ],
       "summary": "Founders should align ambition, funding, and business model: venture capital needs a credible path to exceptional scale, while a smaller durable business should be designed for profitable ownership rather than mismatched growth expectations."
+    },
+    {
+      "date": "2026-10-19",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/pragmatic-engineer/2-kubernetes-and-retiring-at-the-top-with-kelsey-hightower.md"
+      ],
+      "source_folders": [
+        "show-notes/pragmatic-engineer"
+      ],
+      "concept_tags": [
+        "plain-language-value",
+        "technology-hype-filter",
+        "customer-outcomes",
+        "product-clarity",
+        "intellectual-honesty"
+      ],
+      "summary": "Removing technology buzzwords from a product explanation tests whether its customer problem and outcome are clear; technology matters when it creates a result people value."
     }
   ]
 }
