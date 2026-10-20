@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-19",
+  "updated_at": "2026-10-20",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1338,6 +1338,24 @@
         "intellectual-honesty"
       ],
       "summary": "Removing technology buzzwords from a product explanation tests whether its customer problem and outcome are clear; technology matters when it creates a result people value."
+    },
+    {
+      "date": "2026-10-20",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/How to Get Rich.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "cash-flow-visibility",
+        "runway",
+        "fixed-cost-discipline",
+        "downside-planning",
+        "financial-prudence"
+      ],
+      "summary": "A founder protects time and future choices by monitoring cash flow, planning for downside, and distinguishing spending that buys customer value from spending that only signals success."
     }
   ]
 }
