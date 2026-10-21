@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-20",
+  "updated_at": "2026-10-21",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1356,6 +1356,24 @@
         "financial-prudence"
       ],
       "summary": "A founder protects time and future choices by monitoring cash flow, planning for downside, and distinguishing spending that buys customer value from spending that only signals success."
+    },
+    {
+      "date": "2026-10-21",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/two-percent/1-executive-coach-top-0-01-percent-dr-julie-gurner.md"
+      ],
+      "source_folders": [
+        "show-notes/two-percent"
+      ],
+      "concept_tags": [
+        "impulse-control",
+        "emotional-delay",
+        "high-stakes-decisions",
+        "anger-and-fear",
+        "self-command"
+      ],
+      "summary": "A short pause between a strong emotion and an irreversible action helps founders choose from facts and values instead of letting a temporary spike create lasting consequences."
     }
   ]
 }
