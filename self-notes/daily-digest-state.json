@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-21",
+  "updated_at": "2026-10-22",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1374,6 +1374,24 @@
         "self-command"
       ],
       "summary": "A short pause between a strong emotion and an irreversible action helps founders choose from facts and values instead of letting a temporary spike create lasting consequences."
+    },
+    {
+      "date": "2026-10-22",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/grant-owen/1-every-level-of-marketing.md"
+      ],
+      "source_folders": [
+        "show-notes/grant-owen"
+      ],
+      "concept_tags": [
+        "awareness-to-action",
+        "funnel-attachment",
+        "clear-next-step",
+        "campaign-measurement",
+        "attention-conversion"
+      ],
+      "summary": "Marketing attention becomes more valuable when each campaign gives interested people a clear next action and measures whether they take it."
     }
   ]
 }
