@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-22",
+  "updated_at": "2026-10-23",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1392,6 +1392,24 @@
         "attention-conversion"
       ],
       "summary": "Marketing attention becomes more valuable when each campaign gives interested people a clear next action and measures whether they take it."
+    },
+    {
+      "date": "2026-10-23",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/mark-pincus/1-zynga-founder-consumer-is-not-investible-right-now-thats-why-you-should-build-it.md"
+      ],
+      "source_folders": [
+        "show-notes/mark-pincus"
+      ],
+      "concept_tags": [
+        "trust-boundaries",
+        "participation-safety",
+        "social-product-design",
+        "context-before-openness",
+        "user-confidence"
+      ],
+      "summary": "Mark Pincus's Tribe.net reflection suggests that clear membership and visibility boundaries can make participation feel safer; trust can be designed into a product, not left to branding."
     }
   ]
 }
