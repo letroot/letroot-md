@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-23",
+  "updated_at": "2026-10-24",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1410,6 +1410,30 @@
         "user-confidence"
       ],
       "summary": "Mark Pincus's Tribe.net reflection suggests that clear membership and visibility boundaries can make participation feel safer; trust can be designed into a product, not left to branding."
+    },
+    {
+      "date": "2026-10-24",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-10-18.md",
+        "self-notes/daily-digest/2026-10-19.md",
+        "self-notes/daily-digest/2026-10-20.md",
+        "self-notes/daily-digest/2026-10-21.md",
+        "self-notes/daily-digest/2026-10-22.md",
+        "self-notes/daily-digest/2026-10-23.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "reality-based-planning",
+        "clear-customer-outcomes",
+        "runway-awareness",
+        "emotional-self-command",
+        "attention-to-action",
+        "trust-by-design"
+      ],
+      "summary": "The six-day sequence converges on reality-based execution: align ambition and resources, make customer value clear, protect runway and judgment, and design trusted paths that turn attention into useful action."
     }
   ]
 }
