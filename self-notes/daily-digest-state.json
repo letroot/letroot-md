@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-24",
+  "updated_at": "2026-10-25",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1434,6 +1434,24 @@
         "trust-by-design"
       ],
       "summary": "The six-day sequence converges on reality-based execution: align ambition and resources, make customer value clear, protect runway and judgment, and design trusted paths that turn attention into useful action."
+    },
+    {
+      "date": "2026-10-25",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/dalton-michael/14-do-you-need-a-co-founder-for-your-startup.md"
+      ],
+      "source_folders": [
+        "show-notes/dalton-michael"
+      ],
+      "concept_tags": [
+        "cofounder-separation",
+        "clean-conflict-resolution",
+        "professional-transition",
+        "ego-costs",
+        "protecting-forward-progress"
+      ],
+      "summary": "When a co-founder partnership is clearly ending, a fair and professional separation usually protects more time, trust, and forward momentum than a prolonged effort to win the conflict."
     }
   ]
 }
