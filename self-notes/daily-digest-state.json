@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-25",
+  "updated_at": "2026-10-26",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1452,6 +1452,24 @@
         "protecting-forward-progress"
       ],
       "summary": "When a co-founder partnership is clearly ending, a fair and professional separation usually protects more time, trust, and forward momentum than a prolonged effort to win the conflict."
+    },
+    {
+      "date": "2026-10-26",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/smart-bear/03-startup-exercise-what-cant-be-solved-with-money.md"
+      ],
+      "source_folders": [
+        "show-notes/smart-bear"
+      ],
+      "concept_tags": [
+        "capital-vs-judgment",
+        "execution-vs-exploration",
+        "bottleneck-identification",
+        "funding-readiness",
+        "learning-before-scaling"
+      ],
+      "summary": "Capital accelerates execution after a real bottleneck is understood; it cannot replace customer learning or judgment about what to build, so founders should fund proven constraints rather than uncertainty."
     }
   ]
 }
