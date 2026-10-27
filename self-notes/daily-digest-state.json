@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-26",
+  "updated_at": "2026-10-27",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1470,6 +1470,24 @@
         "learning-before-scaling"
       ],
       "summary": "Capital accelerates execution after a real bottleneck is understood; it cannot replace customer learning or judgment about what to build, so founders should fund proven constraints rather than uncertainty."
+    },
+    {
+      "date": "2026-10-27",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "book-notes/Poor Charlie's Almanack.md"
+      ],
+      "source_folders": [
+        "book-notes"
+      ],
+      "concept_tags": [
+        "hidden-exposures",
+        "obligation-audit",
+        "concentration-risk",
+        "dependency-risk",
+        "surface-metrics-vs-reality"
+      ],
+      "summary": "Munger's investment analysis treats visible financial measures as a starting point and searches for hidden obligations, dependencies, and threats that could make an apparently strong business fragile."
     }
   ]
 }
