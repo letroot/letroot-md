@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-28",
+  "updated_at": "2026-10-29",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1506,6 +1506,24 @@
         "sustainable-discipline"
       ],
       "summary": "Founder resilience depends partly on preventative lifestyle infrastructure such as sleep, food, movement, and a supportive environment, built before setbacks arrive rather than improvised during burnout."
+    },
+    {
+      "date": "2026-10-29",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/alex-hormozi/18-how-i-made-my-first-high-ticket-sale.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "close-rate-diagnostic",
+        "price-testing",
+        "offer-quality",
+        "lead-qualification",
+        "value-signaling"
+      ],
+      "summary": "Close rate is a pricing signal only when read with lead quality and offer strength: easy acceptance may justify a higher-price test, while hesitation requires diagnosis before discounting."
     }
   ]
 }
