@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-29",
+  "updated_at": "2026-10-30",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1524,6 +1524,24 @@
         "value-signaling"
       ],
       "summary": "Close rate is a pricing signal only when read with lead quality and offer strength: easy acceptance may justify a higher-price test, while hesitation requires diagnosis before discounting."
+    },
+    {
+      "date": "2026-10-30",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/david-senra/1-bootstrapping-a-business-to-5-billion-in-free-cash-flow.md"
+      ],
+      "source_folders": [
+        "show-notes/david-senra"
+      ],
+      "concept_tags": [
+        "value-creating-mechanism",
+        "product-wrapper-vs-engine",
+        "strategic-repositioning",
+        "evidence-led-pivot",
+        "founder-adaptability"
+      ],
+      "summary": "AppLovin's shift from a weak consumer app to its stronger recommendation engine shows how a founder can preserve the value-creating capability while changing the product and business model around it."
     }
   ]
 }
