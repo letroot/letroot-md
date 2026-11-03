@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-01",
+  "updated_at": "2026-11-03",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1566,6 +1566,24 @@
         "durable-progress"
       ],
       "summary": "The six-day sequence emphasizes durable execution: protect relationships, cash, and personal capacity; inspect risks; learn before scaling; use customer response to guide pricing; and adapt the product form around proven value."
+    },
+    {
+      "date": "2026-11-03",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/the-tim-ferriss-show/2-david-senra-how-extreme-winners-think-and-win.md"
+      ],
+      "source_folders": [
+        "show-notes/the-tim-ferriss-show"
+      ],
+      "concept_tags": [
+        "nonfinancial-leverage",
+        "scarce-contribution",
+        "strategic-positioning",
+        "earned-equity",
+        "trust-as-leverage"
+      ],
+      "summary": "Richard Rainwater's dealmaking illustrates that rare strategic insight and a valuable network position can earn meaningful participation without supplying capital; the founder's contribution must be specific and demonstrable."
     }
   ]
 }
