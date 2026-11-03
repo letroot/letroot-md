@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-10-30",
+  "updated_at": "2026-11-01",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1542,6 +1542,30 @@
         "founder-adaptability"
       ],
       "summary": "AppLovin's shift from a weak consumer app to its stronger recommendation engine shows how a founder can preserve the value-creating capability while changing the product and business model around it."
+    },
+    {
+      "date": "2026-11-01",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-10-25.md",
+        "self-notes/daily-digest/2026-10-26.md",
+        "self-notes/daily-digest/2026-10-27.md",
+        "self-notes/daily-digest/2026-10-28.md",
+        "self-notes/daily-digest/2026-10-29.md",
+        "self-notes/daily-digest/2026-10-30.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "protect-operating-capacity",
+        "learn-before-committing",
+        "cash-and-trust-preservation",
+        "pricing-as-evidence",
+        "adapt-method-preserve-value",
+        "durable-progress"
+      ],
+      "summary": "The six-day sequence emphasizes durable execution: protect relationships, cash, and personal capacity; inspect risks; learn before scaling; use customer response to guide pricing; and adapt the product form around proven value."
     }
   ]
 }
