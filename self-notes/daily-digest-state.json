@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-03",
+  "updated_at": "2026-11-04",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1584,6 +1584,24 @@
         "trust-as-leverage"
       ],
       "summary": "Richard Rainwater's dealmaking illustrates that rare strategic insight and a valuable network position can earn meaningful participation without supplying capital; the founder's contribution must be specific and demonstrable."
+    },
+    {
+      "date": "2026-11-04",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/lennys-podcast/001-mercado-libre-18k-engineers.md"
+      ],
+      "source_folders": [
+        "show-notes/lennys-podcast"
+      ],
+      "concept_tags": [
+        "team-autonomy",
+        "high-level-objectives",
+        "quality-guardrails",
+        "distributed-ownership",
+        "review-without-micromanagement"
+      ],
+      "summary": "Mercado Libre's model pairs team freedom to choose implementation with clear high-level objectives and uncompromising quality review, putting decisions near the work without losing alignment."
     }
   ]
 }
