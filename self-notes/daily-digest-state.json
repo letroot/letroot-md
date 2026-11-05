@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-04",
+  "updated_at": "2026-11-05",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1602,6 +1602,24 @@
         "review-without-micromanagement"
       ],
       "summary": "Mercado Libre's model pairs team freedom to choose implementation with clear high-level objectives and uncompromising quality review, putting decisions near the work without losing alignment."
+    },
+    {
+      "date": "2026-11-05",
+      "concept_lane": "Money/judgment/risk",
+      "source_paths": [
+        "show-notes/taleb/2-antifragile-things-that-gain-from-disorder.md"
+      ],
+      "source_folders": [
+        "show-notes/taleb"
+      ],
+      "concept_tags": [
+        "via-negativa",
+        "risk-by-subtraction",
+        "fragility-reduction",
+        "avoiding-complexity",
+        "reversible-intervention"
+      ],
+      "summary": "Taleb's via negativa suggests that, in complex systems, removing a fragility or harmful input can reduce risk more reliably than adding an intervention with unpredictable side effects."
     }
   ]
 }
