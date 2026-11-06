@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-05",
+  "updated_at": "2026-11-06",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1620,6 +1620,24 @@
         "reversible-intervention"
       ],
       "summary": "Taleb's via negativa suggests that, in complex systems, removing a fragility or harmful input can reduce risk more reliably than adding an intervention with unpredictable side effects."
+    },
+    {
+      "date": "2026-11-06",
+      "concept_lane": "Discipline/focus/inner life",
+      "source_paths": [
+        "show-notes/dr-k/002-how-to-actually-have-an-elite-mindset.md"
+      ],
+      "source_folders": [
+        "show-notes/dr-k"
+      ],
+      "concept_tags": [
+        "outcomes-vs-identity",
+        "present-action",
+        "result-as-information",
+        "process-practice",
+        "founder-anxiety"
+      ],
+      "summary": "Dr. K's 'dead center' approach keeps ambition while separating results from identity, returning attention to the controllable action available now."
     }
   ]
 }
