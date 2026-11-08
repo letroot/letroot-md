@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-06",
+  "updated_at": "2026-11-08",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1638,6 +1638,24 @@
         "founder-anxiety"
       ],
       "summary": "Dr. K's 'dead center' approach keeps ambition while separating results from identity, returning attention to the controllable action available now."
+    },
+    {
+      "date": "2026-11-08",
+      "concept_lane": "Sales/marketing/distribution",
+      "source_paths": [
+        "show-notes/grant-owen/1-every-level-of-marketing.md"
+      ],
+      "source_folders": [
+        "show-notes/grant-owen"
+      ],
+      "concept_tags": [
+        "expert-as-messenger",
+        "credible-voice",
+        "audience-trust",
+        "founder-time-allocation",
+        "niche-content"
+      ],
+      "summary": "Marketing can work better when a credible niche expert or customer carries the message; the founder need not be the face if another trusted voice can explain the problem naturally."
     }
   ]
 }
