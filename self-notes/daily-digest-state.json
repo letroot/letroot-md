@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-08",
+  "updated_at": "2026-11-10",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1656,6 +1656,14 @@
         "niche-content"
       ],
       "summary": "Marketing can work better when a credible niche expert or customer carries the message; the founder need not be the face if another trusted voice can explain the problem naturally."
+    },
+    {
+      "date": "2026-11-10",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": ["show-notes/my-first-million/13-living-in-a-garage-to-building-the-1b-savannah-bananas.md"],
+      "source_folders": ["show-notes/my-first-million"],
+      "concept_tags": ["customer-experience", "distinctive-positioning", "fan-first-product", "service-as-product"],
+      "summary": "The Savannah Bananas case shows how reframing the product around the fan experience made distinctive service and memorable details central to the offer."
     }
   ]
 }
