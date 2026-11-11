@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-10",
+  "updated_at": "2026-11-11",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1664,6 +1664,24 @@
       "source_folders": ["show-notes/my-first-million"],
       "concept_tags": ["customer-experience", "distinctive-positioning", "fan-first-product", "service-as-product"],
       "summary": "The Savannah Bananas case shows how reframing the product around the fan experience made distinctive service and memorable details central to the offer."
+    },
+    {
+      "date": "2026-11-11",
+      "concept_lane": "Biography/examples/case studies",
+      "source_paths": [
+        "show-notes/school-of-hard-knocks/vic-keller-start-from-scratch.md"
+      ],
+      "source_folders": [
+        "show-notes/school-of-hard-knocks"
+      ],
+      "concept_tags": [
+        "three-cs-hiring",
+        "character-competence-chemistry",
+        "team-trust",
+        "learning-agility",
+        "collaboration-quality"
+      ],
+      "summary": "Vic Keller's three-C hiring filter balances character, competence, and chemistry: strong teams need skill, trustworthiness, and people who improve how the group works together."
     }
   ]
 }
