@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-11",
+  "updated_at": "2026-11-12",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1682,6 +1682,30 @@
         "collaboration-quality"
       ],
       "summary": "Vic Keller's three-C hiring filter balances character, competence, and chemistry: strong teams need skill, trustworthiness, and people who improve how the group works together."
+    },
+    {
+      "date": "2026-11-12",
+      "concept_lane": "Weekly synthesis",
+      "source_paths": [
+        "self-notes/daily-digest/2026-11-03.md",
+        "self-notes/daily-digest/2026-11-04.md",
+        "self-notes/daily-digest/2026-11-05.md",
+        "self-notes/daily-digest/2026-11-06.md",
+        "self-notes/daily-digest/2026-11-08.md",
+        "self-notes/daily-digest/2026-11-10.md"
+      ],
+      "source_folders": [
+        "synthesis"
+      ],
+      "concept_tags": [
+        "systems-for-durable-work",
+        "earned-leverage",
+        "autonomy-with-guardrails",
+        "fragility-reduction",
+        "customer-evidence",
+        "capacity-and-trust"
+      ],
+      "summary": "The six learning lanes converge on designing the conditions for durable work: earn leverage through contribution, align autonomy with quality, reduce fragility, preserve capacity, and let customer evidence guide adaptation."
     }
   ]
 }
