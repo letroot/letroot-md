@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-12",
+  "updated_at": "2026-11-13",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1706,6 +1706,24 @@
         "capacity-and-trust"
       ],
       "summary": "The six learning lanes converge on designing the conditions for durable work: earn leverage through contribution, align autonomy with quality, reduce fragility, preserve capacity, and let customer evidence guide adaptation."
+    },
+    {
+      "date": "2026-11-13",
+      "concept_lane": "Founder/operator",
+      "source_paths": [
+        "show-notes/alex-hormozi/24-how-to-make-more-money-than-you-deserve.md"
+      ],
+      "source_folders": [
+        "show-notes/alex-hormozi"
+      ],
+      "concept_tags": [
+        "founder-dependence",
+        "transferable-business",
+        "repeatable-delivery",
+        "business-goal-alignment",
+        "owner-independent-value"
+      ],
+      "summary": "A founder should distinguish a profitable expert-led practice from a transferable company and choose deliberately; transferability requires customer value and delivery that do not depend on the founder's constant personal involvement."
     }
   ]
 }
