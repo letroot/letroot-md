@@ -1,6 +1,6 @@
 {
   "version": 1,
-  "updated_at": "2026-11-13",
+  "updated_at": "2026-11-14",
   "exclusions": [
     "show-notes/pleros-podcast",
     "show-notes/CHT-1st-Century",
@@ -1724,6 +1724,24 @@
         "owner-independent-value"
       ],
       "summary": "A founder should distinguish a profitable expert-led practice from a transferable company and choose deliberately; transferability requires customer value and delivery that do not depend on the founder's constant personal involvement."
+    },
+    {
+      "date": "2026-11-14",
+      "concept_lane": "Product/engineering/leverage",
+      "source_paths": [
+        "show-notes/smart-bear/10-using-the-needs-stack-for-competitive-strategy.md"
+      ],
+      "source_folders": [
+        "show-notes/smart-bear"
+      ],
+      "concept_tags": [
+        "needs-stack",
+        "customer-end-goal",
+        "higher-level-competition",
+        "alternative-solutions",
+        "outcome-led-product-strategy"
+      ],
+      "summary": "The Needs Stack traces a requested feature to the customer's larger outcome, revealing higher-level competitors and opportunities to solve the end goal more directly."
     }
   ]
 }
